@@ -20,7 +20,7 @@ timezone: Asia/Shanghai
 
 title: Giftable # the main title
 
-tagline: Test new # it will display as the sub-title
+tagline: Life is short. Time is fast. So enjoy every moment as it comes. # it will display as the sub-title
 
 description: >- # used by seo meta and the atom feed
   A minimal, responsive and feature-rich Jekyll theme for technical writing.
@@ -28,21 +28,23 @@ description: >- # used by seo meta and the atom feed
 # fill in the protocol & hostname for your site, e.g., 'https://username.github.io'
 url: ""
 
+allow_search_engine: false
+
 github:
-  username: github_username # change to your github username
+  username: # change to your github username
 
 twitter:
-  username: twitter_username # change to your twitter username
+  username: giftable.blog # change to your twitter username
 
 social:
   # Change to your full name.
   # It will be displayed as the default author of the posts and the copyright owner in the Footer
-  name: your_full_name
-  email: example@domain.com # change to your email address
+  name: Giftable
+  email: hi@giftable.blog # change to your email address
   links:
     # The first element serves as the copyright owner's link
-    - https://twitter.com/username # change to your twitter homepage
-    - https://github.com/username # change to your github homepage
+    - https://twitter.com/giftable.blog # change to your twitter homepage
+    - https://github.com/giftable.blog # change to your github homepage
     # Uncomment below to add more social links
     # - https://www.facebook.com/username
     # - https://www.linkedin.com/in/username
@@ -52,8 +54,8 @@ google_site_verification: # fill in to your verification string
 # ↑ --------------------------
 # The end of `jekyll-seo-tag` settings
 
-google_analytics:
-  id: # fill in your Google Analytics ID
+google_analytics: 
+  id: G-QR19FVN44J # fill in your Google Analytics ID
 
 # Prefer color scheme setting.
 #
@@ -76,7 +78,7 @@ theme_mode: # [light|dark]
 img_cdn:
 
 # the avatar on sidebar, support local or CORS resources
-avatar:
+avatar: assets/img/Logo-giftable.jpg
 
 # boolean type, the global switch for TOC in posts.
 toc: true
@@ -85,7 +87,7 @@ comments:
   active: # The global switch for posts comments, e.g., 'disqus'.  Keep it empty means disable
   # The active options are as follows:
   disqus:
-    shortname: # fill with the Disqus shortname. › https://help.disqus.com/en/articles/1717111-what-s-a-shortname
+    shortname: giftable-blog # fill with the Disqus shortname. › https://help.disqus.com/en/articles/1717111-what-s-a-shortname
   # utterances settings › https://utteranc.es/
   utterances:
     repo: # <gh-username>/<repo>
@@ -112,7 +114,7 @@ assets:
 pwa:
   enabled: true # the option for PWA feature
 
-paginate: 10
+paginate: 10000
 
 # ------------ The following options are not recommended to be modified ------------------
 
