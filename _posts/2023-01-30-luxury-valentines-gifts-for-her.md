@@ -7,6 +7,6 @@ permalink: "/luxury-valentines-gifts-for-her/"
 categories: Occasions Valentine
 tags:
 image:
-    path: "assets/img/post/2023/09/copied/luxury-valentines-gifts-for-her.jpg"
+    path: "/assets/img/post/2023/09/copied/luxury-valentines-gifts-for-her.jpg"
     alt: "35 Best Luxury Valentine’s Gifts For Her To Show Your Love"                                
 ---
