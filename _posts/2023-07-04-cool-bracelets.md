@@ -5,8 +5,5 @@ date: 2023-07-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/cool-bracelets/"
 categories:
-tags:
-image:
-    path:
-    alt:                                 
+tags:                               
 ---    

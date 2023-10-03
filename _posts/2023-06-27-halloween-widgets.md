@@ -5,8 +5,5 @@ date: 2023-06-27 00:00:00 +0000
 last-modify-at: 
 permalink: "/halloween-widgets/"
 categories:
-tags:
-image:
-    path:
-    alt:                                 
+tags:                            
 ---    

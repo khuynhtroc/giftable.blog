@@ -5,8 +5,5 @@ date: 2023-07-18 00:00:00 +0000
 last-modify-at: 
 permalink: "/anniversary%20cards/"
 categories:
-tags:
-image:
-    path:
-    alt:                                 
+tags:                         
 ---   
