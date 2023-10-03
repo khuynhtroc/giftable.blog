@@ -5,7 +5,7 @@ date: 2023-08-17 00:00:00 +0000
 last-modify-at: 
 permalink: "/unique-gifts-for-grandma/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/unique-gifts-for-grandma-fix.jpg"
     alt: "Unique Gifts for Grandma that Sparkle with Meaning"                                

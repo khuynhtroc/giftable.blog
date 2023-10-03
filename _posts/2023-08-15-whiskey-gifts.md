@@ -5,7 +5,7 @@ date: 2023-08-15 00:00:00 +0000
 last-modify-at: 
 permalink: "/whiskey-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/whiskey-gifts.jpg"
     alt: "35 Best Whiskey Gifts That Will Impress Any Connoisseur"                                

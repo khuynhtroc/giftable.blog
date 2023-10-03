@@ -5,7 +5,7 @@ date: 2023-08-15 00:00:00 +0000
 last-modify-at: 
 permalink: "/handmade-gift-boyfriend/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/handmade-gift-for-boyfriend.jpg"
     alt: "Best Handmade Gifts for Boyfriend That Will Make Him Smile"                                

@@ -5,7 +5,7 @@ date: 2023-08-17 00:00:00 +0000
 last-modify-at: 
 permalink: "/handmade-anniversary-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/handmade-anniversary-gifts.jpg"
     alt: "Best Handmade Anniversary Gifts To Express Your Affection"                                

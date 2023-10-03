@@ -5,7 +5,7 @@ date: 2023-08-30 00:00:00 +0000
 last-modify-at: 
 permalink: "/gift-for-roommates/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-roomates.jpg"
     alt: "35 Best Gifts for Roommates on Any Occasions"                                

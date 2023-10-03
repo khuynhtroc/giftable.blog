@@ -5,7 +5,7 @@ date: 2023-08-17 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-environmentalists/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-environemtalist.jpg"
     alt: "Best Gifts for Environmentalists: Eco-Friendly Presents They’ll Love"                                

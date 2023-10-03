@@ -5,7 +5,7 @@ date: 2023-08-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/firefighter-retirement-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/firefighter-retirement-gifts.jpg"
     alt: "35 Best Firefighter Retirement Gifts to Salute Bravery"                                

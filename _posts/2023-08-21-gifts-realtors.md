@@ -5,7 +5,7 @@ date: 2023-08-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-realtors/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-realtors.jpg"
     alt: "Best Gifts For Realtors to Say Thanks After Closing"                                

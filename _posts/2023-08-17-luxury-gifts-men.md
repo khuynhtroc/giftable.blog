@@ -5,7 +5,7 @@ date: 2023-08-17 00:00:00 +0000
 last-modify-at: 
 permalink: "/luxury-gifts-men/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/luxury-gifts-for-men-fix.jpg"
     alt: "Best Luxury Gifts For Men That Are Hot Trend In 2023"                                

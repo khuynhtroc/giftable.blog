@@ -5,7 +5,7 @@ date: 2023-08-16 00:00:00 +0000
 last-modify-at: 
 permalink: "/handmade-gift-best-friend/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/handmade-gift-for-best-friend.jpg"
     alt: "Thoughtful Handmade Gifts for Best Friend In 2023"                                

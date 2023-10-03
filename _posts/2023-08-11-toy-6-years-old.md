@@ -5,7 +5,7 @@ date: 2023-08-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/toy-6-years-old/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/toy-for-6-years-old.jpg"
     alt: "Best Toys For 6 Years Old That Will Give Them Hours of Fun"                                

@@ -5,7 +5,7 @@ date: 2023-08-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-new-boyfriends/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-new-boyfriend.jpg"
     alt: "Gifts for New Boyfriend That’ll Make Him Surprise In 2023"                                
