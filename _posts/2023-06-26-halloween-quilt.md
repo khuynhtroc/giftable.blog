@@ -5,5 +5,8 @@ date: 2023-06-26 00:00:00 +0000
 last-modify-at: 
 permalink: "/halloween-quilt/"
 categories:
-tags:                              
+tags:
+image:
+    path:
+    alt:                                 
 ---  

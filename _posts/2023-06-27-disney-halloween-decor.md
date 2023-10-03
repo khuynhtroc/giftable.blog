@@ -5,5 +5,8 @@ date: 2023-06-27 00:00:00 +0000
 last-modify-at: 
 permalink: "/disney-halloween-decor/"
 categories:
-tags:                              
+tags:
+image:
+    path:
+    alt:                                 
 ---   

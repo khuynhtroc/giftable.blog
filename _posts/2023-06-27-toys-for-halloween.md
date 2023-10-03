@@ -5,5 +5,8 @@ date: 2023-06-27 00:00:00 +0000
 last-modify-at: 
 permalink: "/toys-for-halloween/"
 categories:
-tags:                            
+tags:
+image:
+    path:
+    alt:                                 
 ---   

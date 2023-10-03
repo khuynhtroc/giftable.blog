@@ -5,5 +5,8 @@ date: 2023-07-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/halloween-gnomes/"
 categories:
-tags:                              
+tags:
+image:
+    path:
+    alt:                                 
 ---    
