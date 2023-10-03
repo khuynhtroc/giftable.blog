@@ -5,8 +5,8 @@ date: 2023-09-14 00:00:00 +0000
 last-modify-at: 
 permalink: "/retirement-gifts-coworker/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/retirement-gifts.jpg"
-    alt: "35 Meaningful Retirement Gifts for Coworkers That Make The Transition Memorable"                                
+    alt: "35 Meaningful Retirement Gifts for Coworkers That Make The Transition Memorable"          
 --- 
