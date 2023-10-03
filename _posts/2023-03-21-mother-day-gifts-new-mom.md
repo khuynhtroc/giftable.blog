@@ -5,7 +5,7 @@ date: 2023-03-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/mother-day-gifts-new-mom/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/mother-day-gifts-for-new-mom.jpg"
     alt: "Best Mother’s Day Gifts for New Moms that She’ll Love"                                

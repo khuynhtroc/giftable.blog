@@ -5,7 +5,7 @@ date: 2023-03-13 00:00:00 +0000
 last-modify-at: 
 permalink: "/mothers-day-jewelry/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/undefined-Imgur-8.jpg"
     alt: "Best Mother’s Day Jewelry Gifts that’ll Touch Her Heart"                                

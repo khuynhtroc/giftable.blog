@@ -5,7 +5,7 @@ date: 2023-03-24 00:00:00 +0000
 last-modify-at: 
 permalink: "/bowling-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Bowling-gifts.jpg"
     alt: "Best Strike Bowling Gifts for Bowlers of All Ages"                                

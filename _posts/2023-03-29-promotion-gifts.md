@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/promotion-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Promotion-gifts.jpg"
     alt: "34 Best Promotion Gifts To Congrast Anybody On Their Career"                                

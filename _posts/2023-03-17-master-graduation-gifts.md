@@ -5,7 +5,7 @@ date: 2023-03-17 00:00:00 +0000
 last-modify-at: 
 permalink: "/master-graduation-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/masters-graduation-gifts.jpg"
     alt: "Unforgettable Graduation Gifts for Masters Degree Graduates"                                

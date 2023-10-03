@@ -5,7 +5,7 @@ date: 2023-03-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/graduation-gifts-boyfriend/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/undefined-Imgur-4.jpg"
     alt: "36 Best Graduation Gifts For Boyfriend That Will Touch His Heart"                                

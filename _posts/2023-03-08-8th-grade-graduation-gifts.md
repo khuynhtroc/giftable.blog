@@ -5,7 +5,7 @@ date: 2023-03-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/8th-grade-graduation-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/undefined-Imgur-1.jpg"
     alt: "35 Best 8th Grade Graduation Gifts That Every Teenager Will Love"                                

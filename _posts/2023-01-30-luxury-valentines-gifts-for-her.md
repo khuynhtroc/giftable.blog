@@ -5,7 +5,7 @@ date: 2023-01-30 00:00:00 +0000
 last-modify-at: 
 permalink: "/luxury-valentines-gifts-for-her/"
 categories: Occasions Valentine
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/luxury-valentines-gifts-for-her.jpg"
     alt: "35 Best Luxury Valentine’s Gifts For Her To Show Your Love"                                

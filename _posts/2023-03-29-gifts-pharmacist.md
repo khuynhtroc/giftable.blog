@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-pharmacist/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-for-pharmacist.jpg"
     alt: "30 Best Gifts For Pharmacist To Show Your Love"                                

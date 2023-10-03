@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/capricorn-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/capricorn-gifts.jpg"
     alt: "Best Capricorn Gifts For Women From Man"                                

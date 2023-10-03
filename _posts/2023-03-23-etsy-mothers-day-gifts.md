@@ -5,7 +5,7 @@ date: 2023-03-23 00:00:00 +0000
 last-modify-at: 
 permalink: "/etsy-mothers-day-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Etsy-mothers-day-gifts.jpg"
     alt: "Best Etsy Mother’s Day Gifts that’ll Make Her Smile"                                

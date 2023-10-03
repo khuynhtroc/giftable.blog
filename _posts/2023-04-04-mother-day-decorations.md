@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/mother-day-decorations/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Mother-Day-Decorations.jpg"
     alt: "35 Creative and Thoughtful Mother’s Day Decorations Ideas"                                

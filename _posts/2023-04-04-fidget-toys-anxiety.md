@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/fidget-toys-anxiety/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/fidget-toys-for-anxiety.jpg"
     alt: "35 Fidget Toys for Anxiety That Will Help You Relax And Calm Your Mind"                                

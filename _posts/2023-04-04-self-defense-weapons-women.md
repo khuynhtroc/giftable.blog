@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/self-defense-weapons-women/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Self-Defense-Weapons-For-Women.jpg"
     alt: "Empower Yourself: 35 Effective Self-Defense Weapons for Women"                                

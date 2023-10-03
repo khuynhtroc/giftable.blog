@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-sneakerheads/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-for-sneakerheads.jpg"
     alt: "Soleful Surprises: 34 Best Gifts for Sneakerheads That They Will Adore"                                

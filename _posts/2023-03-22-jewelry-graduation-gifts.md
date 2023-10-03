@@ -5,7 +5,7 @@ date: 2023-03-22 00:00:00 +0000
 last-modify-at: 
 permalink: "/jewelry-graduation-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Jewelry-Graduation-Gifts.jpg"
     alt: "29 Meaningful and Stylish Jewelry Graduation Gift Ideas"                                

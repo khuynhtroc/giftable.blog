@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/best-dragon-gift-ever/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Best-Dragon-Gift-Ever.jpg"
     alt: "35 Best Dragon Gifts Ever for Those Who Love This Incredible Creature"                                

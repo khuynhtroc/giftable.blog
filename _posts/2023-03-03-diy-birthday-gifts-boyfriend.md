@@ -5,7 +5,7 @@ date: 2023-03-03 00:00:00 +0000
 last-modify-at: 
 permalink: "/diy-birthday-gifts-boyfriend/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/TgEjmMp.jpeg"
     alt: "Best DIY Birthday Gifts For Boyfriend To Make Him Happy"                                

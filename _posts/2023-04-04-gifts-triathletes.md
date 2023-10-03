@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-triathletes/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-For-Triathletes.jpg"
     alt: "35 Perfect Gifts for Triathletes To Gear Up for Success"                                

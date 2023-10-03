@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/nicolas-cage-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/nicolas-cage-gifts.jpg"
     alt: "34 Nicolas Cage Gifts for Fans of the Eccentric Actor"                                

@@ -5,7 +5,7 @@ date: 2023-03-03 00:00:00 +0000
 last-modify-at: 
 permalink: "/graduation-gifts-friends/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/OcwZCDt.jpeg"
     alt: "Best Graduation Gifts For Friends That They’ll Be Sure To Remember"                                

@@ -5,7 +5,7 @@ date: 2023-03-31 00:00:00 +0000
 last-modify-at: 
 permalink: "/sushi-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Sushi-Gifts.jpg"
     alt: "Best Sushi Gifts That Will Make Every Sushi Lover Surprise"                                

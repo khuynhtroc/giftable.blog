@@ -4,7 +4,7 @@ description: "And if you have a lover, friend, brother who is a fan of this game
 date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/world-warcraft-gifts/"
-categories:
+categories: gifts
 tags:
 image:
     path: "/assets/img/post/2023/09/copied/world-of-warcraft-gifts.jpg"

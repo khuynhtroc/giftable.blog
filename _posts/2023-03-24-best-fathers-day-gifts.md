@@ -5,7 +5,7 @@ date: 2023-03-24 00:00:00 +0000
 last-modify-at: 
 permalink: "/best-fathers-day-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Best-Fathers-Day-Gifts.jpg"
     alt: "35 Best Father’s Day Gifts to Show Your Appreciation"                                

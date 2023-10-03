@@ -5,7 +5,7 @@ date: 2023-03-01 00:00:00 +0000
 last-modify-at: 
 permalink: "/graduation-gifts-a-man/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/undefined-Imgur-10.jpg"
     alt: "35 Best Graduation Gifts For A Man To Celebrate Their Achievements"                                

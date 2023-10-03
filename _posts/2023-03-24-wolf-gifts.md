@@ -5,7 +5,7 @@ date: 2023-03-24 00:00:00 +0000
 last-modify-at: 
 permalink: "/wolf-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Wolf-Gifts.jpg"
     alt: "35 Best Wolf Gifts That Will Unleash Your Love for Wolves"                                

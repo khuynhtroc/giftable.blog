@@ -5,7 +5,7 @@ date: 2023-03-22 00:00:00 +0000
 last-modify-at: 
 permalink: "/friends-tv-show-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Friends-TV-Show-Gifts.jpg"
     alt: "35 Best Friends TV Show Gifts For The Ultimate Fans"                                

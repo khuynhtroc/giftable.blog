@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-police-officers/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-For-Police-Officers-1.jpg"
     alt: "35 Meaningful Gifts for Police Officers Who Save And Protect"                                

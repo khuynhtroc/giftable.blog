@@ -5,7 +5,7 @@ date: 2023-04-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-mailman/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-For-Mailman.jpg"
     alt: "30 Best Gifts For Mailman That Will Make Them Smile"                                

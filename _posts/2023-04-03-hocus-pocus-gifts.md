@@ -5,7 +5,7 @@ date: 2023-04-03 00:00:00 +0000
 last-modify-at: 
 permalink: "/hocus-pocus-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Hocus-Pocus-Gifts.jpg"
     alt: "35 Best Hocus Pocus Gifts That Every Adult Will Love"                                

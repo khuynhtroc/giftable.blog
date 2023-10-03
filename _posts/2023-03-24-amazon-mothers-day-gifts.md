@@ -5,7 +5,7 @@ date: 2023-03-24 00:00:00 +0000
 last-modify-at: 
 permalink: "/amazon-mothers-day-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/amazon-mothers-day-gifts.jpg"
     alt: "34 Best Amazon Mother’s Day Gifts for Every Mom"                                

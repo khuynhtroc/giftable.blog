@@ -5,7 +5,7 @@ date: 2023-03-27 00:00:00 +0000
 last-modify-at: 
 permalink: "/university-graduation-gifts-her/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/university-graduation-gifts-for-her.jpg"
     alt: "35 Thoughtful University Graduation Gifts for Her"                                

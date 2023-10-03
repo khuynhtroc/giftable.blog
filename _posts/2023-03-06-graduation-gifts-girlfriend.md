@@ -5,7 +5,7 @@ date: 2023-03-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/graduation-gifts-girlfriend/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/O8Ed8fH.jpeg"
     alt: "Best Graduation Gifts For Girlfriend That She’ll Cherish"                                

@@ -5,7 +5,7 @@ date: 2023-03-28 00:00:00 +0000
 last-modify-at: 
 permalink: "/bob-ross-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Bob-ross-gifts.jpg"
     alt: "34 Best Bob Ross-Inspired Gift Ideas for Artists and Fans"                                

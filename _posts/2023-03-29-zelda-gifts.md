@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/zelda-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Best-Zelda-Gifts-Ever.jpg"
     alt: "Best Zelda Gifts For The Legend of Zelda Lovers"                                

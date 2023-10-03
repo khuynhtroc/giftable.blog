@@ -5,7 +5,7 @@ date: 2023-03-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/graduation-gifts-doctors/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/undefined-Imgur-6.jpg"
     alt: "35 Best Graduation Gifts For Doctors That Will Make Them Smile"                                

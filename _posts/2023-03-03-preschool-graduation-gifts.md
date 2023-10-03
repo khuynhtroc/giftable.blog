@@ -5,7 +5,7 @@ date: 2023-03-03 00:00:00 +0000
 last-modify-at: 
 permalink: "/preschool-graduation-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/LblVbzd.jpeg"
     alt: "Best Preschool Graduation Gift Ideas That’ll Make Kids Happy"                                

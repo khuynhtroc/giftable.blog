@@ -5,7 +5,7 @@ date: 2023-03-29 00:00:00 +0000
 last-modify-at: 
 permalink: "/cat-memorial-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/cat-memorial-gifts.jpg"
     alt: "33 Meaningful Cat Memorial Gifts to Honor Your Feline Companion"                                
