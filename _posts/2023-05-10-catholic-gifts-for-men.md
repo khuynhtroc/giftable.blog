@@ -1,7 +1,9 @@
 ---
-title: "Best Catholic Gifts For Men To Show Them Your Lovedescription: "      				    	"
-date: #N/A
-last-modify-at: permalink: "/catholic-gifts-for-men/"
+title: "Best Catholic Gifts For Men To Show Them Your Love"
+description:
+date: 2023-05-10 00:00:00 +0000
+last-modify-at: 
+permalink: "/catholic-gifts-for-men/"
 categories:
 tags:
 image:
