@@ -5,7 +5,7 @@ date: 2023-04-14 00:00:00 +0000
 last-modify-at: 
 permalink: "/father-day-decorations/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Father-Day-Decorations.jpg"
     alt: "35 Best Father Day Decorations To Celebrate Dad In Style"                                

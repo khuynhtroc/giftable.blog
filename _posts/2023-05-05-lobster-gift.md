@@ -5,7 +5,7 @@ date: 2023-05-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/lobster-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Lobster-Gift.jpg"
     alt: "36 Unique And Fun Lobster Gifts For Seafood Lovers"                                

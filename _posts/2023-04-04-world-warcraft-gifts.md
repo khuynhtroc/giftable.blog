@@ -8,5 +8,5 @@ categories: gifts
 tags:
 image:
     path: "/assets/img/post/2023/09/copied/world-of-warcraft-gifts.jpg"
-    alt: "For the Horde! 35 Epic World of Warcraft Gifts for Azeroth’s Greatest Champions"                                
+    alt: "For the Horde! 35 Epic World of Warcraft Gifts for Azeroth’s Greatest Champions"
 ---    

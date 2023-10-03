@@ -5,7 +5,7 @@ date: 2023-09-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/college-halloween-costumes/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/college-halloween-costumes.jpg"
     alt: "Best College Halloween Costumes That Are the 2023’s Hot Trends"                                

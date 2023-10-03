@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/winter-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/winter-gift.jpg"
     alt: "35 Best Winter Gifts for Your Loved Ones That Are Unique And Cozy"                                

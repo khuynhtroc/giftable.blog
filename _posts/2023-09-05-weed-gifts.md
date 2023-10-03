@@ -5,7 +5,7 @@ date: 2023-09-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/weed-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/weed-gifts.jpg"
     alt: "Best Weed Gifts That Will Satisfy Any Stoner"                                

@@ -5,7 +5,7 @@ date: 2023-04-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/hedgehog-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Hedgehog-Gift.jpg"
     alt: "33 Cute Hedgehog Gifts for Hedgehog Lovers"                                

@@ -5,7 +5,7 @@ date: 2023-04-12 00:00:00 +0000
 last-modify-at: 
 permalink: "/mushroom-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/mushroom-gifts.jpg"
     alt: "34 Unique and Whimsical Mushroom Gifts for Mushroom Lovers"                                

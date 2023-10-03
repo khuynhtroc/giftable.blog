@@ -5,7 +5,7 @@ date: 2023-04-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/summer-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Summer-Gifts.jpg"
     alt: "35 Best Summer Gifts That Are Both Trendy and Unique"                                

@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/science-toys/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Science-Toys.jpg"
     alt: "Exploring Science: 35 Best Science Toys for Kids and Curious Minds Alike"                                

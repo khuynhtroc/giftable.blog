@@ -5,7 +5,7 @@ date: 2023-09-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/wedding-gifts-bride-friend/"
 categories:
-tags:
+tags:  gifts
 image:
     path: "/assets/img/post/2023/09/copied/wedding-gifts-for-bride-from-friend.jpg"
     alt: "Best Wedding Gifts for Bride from Friend In 2023"                                

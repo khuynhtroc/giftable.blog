@@ -5,7 +5,7 @@ date: 2023-09-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/horror-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/horror-gifts.jpg"
     alt: "Best Horror Gifts You Should Check Out In 2023"                                

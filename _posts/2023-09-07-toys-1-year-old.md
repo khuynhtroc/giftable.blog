@@ -5,7 +5,7 @@ date: 2023-09-07 00:00:00 +0000
 last-modify-at: 
 permalink: "/toys-1-year-old/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/toys-for-1-year-old.jpg"
     alt: "Top 35 Toys for 1 Year Old that Provide Hours of Entertainment"                                

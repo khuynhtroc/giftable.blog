@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/squirrel-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Squirrel-Gift.jpg"
     alt: "35 Best Squirrel Gifts For Fans of This Cute Creature"                                

@@ -5,7 +5,7 @@ date: 2023-09-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/black-friday-gift-her/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/black-friday-gifts-for-her.jpg"
     alt: "Best Black Friday Gift For Her That Sure To Delight Any Women"                                

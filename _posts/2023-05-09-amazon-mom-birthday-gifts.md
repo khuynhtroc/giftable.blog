@@ -5,7 +5,7 @@ date: 2023-05-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/amazon-mom-birthday-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/medium_Amazon mom birthday gifts.jpg"
     alt: "Best Amazon Mom Birthday Gifts Will Surprise Her"                                

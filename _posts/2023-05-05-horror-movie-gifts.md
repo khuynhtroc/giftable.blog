@@ -5,7 +5,7 @@ date: 2023-05-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/horror-movie-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Horror-Movie-Gifts.jpg"
     alt: "Best Horror Movie Gifts For People Who Love Scary Movies"                                

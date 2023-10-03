@@ -5,7 +5,7 @@ date: 2023-09-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-cyclist/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-cyclists-fix.jpg"
     alt: "Useful Gifts For Cyclists That Will Really Get Used"                                

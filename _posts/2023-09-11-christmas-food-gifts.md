@@ -5,7 +5,7 @@ date: 2023-09-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/christmas-food-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/christmas-food-gifts.jpg"
     alt: "34 Ideal Christmas Food Gifts that Add Tasteful Cheer to the Holidays"                                

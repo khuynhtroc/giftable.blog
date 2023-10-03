@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-the-impossible-man/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-For-The-Impossible-Man.jpg"
     alt: "32 Best Gifts For The Impossible Man That Are Cool And Unique"                                

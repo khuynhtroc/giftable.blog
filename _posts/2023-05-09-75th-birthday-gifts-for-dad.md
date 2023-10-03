@@ -5,7 +5,7 @@ date: 2023-05-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/75th-birthday-gifts-for-dad/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/medium_75th birthday gifts for dad.png"
     alt: "Best 75th Birthday Gifts for Dad To Celebrate A Milestone Age"                                

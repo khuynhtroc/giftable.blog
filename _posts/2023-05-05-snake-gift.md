@@ -5,7 +5,7 @@ date: 2023-05-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/snake-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Snake-Gift.jpg"
     alt: "34 Best Snake Gifts That Are Unique For Reptile Enthusiasts"                                

@@ -5,7 +5,7 @@ date: 2023-09-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/walking-dead-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/walking-dead-gifts.jpg"
     alt: "Best Walking Dead Gifts For the Undead Lover"                                

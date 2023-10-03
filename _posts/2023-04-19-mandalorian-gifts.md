@@ -5,7 +5,7 @@ date: 2023-04-19 00:00:00 +0000
 last-modify-at: 
 permalink: "/mandalorian-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Mandalorian-Gifts-2.jpg"
     alt: "Best Mandalorian Gifts For Fans Of The Epic Star Wars Series"                                

@@ -5,7 +5,7 @@ date: 2023-08-30 00:00:00 +0000
 last-modify-at: 
 permalink: "/police-retirement-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/police-retirement-gifts.jpg"
     alt: "Best Police Retirement Gifts To Buy Online In 2023"                                

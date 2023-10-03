@@ -5,7 +5,7 @@ date: 2023-04-19 00:00:00 +0000
 last-modify-at: 
 permalink: "/rick-and-morty-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/rick-and-morty-gifts.jpg"
     alt: "35 Best Rick And Morty Gifts For Fans That Are Unique And Funny"                                

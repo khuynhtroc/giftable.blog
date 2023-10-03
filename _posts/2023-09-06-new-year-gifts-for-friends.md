@@ -5,7 +5,7 @@ date: 2023-09-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/new-year-gifts-for-friends/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/new-year-gifts-for-friends.jpg"
     alt: "Best New Years Gifts For Friends That They Will Love"                                

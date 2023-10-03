@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/dragon-ball-z-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/dragon-ball-z-gift-fix.jpg"
     alt: "30 Perfect Dragon Ball Z Gifts for Fans That Are Unique And Cool"                                

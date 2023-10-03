@@ -5,7 +5,7 @@ date: 2023-05-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/beach-gifts-mom/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/medium_beach-gifts-for-mom.jpg"
     alt: "Best Beach Gifts For Moms Who Love To Be On Vacation"                                

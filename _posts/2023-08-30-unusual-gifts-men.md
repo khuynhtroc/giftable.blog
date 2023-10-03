@@ -5,7 +5,7 @@ date: 2023-08-30 00:00:00 +0000
 last-modify-at: 
 permalink: "/unusual-gifts-men/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/unusual-gifts-for-men.jpg"
     alt: "Best Unusual Gifts For Men That Will Blow His Mind In 2023"                                

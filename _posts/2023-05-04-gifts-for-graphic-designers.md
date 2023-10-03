@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-graphic-designers/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-graphic-designers.jpg"
     alt: "Design Your Way to Their Heart: 33 Best Gifts for Graphic Designers"                                

@@ -5,7 +5,7 @@ date: 2023-04-18 00:00:00 +0000
 last-modify-at: 
 permalink: "/cinco-de-mayo-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Cinco-De-Mayo-Gifts.jpg"
     alt: "34 Best Cinco de Mayo Gifts To Celebrate the Mexican Heritage"                                

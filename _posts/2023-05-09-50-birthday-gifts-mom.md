@@ -5,7 +5,7 @@ date: 2023-05-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/50-birthday-gifts-mom/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/medium_50th-birthday-gifts-for-mom.jpg"
     alt: "Best 50th Birthday Gifts For Mom To Make Her Feel Special"                                

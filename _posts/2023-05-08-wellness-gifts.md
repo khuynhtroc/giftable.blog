@@ -5,7 +5,7 @@ date: 2023-05-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/wellness-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Wellness-Gifts.jpg"
     alt: "Best Wellness Gifts for Self-Care Lovers That’ll Make Them Happy"                                

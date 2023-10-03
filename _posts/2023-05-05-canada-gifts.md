@@ -5,7 +5,7 @@ date: 2023-05-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/canada-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Canada-Gifts.jpg"
     alt: "34 Meaningful and Unique Canada Gifts For Fans Of This Beautiful Country"                                

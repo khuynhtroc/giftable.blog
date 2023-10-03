@@ -5,7 +5,7 @@ date: 2023-09-05 00:00:00 +0000
 last-modify-at: 
 permalink: "/unique-gifts-grandpa/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/unique-gifts-for-grandpa.jpg"
     alt: "Unique Gifts for Grandpa To Make Him Happy In 2023"                                

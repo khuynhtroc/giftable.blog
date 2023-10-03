@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/octopus-gifts-funny/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Octopus-gifts.jpg"
     alt: "35 Best Octopus Gifts for Those Who Love This Funny Animal"                                

@@ -5,7 +5,7 @@ date: 2023-09-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/christmas-gifts-brothers/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/christmas-gifts-for-brothers.jpg"
     alt: "Best Christmas Gifts for Brothers That He Will Love (2023)"                                

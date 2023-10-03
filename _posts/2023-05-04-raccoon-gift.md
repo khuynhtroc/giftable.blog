@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/raccoon-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Raccoon-Gifts.jpg"
     alt: "35 Best Raccoons Gifts For Those Who Love This Adorable Creature"                                

@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/gift-for-hamster/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Gift-For-Hamster.jpg"
     alt: "Cute Gift For Hamster Owners That Will Make Them Surprise"                                

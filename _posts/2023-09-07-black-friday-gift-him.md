@@ -5,7 +5,7 @@ date: 2023-09-07 00:00:00 +0000
 last-modify-at: 
 permalink: "/black-friday-gift-him/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/black-friday-gifts-for-him.jpg"
     alt: "Best Black Friday Gifts for Him To Buy Online In 2023"                                

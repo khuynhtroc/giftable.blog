@@ -5,7 +5,7 @@ date: 2023-05-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/axolotl-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Axoloth-gifts.jpg"
     alt: "35 Best Axolotl Gifts for Any Occasion That Are Both Fun And Unique"                                

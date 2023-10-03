@@ -5,7 +5,7 @@ date: 2023-04-24 00:00:00 +0000
 last-modify-at: 
 permalink: "/self-care-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/Self-Care-Gifts.jpg"
     alt: "33 Best Self-Care Gifts for Relaxation and Rejuvenation"                                

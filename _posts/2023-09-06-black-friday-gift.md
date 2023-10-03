@@ -5,7 +5,7 @@ date: 2023-09-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/black-friday-gift/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/black-friday-gifts.jpg"
     alt: "Best Black Friday Gifts For the Deals Hunter In 2023"                                

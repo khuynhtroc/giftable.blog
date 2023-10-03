@@ -5,7 +5,7 @@ date: 2023-09-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/handmade-gift-husband/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/handmade-gift-for-husband.jpg"
     alt: "Best Handmade Gift For Husband To Say “I Love You”"                                

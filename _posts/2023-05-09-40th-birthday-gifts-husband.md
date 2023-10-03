@@ -5,7 +5,7 @@ date: 2023-05-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/40th-birthday-gifts-husband/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/medium_40th birthday gift ideas.jpg"
     alt: "Unforgettable 40th Birthday Gift Ideas For Him"                                

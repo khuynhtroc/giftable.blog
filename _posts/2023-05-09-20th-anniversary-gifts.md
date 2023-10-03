@@ -5,7 +5,7 @@ date: 2023-05-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/20th-anniversary-gifts/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/medium_20th anniversary gifts.png"
     alt: "Best 20th Anniversary Gifts for Wife to Show How Much Your Love Is"                                

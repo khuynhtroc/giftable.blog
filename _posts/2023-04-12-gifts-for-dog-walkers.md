@@ -5,7 +5,7 @@ date: 2023-04-12 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-dog-walkers/"
 categories:
-tags:
+tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-dog-walkers.jpg"
     alt: "35 Best Gifts For Dog Walkers That’ll Show Your Appreciation"                                
