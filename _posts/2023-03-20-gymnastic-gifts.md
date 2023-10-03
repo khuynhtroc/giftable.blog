@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 ---
 title: "35 Perfect Gymnastic Gifts for the Gymnast in Your Life"
 description: "Gymnastics-themed gifts are a great way to show support and appreciation for gymnasts. From practical training gear to stylish accessories, there are plenty of options available for those looking to give a gymnastics-themed gift."
@@ -10,3 +11,6 @@ image:
     path: "/assets/img/post/2023/09/copied/Gymnastic-Gifts-fix.jpg"
     alt: "35 Perfect Gymnastic Gifts for the Gymnast in Your Life"                                
 --- 
+=======
+null 
+>>>>>>> parent of dc4d45b (Darius: update)

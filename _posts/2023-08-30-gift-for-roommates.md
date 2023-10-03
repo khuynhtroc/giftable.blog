@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 ---
 title: "35 Best Gifts for Roommates on Any Occasions"
 description: "Living with roommates can be an enriching experience, as you share moments of laughter, support, and camaraderie in your daily lives. So, we believe that choosing the right gifts for roommates is an opportunity to strengthen these connections and create lasting memories in your shared home."
@@ -10,3 +11,6 @@ image:
     path: "/assets/img/post/2023/09/copied/gifts-for-roomates.jpg"
     alt: "35 Best Gifts for Roommates on Any Occasions"                                
 ---   
+=======
+null 
+>>>>>>> parent of dc4d45b (Darius: update)

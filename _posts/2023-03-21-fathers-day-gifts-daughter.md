@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 ---
 title: "35 Heartwarming Father’s Day Gifts from Daughter"
 description: "Different from motherly love, fatherly love is very great but it is often expressed indirectly way. Father’s is coming, and don’t miss this time to give your dad some gifts."
@@ -10,3 +11,6 @@ image:
     path: "/assets/img/post/2023/09/copied/Fathers-Day-Gifts-From-Daughter-2.jpg"
     alt: "35 Heartwarming Father’s Day Gifts from Daughter"                                
 ---   
+=======
+null 
+>>>>>>> parent of dc4d45b (Darius: update)
