@@ -30,8 +30,8 @@ url: ""
 
 allow_search_engine: false
 
-github:
-  username: # change to your github username
+# github:
+#   username: # change to your github username
 
 twitter:
   username: giftable.blog # change to your twitter username
