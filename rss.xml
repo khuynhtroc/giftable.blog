@@ -1,0 +1,38 @@
+---
+layout: null
+---
+<?xml version="1.0" encoding="UTF-8"?>
+<rss version="2.0"
+	xmlns:content="http://purl.org/rss/1.0/modules/content/"
+	xmlns:wfw="http://wellformedweb.org/CommentAPI/"
+	xmlns:dc="http://purl.org/dc/elements/1.1/"
+	xmlns:atom="http://www.w3.org/2005/Atom"
+	xmlns:sy="http://purl.org/rss/1.0/modules/syndication/"
+	xmlns:slash="http://purl.org/rss/1.0/modules/slash/"
+	>
+
+<channel>
+	<title>Giftable</title>
+	<atom:link href="{{ site.url }}/rss" rel="self" type="application/rss+xml" />
+	<link>{{ site.url }}</link>
+	<description>by Giftable</description>
+	<lastBuildDate>Sat, 02 Sep 2023 05:15:00 +0000</lastBuildDate>
+	<language>en-US</language>
+	<sy:updatePeriod>hourly</sy:updatePeriod>
+	<sy:updateFrequency>1</sy:updateFrequency>
+	<generator>{{ site.url }}</generator>
+	{% for post in site.posts limit:30 %}
+	<item>
+		<title>{{ post.title }}</title>
+		<link>{{ site.url }}{{ post.url }}</link>
+		<pubDate>{{ post.date | date_to_xmlschema }}</pubDate>
+		<dc:creator><![CDATA[sam]]></dc:creator>
+		<category><![CDATA[magento 2]]></category>
+		<guid isPermaLink="false">{{ site.url }}{{ post.id }}</guid>
+		<description><![CDATA[{{ post.excerpt | xml_escape }}]]></description>
+		<content><![CDATA[{{ post.content | xml_escape }}]]></content>
+	</item>
+	{% endfor %}
+
+</channel>
+</rss>
