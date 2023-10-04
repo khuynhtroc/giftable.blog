@@ -4,7 +4,7 @@ description: "It is never simple because, as we all know, some ladies are too ha
 date: 2023-01-30 00:00:00 +0000
 last-modify-at: 
 permalink: "/luxury-valentines-gifts-for-her/"
-categories: Occasions Valentine
+categories: [Occasions, Valentine]
 tags: gifts
 image:
     path: "/assets/img/post/2023/09/copied/luxury-valentines-gifts-for-her.jpg"
