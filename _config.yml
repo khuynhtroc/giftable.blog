@@ -75,7 +75,7 @@ theme_mode: # [light|dark]
 img_cdn:
 
 # the avatar on sidebar, support local or CORS resources
-avatar: assets/img/logo_giftable_fullsize.png
+avatar: assets/img/Logo-giftable.jpg
 
 # boolean type, the global switch for TOC in posts.
 toc: true
