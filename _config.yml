@@ -13,7 +13,7 @@ baseurl: ""
 lang: en
 
 # Change to your timezone › https://kevinnovak.github.io/Time-Zone-Picker
-timezone: Asia/Shanghai
+timezone: America/New_York
 
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
@@ -23,7 +23,7 @@ title: Giftable # the main title
 tagline: Life is short. Time is fast. So enjoy every moment as it comes. # it will display as the sub-title
 
 description: >- # used by seo meta and the atom feed
-  Giftable - Gift Hub
+  Giftable - Gift Hub. As soon as you find that perfect birthday gift, you need to start looking for your cousin's anniversary gift. It doesn't stop. Well, neither do we. Finally, a gifting website that doesn't suck.
 
 # fill in the protocol & hostname for your site, e.g., 'https://username.github.io'
 url: ""
