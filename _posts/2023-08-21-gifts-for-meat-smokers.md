@@ -25,7 +25,7 @@ The Droyek cocktail smoker kit comes with everything they need to get started: a
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Whiskey-Torch%EF%BC%8CDroyek-Exquisite-Packaging-Bourbon/dp/B0BNNBZXS9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Droyek-Cocktail-Smoker-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Whiskey-Torch%EF%BC%8CDroyek-Exquisite-Packaging-Bourbon/dp/B0BNNBZXS9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Droyek-Cocktail-Smoker-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -44,7 +44,7 @@ This charcoal smoker comes with a cover and offers a cooking experience like no 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Weber-711001-Mountain-14-Inch-Charcoal/dp/B00FKE67V2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Weber-Smokey-Mountain-Cooker.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Weber-711001-Mountain-14-Inch-Charcoal/dp/B00FKE67V2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Weber-Smokey-Mountain-Cooker.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -64,7 +64,7 @@ The pellets are easy to use, requiring no soaking with just 1/3 cup of pellets n
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/BBQrs-Delight-Wood-Smoking-Pellets/dp/B00L2AD8D8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wood-Smoking-Pellets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/BBQrs-Delight-Wood-Smoking-Pellets/dp/B00L2AD8D8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wood-Smoking-Pellets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -84,7 +84,7 @@ Made with comfort and quality in mind, this t-shirt comes in a range of colors a
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Great-Gift-BBQ-Smoker-Retro/dp/B07LCBNSGW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Vintage-My-Meat-Smoking-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Great-Gift-BBQ-Smoker-Retro/dp/B07LCBNSGW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Vintage-My-Meat-Smoking-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -103,7 +103,7 @@ Each bottle in this collection is inspired by different strains and infused with
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.uncommongoods.com/product/add-your-own-herbs-edible-hot-sauce" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Add-Your-Own-Herbs-Edible-Hot-Sauce.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.uncommongoods.com/product/add-your-own-herbs-edible-hot-sauce" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Add-Your-Own-Herbs-Edible-Hot-Sauce.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -123,7 +123,7 @@ This versatile gift set goes beyond the grill and can be utilized in the kitchen
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Culinary-Natives-BBQ-Heat-Resistant-Accessories/dp/B07MR6JQJT/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/BBQ-Heat-Resistant-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Culinary-Natives-BBQ-Heat-Resistant-Accessories/dp/B07MR6JQJT/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/BBQ-Heat-Resistant-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -143,7 +143,7 @@ The set includes a spatula, fork, tongs, and cleaning brush, providing all the r
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="http://amazon.com/MAGIC-FLAME-Accessories-Grilling-Stainless/dp/B09722231N/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/BBQ-Grill-Stainless-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="http://amazon.com/MAGIC-FLAME-Accessories-Grilling-Stainless/dp/B09722231N/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/BBQ-Grill-Stainless-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -162,7 +162,7 @@ Crafted from 100% food-grade and premium anti-rust culinary stainless steel, the
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Premium-Meat-Injector-Kit-Stainless/dp/B07S93MXPQ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Premium-Meat-Injector-Kit-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Premium-Meat-Injector-Kit-Stainless/dp/B07S93MXPQ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Premium-Meat-Injector-Kit-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -182,7 +182,7 @@ With clear temperature guidelines for pork, beef, chicken, and fish, they'll nev
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/771356250/animal-temperature-magnets-set-of-4-sale" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Animal-Temperature-Magnets-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/771356250/animal-temperature-magnets-set-of-4-sale" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Animal-Temperature-Magnets-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -201,7 +201,7 @@ With the Govee Home App, they can access a range of USDA-recommended temperature
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Govee-Thermometer-Bluetooth-Wireless-Grilling/dp/B08317TDP1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Bluetooth-Meat-Thermometer.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Govee-Thermometer-Bluetooth-Wireless-Grilling/dp/B08317TDP1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Bluetooth-Meat-Thermometer.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -220,7 +220,7 @@ Its retro and noble design adds a touch of sophistication to any gathering. With
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Cocktail-Kit-Skull-Chips-Old-Fashioned-Cocktails/dp/B0BK8H48V9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Skull-Cocktail-Smoker-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Cocktail-Kit-Skull-Chips-Old-Fashioned-Cocktails/dp/B0BK8H48V9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Skull-Cocktail-Smoker-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -240,7 +240,7 @@ This must-have kitchen and BBQ tool ensures safe and healthy cooking with its 30
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Injector-Professional-Marinade-Capacity-Including/dp/B08R7FBV64/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/BBQ-Monster-Meat-Injector-Syringe-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Injector-Professional-Marinade-Capacity-Including/dp/B08R7FBV64/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/BBQ-Monster-Meat-Injector-Syringe-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -260,7 +260,7 @@ This set offers a unique and explosive collection of seven signature seasonings.
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1042237006/sampler-pack-seasonings-rubs-spice" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Seasonings-Sampler-Pack-960x954.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1042237006/sampler-pack-seasonings-rubs-spice" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Seasonings-Sampler-Pack-960x954.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -280,7 +280,7 @@ The set includes heat-resistant silicone grilling gloves, durable shredding claw
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/AMZ-BBQ-CLUB-Accessories-Orange-Plastic-5-Piece/dp/B06X3RCW37/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Barbecue-Accessories-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/AMZ-BBQ-CLUB-Accessories-Orange-Plastic-5-Piece/dp/B06X3RCW37/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Barbecue-Accessories-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -300,7 +300,7 @@ No more need to check their phone or rely on memory - these meat temp magnet smo
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Levain-Co-Temperature-Magnet-Smoker/dp/B09XJCG3FP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Meat-Temperature-Magnet-BBQ-Guide.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Levain-Co-Temperature-Magnet-Smoker/dp/B09XJCG3FP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Meat-Temperature-Magnet-BBQ-Guide.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -319,7 +319,7 @@ It features a juice groove, non-slip rubber feet, and serving handles for added 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/857699316/traeger-yoder-green-mountain-compatible" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Cutting-Board-960x721.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/857699316/traeger-yoder-green-mountain-compatible" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Custom-Cutting-Board-960x721.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -338,7 +338,7 @@ Crafted from 100% food-grade silicone, this basting brush is not only safe but a
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Basting-Brush-Cooking-Built-Bottle/dp/B09R977HVF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Silicone-Basting-Brush-for-Cooking.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Basting-Brush-Cooking-Built-Bottle/dp/B09R977HVF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Silicone-Basting-Brush-for-Cooking.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -358,7 +358,7 @@ These gloves are designed with the pit master in mind, featuring a non-slip five
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/RAPICCA-Barbecue-Waterproof-Resistant-Fireproof/dp/B0748DCDGC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Heat-Resistant-BBQ-Gloves.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/RAPICCA-Barbecue-Waterproof-Resistant-Fireproof/dp/B0748DCDGC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Heat-Resistant-BBQ-Gloves.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -378,7 +378,7 @@ Compatible with Green Egg Smoker and electric charcoal starter smoker accessorie
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Zorestar-Smokers-Variety-Smoking-Grilling/dp/B07G184JWF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Zorestar-Wood-Chips-for-Smoker.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Zorestar-Smokers-Variety-Smoking-Grilling/dp/B07G184JWF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Zorestar-Wood-Chips-for-Smoker.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -398,7 +398,7 @@ What sets this t-shirt apart is its versatility. It's perfect for casual wear an
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Funny-Pitmaster-Shirt-Smoker-T-Shirt/dp/B08HRLKFRK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/I-Smoke-Meat-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Funny-Pitmaster-Shirt-Smoker-T-Shirt/dp/B08HRLKFRK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/I-Smoke-Meat-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -418,7 +418,7 @@ Made from natural and organic trees, these wood chips are chemical-free, ensurin
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Natual-Wood-Chips-Smoker-Gift/dp/B0963TVJWF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Natural-Wood-Chips-for-Smoker-960x645.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Natual-Wood-Chips-Smoker-Gift/dp/B0963TVJWF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Natural-Wood-Chips-for-Smoker-960x645.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -437,7 +437,7 @@ Grillie allows them to barbecue a wide variety of foods that were once challengi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1240291345/mygrillie-2-pack" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/22DONE-in-ONE22-Grillie-960x826.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1240291345/mygrillie-2-pack" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/22DONE-in-ONE22-Grillie-960x826.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -456,7 +456,7 @@ No more wires or guesswork, thanks to its wireless and guided cook system that e
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/MEATER-Thermometer-Rotisserie-Bluetooth-Connectivity/dp/B07H8WTFHW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wireless-Smart-Meat-Thermometer-1.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/MEATER-Thermometer-Rotisserie-Bluetooth-Connectivity/dp/B07H8WTFHW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wireless-Smart-Meat-Thermometer-1.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -475,7 +475,7 @@ Inside the cookbook, they can discover the fundamentals of wood pellet grilling 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Traeger-Grill-Bible-Traeger-Grillmaster/dp/1802602755/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/22Traeger-Grill-Bible22-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Traeger-Grill-Bible-Traeger-Grillmaster/dp/1802602755/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/22Traeger-Grill-Bible22-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -495,7 +495,7 @@ With a sturdy stainless steel construction, these baskets are designed to withst
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Modern-Innovations-Vegetable-Hamburger-Vegetables/dp/B0BCL58FK1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Heavy-Duty-Vegetable-Grill-Baskets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Modern-Innovations-Vegetable-Hamburger-Vegetables/dp/B0BCL58FK1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Heavy-Duty-Vegetable-Grill-Baskets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -515,7 +515,7 @@ Packed with top-notch grilling accessories, including a smoker box that keeps as
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Cooking-Gift-Set-Smoker-Birthday/dp/B01DVJ66H2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wood-Smoked-BBQ-Grill-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Cooking-Gift-Set-Smoker-Birthday/dp/B01DVJ66H2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wood-Smoked-BBQ-Grill-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -534,7 +534,7 @@ Packaged in a charming burlap bag or a convenient box, you have two options to c
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1054465588/smoker-accessories-grill-big-green-egg" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Whiskey-Barrel-Smoker-Chips-960x804.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1054465588/smoker-accessories-grill-big-green-egg" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Whiskey-Barrel-Smoker-Chips-960x804.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -553,7 +553,7 @@ The set's safety and durability make it a reliable choice, with stainless steel 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Piece-Ultimate-Grill-Smoker-Set/dp/B074HN9G45/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/8-Piece-Smoker-BBQ-Tool-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Piece-Ultimate-Grill-Smoker-Set/dp/B074HN9G45/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/8-Piece-Smoker-BBQ-Tool-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -573,7 +573,7 @@ This premium slicing knife is designed to make carving and slicing brisket, turk
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Cutluxe-Slicing-Carving-Knife-Ergonomic/dp/B07VLW8677/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cutluxe-Slicing-Carving-Knife.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Cutluxe-Slicing-Carving-Knife-Ergonomic/dp/B07VLW8677/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Cutluxe-Slicing-Carving-Knife.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -592,7 +592,7 @@ With its 32 fluid ounces large capacity and airtight lid, no more frequent refil
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/WEQUALITY-Replaceable-Set%EF%BC%8CGrill-Accessories%EF%BC%8CFathers-Dad%EF%BC%8CPremium/dp/B09NXY5P63/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Basting-Pot-with-Replaceable-Brush-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/WEQUALITY-Replaceable-Set%EF%BC%8CGrill-Accessories%EF%BC%8CFathers-Dad%EF%BC%8CPremium/dp/B09NXY5P63/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Basting-Pot-with-Replaceable-Brush-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -612,7 +612,7 @@ This amazing gadget allows them to infuse natural smoke flavor into meat, cheese
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Smoking-Gun-Portable-Infuser-Cocktails/dp/B07MZF9ZYM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Smoking-Gun-960x623.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Smoking-Gun-Portable-Infuser-Cocktails/dp/B07MZF9ZYM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Smoking-Gun-960x623.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -631,7 +631,7 @@ Each package contains premium wood pellets, carefully crafted from top-grade woo
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Zorestar-Smoker-Pellets-Variety-Pack/dp/B095V61NNS/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/All-Natural-Wood-Smoking-Pellet-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Zorestar-Smoker-Pellets-Variety-Pack/dp/B095V61NNS/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/All-Natural-Wood-Smoking-Pellet-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -651,7 +651,7 @@ With its 8x4" sturdy iron base, it's designed to press steaks and meats flat on 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1414771294/personalized-custom-name-initials-cast" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Name-Steak-Weight-960x763.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1414771294/personalized-custom-name-initials-cast" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Custom-Name-Steak-Weight-960x763.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -671,7 +671,7 @@ Each container holds 19.2 oz of pure flavor, perfect for grilling enthusiasts to
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Rub-Your-Butt-Championship-Seasoning/dp/B00MYH4JS6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Championship-BBQ-Seasoning-Gift-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Rub-Your-Butt-Championship-Seasoning/dp/B00MYH4JS6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Championship-BBQ-Seasoning-Gift-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -691,7 +691,7 @@ The set includes a range of premium-quality natural spices sourced from differen
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/TAILGATE-Pitmaster-Seasonings-Essentials-Competition/dp/B098PDVQPW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Rare-Pitmaster-Gourmet-Seasonings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/TAILGATE-Pitmaster-Seasonings-Essentials-Competition/dp/B098PDVQPW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Rare-Pitmaster-Gourmet-Seasonings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
