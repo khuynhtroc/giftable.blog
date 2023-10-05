@@ -11,11 +11,11 @@ image:
     alt: "Best Gifts For Realtors to Say Thanks After Closing"                                
 ---   
 
-Realtors are the unsung heroes of the property market, tirelessly guiding us through the exciting journey of buying or selling a home. A carefully chosen gift speaks volumes, **[expressing gratitude](https://avada.io/loveable/thank-you-gifts-ideas/)** for their dedication and expertise throughout the process.
+Realtors are the unsung heroes of the property market, tirelessly guiding us through the exciting journey of buying or selling a home. A carefully chosen gift speaks volumes, **[expressing gratitude](/thank-you-gifts-ideas/)** for their dedication and expertise throughout the process.
 
 Whether it's a stunning keepsake for their office, a personalized item that reflects their passion, or a practical tool to ease their daily endeavors, each gift becomes a cherished reminder of a job well done. The emotion of the realtor when they unwrap your thoughtful present is truly priceless – it deepens the bond between you and your real estate partner, making them more than just a professional you hired, but rather a friend who genuinely cares about your dreams.
 
-Choose from our handpicked selection of gifts for realtors, and let us help you create a lasting impact that will be cherished for years to come. **[Celebrate their hard work](https://avada.io/loveable/work-anniversary-gifts/)**, dedication, and unwavering commitment with a gift that says it all – thank you for being the guiding force behind our real estate journey.
+Choose from our handpicked selection of gifts for realtors, and let us help you create a lasting impact that will be cherished for years to come. **[Celebrate their hard work](/work-anniversary-gifts/)**, dedication, and unwavering commitment with a gift that says it all – thank you for being the guiding force behind our real estate journey.
 
 ### [1\. Generic Real Estate Business Card Holder Display](https://www.amazon.com/Generic-Estate-Business-Display-Realtor/dp/B0979X1V1B/)
 
@@ -25,7 +25,7 @@ This mini "SOLD" sign design adds a touch of charm to your office space, while e
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Generic-Estate-Business-Display-Realtor/dp/B0979X1V1B/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Generic-Real-Estate-Business-Card-Holder-Display.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Generic-Estate-Business-Display-Realtor/dp/B0979X1V1B/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Generic-Real-Estate-Business-Card-Holder-Display.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -44,7 +44,7 @@ This 120-page notepad, elegantly designed in black and white, measures 8.5 X 11 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Supplies-Realtor-Showings-Activity-Notepad/dp/B088XQRX8T/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Home-Buyer-Client-Log.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Supplies-Realtor-Showings-Activity-Notepad/dp/B088XQRX8T/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Home-Buyer-Client-Log.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -63,7 +63,7 @@ This unique gift boasts the quote "Everything I Touch Turns To Sold," inspiring 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/JennyGems-Everything-Estate-Broker-Office/dp/B07W7KN21C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Real-Estate-Plaque-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/JennyGems-Everything-Estate-Broker-Office/dp/B07W7KN21C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Real-Estate-Plaque-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -82,7 +82,7 @@ Printed on premium matte archival Red River paper with ChromaLife100+ inks, this
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Housewarming-Family-Established-Framed-Realtor/dp/B06WW97XMG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Map-Art-New-Home-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Housewarming-Family-Established-Framed-Realtor/dp/B06WW97XMG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Personalized-Map-Art-New-Home-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -101,7 +101,7 @@ With laser precision technology, this tool boasts high accuracy up to ±1/16 inc
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Measure-DTAPE-switching-Pythagorean-Distance/dp/B07VV55Q7F/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Portable-Handle-Digital-Measure-Tool.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Measure-DTAPE-switching-Pythagorean-Distance/dp/B07VV55Q7F/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Portable-Handle-Digital-Measure-Tool.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -120,7 +120,7 @@ The inscription "I Don’t Sell Homes I Change Lives" conveys the profound impac
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Keychain-Appreciation-Salesperson-Graduation-Christmas/dp/B09ZKYJL1J/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Keychain-Thank-You-Gifts-for-Realtor.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Keychain-Appreciation-Salesperson-Graduation-Christmas/dp/B09ZKYJL1J/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Keychain-Thank-You-Gifts-for-Realtor.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -139,7 +139,7 @@ Crafted with top-notch quality, this mug is also printed on both sides makes it 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Realtor-Closers-Novelty-Employee-Coworkers/dp/B078TNG6ND/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Tactical-Realtor-Coffee-Mug.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Realtor-Closers-Novelty-Employee-Coworkers/dp/B078TNG6ND/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Tactical-Realtor-Coffee-Mug.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -158,7 +158,7 @@ The portfolio features a lined notepad, generously sized at 8.5x11.75 inches. Cr
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248239574/personalized-refillable-portfolio-custom" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Leather-Refillable-Portfolio.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248239574/personalized-refillable-portfolio-custom" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Personalized-Leather-Refillable-Portfolio.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -177,7 +177,7 @@ Its drawstring setting ensures ease of use. Crafted from 100% natural linen, thi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Housewarming-Homeowner-Realtor-Congrats-Decorations/dp/B09YGPSNS6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wine-Gift-Bags-Realtor-Gift-to-Clients.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Housewarming-Homeowner-Realtor-Congrats-Decorations/dp/B09YGPSNS6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wine-Gift-Bags-Realtor-Gift-to-Clients.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -196,7 +196,7 @@ This sleek stainless steel bottle holds 32oz of water and is equipped with a bui
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Brita-Stainless-Filter-Bottle-Carbon/dp/B08FSBZK82/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Insulated-Filtered-Water-Bottle-with-Straw.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Brita-Stainless-Filter-Bottle-Carbon/dp/B08FSBZK82/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Insulated-Filtered-Water-Bottle-with-Straw.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -215,7 +215,7 @@ It is crafted with care and laser-engraved with customizable monograms or heartw
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Tayfus-Personalized-Monogrammed-Cutting-Boards/dp/B0BNY5ZNYN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Monogrammed-Cutting-Boards.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Tayfus-Personalized-Monogrammed-Cutting-Boards/dp/B0BNY5ZNYN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Personalized-Monogrammed-Cutting-Boards.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -234,7 +234,7 @@ With its adjustable brass buckle closure, it fits head circumferences from 21.6 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/LOKIDVE-Realtor-Baseball-Adjustable-Distressed/dp/B08XXLBQXW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Washed-Cotton-Distressed-Realtor-Cap.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/LOKIDVE-Realtor-Baseball-Adjustable-Distressed/dp/B08XXLBQXW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Washed-Cotton-Distressed-Realtor-Cap.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -253,7 +253,7 @@ Laser engraved with a personalized touch, this holder exudes professionalism and
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.etsy.com/listing/717694075/leather-business-card-holder" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Monogrammed-Business-Card-Holder.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.etsy.com/listing/717694075/leather-business-card-holder" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Monogrammed-Business-Card-Holder.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -272,7 +272,7 @@ With a long-lasting burn time of 110 to 150 hours, this 22-ounce candle crafted 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/dp/B007FSDIJA/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Apple-Scented-Single-Wick-Candle.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/dp/B007FSDIJA/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Apple-Scented-Single-Wick-Candle.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -291,7 +291,7 @@ This leather-bound notebook boasts a sturdy faux leather cover. The premium qual
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/WHLBHG-Realtor-Leather-Notebook-Appreciation/dp/B0BVFPB7DW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Real-Estate-Agent-Leather-Journal-Notebook.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/WHLBHG-Realtor-Leather-Notebook-Appreciation/dp/B0BVFPB7DW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Real-Estate-Agent-Leather-Journal-Notebook.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -310,7 +310,7 @@ This set includes 24 heartwarming cards, each with a special message and ample s
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Hat-Acrobat-Home-Congratulations-Envelopes/dp/B09MD3VK4X/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/New-Home-Greeting-Cards-Set-1.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Hat-Acrobat-Home-Congratulations-Envelopes/dp/B09MD3VK4X/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/New-Home-Greeting-Cards-Set-1.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -329,7 +329,7 @@ The key and house-shaped signs, adorned with phrases like 'sold,' 'home sweet ho
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/SweetMind-Double-Sided-Address-Closing-Homeowner/dp/B09F315R7P/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wooden-Home-Key-Shaped-Closing-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/SweetMind-Double-Sided-Address-Closing-Homeowner/dp/B09F315R7P/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wooden-Home-Key-Shaped-Closing-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -348,7 +348,7 @@ This fantastic gift includes 300 caption cards, 75 photo cards, an easel for dis
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/What-Meme-Real-Estate-Agents/dp/B08PQ2LQFF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Card-Games-Real-Estate-Agents-Edition.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/What-Meme-Real-Estate-Agents/dp/B08PQ2LQFF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Card-Games-Real-Estate-Agents-Edition.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -367,7 +367,7 @@ It is crafted from 100% natural Italian Marble and Acacia Wood. Engraved with yo
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.etsy.com/listing/1332142411/personalized-realtor-gift-for-client" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Marble-and-Wood-Charcuterie-Board.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.etsy.com/listing/1332142411/personalized-realtor-gift-for-client" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Marble-and-Wood-Charcuterie-Board.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -386,7 +386,7 @@ Engraved with the meaningful inscription "Our First Home 2023," this keychain se
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Keychain-Housewarming-Friends-Homeowner-Coworker/dp/B09W56RR53/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Our-First-Home-Keychain-Set.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Keychain-Housewarming-Friends-Homeowner-Coworker/dp/B09W56RR53/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Our-First-Home-Keychain-Set.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -405,7 +405,7 @@ With 25 double-sided 4x6 inch postcards, these cards serve as more than just mov
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Kraft-Change-Address-Postcards-Announcements/dp/B0C3T9LPPP/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Change-Of-Address-Postcards.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Kraft-Change-Address-Postcards-Announcements/dp/B0C3T9LPPP/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Change-Of-Address-Postcards.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -424,7 +424,7 @@ Crafted with premium top grain wood, this board comes in two luxurious wood type
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/634588197/housewarming-gift-new-home-gift" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Cutting-Board-New-Home-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/634588197/housewarming-gift-new-home-gift" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Personalized-Cutting-Board-New-Home-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -443,7 +443,7 @@ This unique gift boasts a plethora of benefits, including an eco-conscious zero-
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1094902614/cozy-home-gifts-eco-friendly" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Realtor-Closing-Gift-Box.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1094902614/cozy-home-gifts-eco-friendly" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Realtor-Closing-Gift-Box.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -462,7 +462,7 @@ This cheese board gift set comes with a hidden drawer housing cheese knives and 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wooden-Appetizer-Cheese-Platter.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wooden-Appetizer-Cheese-Platter.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -481,7 +481,7 @@ This delightful basket is a collection of 7 special and practical items, includi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Birthday-Appreciation-Coworkers-Employee-Lavender/dp/B0C69DGJ18/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Bright-Yellow-Thank-You-Gift-Basket-.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Birthday-Appreciation-Coworkers-Employee-Lavender/dp/B0C69DGJ18/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Bright-Yellow-Thank-You-Gift-Basket-.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -500,7 +500,7 @@ With its high-quality double wall vacuum insulation, this large stainless steel 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Rogue-River-Tactical-Stainless-Salesperson/dp/B0BTWJGWSY/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Black-Funny-Salesman-Coffee.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Rogue-River-Tactical-Stainless-Salesperson/dp/B0BTWJGWSY/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Black-Funny-Salesman-Coffee.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -519,7 +519,7 @@ This unique mug is adorned with golden words and equipped with a spoon and lid, 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/YHRJWN-Inspirational-Birthday-Appreciation-Assistant/dp/B09W4RLSF1/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Thank-You-for-Being-Awesome-Mug.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/YHRJWN-Inspirational-Birthday-Appreciation-Assistant/dp/B09W4RLSF1/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Thank-You-for-Being-Awesome-Mug.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -538,7 +538,7 @@ This stunning bracelet bears the inscription "I Don't Sell House I Change Lives"
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Realtor-Estate-Appreciation-Change-Silver/dp/B08CRPZ75D/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Real-Estate-Agent-Appreciation-Bracelet-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Realtor-Estate-Appreciation-Change-Silver/dp/B08CRPZ75D/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Real-Estate-Agent-Appreciation-Bracelet-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -557,7 +557,7 @@ Crafted from durable canvas with sturdy shoulder straps, these bags offer except
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/TSOTMO-Realtor-Estate-Marketing-Survival-Kit/dp/B09W5QHLZB/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Realtor-Tote-Bag-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/TSOTMO-Realtor-Estate-Marketing-Survival-Kit/dp/B09W5QHLZB/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Realtor-Tote-Bag-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -576,7 +576,7 @@ Available in sleek All White, All Black, or Color Handle options (11oz & 15oz), 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1143066422/realtor-mug-realtor-gift-real-estate" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Coffee-Contracts-And-Closings-Realtor-Mug.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1143066422/realtor-mug-realtor-gift-real-estate" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Coffee-Contracts-And-Closings-Realtor-Mug.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -595,7 +595,7 @@ Its charm lies in the engraved message, "Realtor because badass miracle worker i
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Realtor-Miracle-Worker-Novelty-Keychain/dp/B07X545X6L/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Real-Estate-Closing-Gifts-Keychain.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Realtor-Miracle-Worker-Novelty-Keychain/dp/B07X545X6L/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Real-Estate-Closing-Gifts-Keychain.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -614,7 +614,7 @@ This exquisite pen set is meticulously crafted from premium wood. With its broad
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Personalized-pen-sets-for-Realtors/dp/B01N91IAXB/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Pen-Sets-for-Realtors.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Personalized-pen-sets-for-Realtors/dp/B01N91IAXB/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Personalized-Pen-Sets-for-Realtors.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -633,7 +633,7 @@ Measuring 18 x 18 inches, this square throw pillow cover is the perfect addition
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Housewarming-Personalized-Warming-Pillowcase-Realtor/dp/B0BJ6BJML9/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/New-Home-Pillowcase-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Housewarming-Personalized-Warming-Pillowcase-Realtor/dp/B0BJ6BJML9/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/New-Home-Pillowcase-Gift.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -652,7 +652,7 @@ This beautifully crafted sign, measuring approximately 8"x10". Its inspirational
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Realtor-Amazing-Appreciation-Retirement-Coworkers/dp/B0BRS6CXD4/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wooden-Hanging-Sign-Leaving-Appreciation-Retirement-Gifts.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Realtor-Amazing-Appreciation-Retirement-Coworkers/dp/B0BRS6CXD4/" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Wooden-Hanging-Sign-Leaving-Appreciation-Retirement-Gifts.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
@@ -671,7 +671,7 @@ Packed with two jars of delectable honey, natural handmade soaps, nourishing bee
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/698582894/real-estate-closing-gift-new-home-gift" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Welcome-Home-Gift-Basket.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/698582894/real-estate-closing-gift-new-home-gift" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230601/Welcome-Home-Gift-Basket.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
      <i>Pros</i><br><br>
