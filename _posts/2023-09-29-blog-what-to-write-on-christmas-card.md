@@ -343,7 +343,7 @@ Here are some simple tips to make sending Christmas cards more fun:
 
 5.  Get some help – Ask family members to help address cards or sign their names. Even young kids can draw pictures, making it more enjoyable for all. Offering [Christmas cookies](/christmas-cookies/) can motivate more help addressing envelopes. Having extra hands makes sending cards faster and more festive.
 
-**To wrap up,**
+**To wrap up**
 ---------------
 
 Don’t know **what to write on a Christmas card**? You should feel ready to write a Christmas message that’s perfect for each person using the ideas given and your own creative ideas.
