@@ -248,7 +248,7 @@ A fascinating combination of engineering and seasonal pleasure is the Christmas 
 ![LEGO Santa sleigh
 ](https://storage.googleapis.com/loveable.appspot.com/blog/uploads/2023/09/24165238/LEGO-Santa-Sleigh-960x960.jpg)
 
-Build a small replica of Santa Claus’ famous sleigh with the help of the endearing holiday-themed kit, the LEGO Santa sleigh. This festive set often comes with a well-detailed sleigh with runners, presents, and a seat for Santa. It brings the excitement and magic of the season to life one block at a time, making it the ideal addition to your decor or a lovely [gift for LEGO fans](https://avada.io/loveable/gifts-lego-lovers/).
+Build a small replica of Santa Claus’ famous sleigh with the help of the endearing holiday-themed kit, the LEGO Santa sleigh. This festive set often comes with a well-detailed sleigh with runners, presents, and a seat for Santa. It brings the excitement and magic of the season to life one block at a time, making it the ideal addition to your decor or a lovely [gift for LEGO fans](/gifts-lego-lovers/).
 
 #### **6.** **Edible stained glass candy**
 
@@ -300,7 +300,7 @@ Including a DIY STEM catapult activity into the Christmas season is a terrific i
 ![Count and clip Christmas light cards
 ](https://storage.googleapis.com/loveable.appspot.com/blog/uploads/2023/09/24165836/Christmas-Counting.jpg)
 
-Introducing clip and count Christmas lights cards – a delightful and educational activity for young learners. Kids get to count the lights on each card using small clips or clothespins, connecting them to the matching numbers. You and your loved one can also make it more attractive with many meaningful [Christmas card quotes](https://avada.io/loveable/blog/christmas-card-quotes/).
+Introducing clip and count Christmas lights cards – a delightful and educational activity for young learners. Kids get to count the lights on each card using small clips or clothespins, connecting them to the matching numbers. You and your loved one can also make it more attractive with many meaningful [Christmas card quotes](/blog/christmas-card-quotes/).
 
 **How to make [clip and count Christmas lights cards](https://taminglittlemonsters.com/count-and-clip-christmas-lights/)**
 
