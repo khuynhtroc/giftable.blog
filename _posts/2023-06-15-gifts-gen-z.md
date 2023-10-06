@@ -5,7 +5,7 @@ date: 2023-06-15 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-gen-z/"
 categories: Interests Popular
-tags: gift gen z
+tags: gift genz z
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-Gen-Z.jpg"
     alt: "35 Best Gifts for Gen Z In Your Life That They Really Want"                                
@@ -25,7 +25,7 @@ With their sleek design and UV400 lenses, these sunglasses shield your eyes from
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/SOJOS-Vintage-Sunglasses-Goggles-Plactic/dp/B078J87N65/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Cat-Eye-Sunglasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/SOJOS-Vintage-Sunglasses-Goggles-Plactic/dp/B078J87N65/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Cat-Eye-Sunglasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -44,7 +44,7 @@ Its innovative insulation technology keeps your drinks at the perfect temperatur
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Tumbler-Stainless-Insulated-Cleaning-Beverages/dp/B08396NTPV/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Insulated-Tumbler.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Tumbler-Stainless-Insulated-Cleaning-Beverages/dp/B08396NTPV/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Insulated-Tumbler.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -63,7 +63,7 @@ This insightful read goes beyond the surface to uncover the hidden benefits that
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/What-Would-Gen-Z-Do-Everything/dp/1641707364/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Gen-Z-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/What-Would-Gen-Z-Do-Everything/dp/1641707364/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Gen-Z-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -82,7 +82,7 @@ In this Snacks Gift Set, you'll discover various tasty treats, ranging from trad
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Japanese-Candy-Dagashi-Snacks-Gum/dp/B07CGPLXG9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Snacks-Gift-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Japanese-Candy-Dagashi-Snacks-Gum/dp/B07CGPLXG9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Snacks-Gift-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -101,7 +101,7 @@ Whether you're traveling or simply need a touch-up on the move, this mirror is y
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/DeWEISN-Rechargable-Batteries-Portable-Cosmetic/dp/B08F56F8ST/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Makeup-Mirror.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/DeWEISN-Rechargable-Batteries-Portable-Cosmetic/dp/B08F56F8ST/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Makeup-Mirror.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -120,7 +120,7 @@ Measuring 3.5 inches in diameter and 4 inches in height, this candle is the perf
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1290384829/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Glass-Jar-Candle-960x888.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1290384829/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Glass-Jar-Candle-960x888.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -139,7 +139,7 @@ The first thing you'll notice about these Gold Hoop Earrings is their lightweigh
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Chunky-Earrings-Plated-Lightweight-Hypoallergenic/dp/B0974KM9QT/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Gold-Hoop-Earrings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Chunky-Earrings-Plated-Lightweight-Hypoallergenic/dp/B0974KM9QT/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Gold-Hoop-Earrings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -158,7 +158,7 @@ Its sleek and modern design seamlessly blends into any interior decor, enhancing
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Divoom-Pixoo-64-Digital-Control-Decoration/dp/B09H3YWPCH/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Cloud-Digital-Frame.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Divoom-Pixoo-64-Digital-Control-Decoration/dp/B09H3YWPCH/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Cloud-Digital-Frame.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -177,7 +177,7 @@ The Crossbody Purse features a compact yet spacious design, allowing you to carr
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Shoulder-Crossbody-Little-x1-57inch-Supplies/dp/B0933KRCN2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Crossbody-Purse.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Shoulder-Crossbody-Little-x1-57inch-Supplies/dp/B0933KRCN2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Crossbody-Purse.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -196,7 +196,7 @@ This bag features a spacious interior, providing ample room for your everyday es
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1473695209/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Zodiac-Tote-Bag-1170x1536.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1473695209/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Zodiac-Tote-Bag-1170x1536.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -215,7 +215,7 @@ Measuring approximately 17.7 inches in height and 13.8 inches in width, this mir
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/PLINRISE-Aesthetic-Irregular-Decorative-Birthday/dp/B09ZY9TT6G/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Frame-Mirror.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/PLINRISE-Aesthetic-Irregular-Decorative-Birthday/dp/B09ZY9TT6G/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Frame-Mirror.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -234,7 +234,7 @@ These gold-layered necklaces are handmade and showcase a combination of delicate
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Layered-Necklaces-Necklace-Handmade-Layering/dp/B093K2C4R2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Gold-Layered-Necklaces.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Layered-Necklaces-Necklace-Handmade-Layering/dp/B093K2C4R2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Gold-Layered-Necklaces.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -253,7 +253,7 @@ It sheds light on the unique challenges that Gen Z encounters, equipping them wi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Mobilizing-Gen-Challenges-Opportunities-Missions/dp/1645083144/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Mobilizing-Gen-Z-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Mobilizing-Gen-Challenges-Opportunities-Missions/dp/1645083144/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Mobilizing-Gen-Z-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -272,7 +272,7 @@ Its intricate beaded design adds a pop of color and texture, making it a versati
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/GYSONG-Beaded-Necklaces-Handmade-Necklace/dp/B08C9M7Q2D/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Choker-Necklace.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/GYSONG-Beaded-Necklaces-Handmade-Necklace/dp/B08C9M7Q2D/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Choker-Necklace.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -291,7 +291,7 @@ With an elastic band, this bracelet ensures a comfortable and secure fit, effort
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1300851341/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Gemstone-Bracelet-960x926.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1300851341/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Gemstone-Bracelet-960x926.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -310,7 +310,7 @@ Its intuitive controls and agile movements make it effortlessly navigate the bal
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Flying-Drones-Colorful-Lights-Spinner/dp/B09B731JBN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Drones-Ball.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Flying-Drones-Colorful-Lights-Spinner/dp/B09B731JBN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Drones-Ball.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -329,7 +329,7 @@ The Butt Lift Leggings feature a unique design and construction that accentuates
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/FORLIFE-Tiktok-Leggings-Workout-Women/dp/B091M9MCTV/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Butt-Lift-Leggings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/FORLIFE-Tiktok-Leggings-Workout-Women/dp/B091M9MCTV/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Butt-Lift-Leggings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -346,7 +346,7 @@ Celebrate the beauty of nature with the exquisite Flower Mug. Made with attentio
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1316088140/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Flower-Mug-960x897.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1316088140/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Flower-Mug-960x897.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -365,7 +365,7 @@ With a capacity of 12 ounces, these glasses can serve a variety of beverages, fr
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Drinking-Glasses-Bamboo-Glass-Straw/dp/B0B215HRKG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Drinking-Glasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Drinking-Glasses-Bamboo-Glass-Straw/dp/B0B215HRKG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Drinking-Glasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -384,7 +384,7 @@ With its compact size, this crossbody bag is perfect for on-the-go adventures. N
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1476242602/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Crossbody-Cell-Phone-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1476242602/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Crossbody-Cell-Phone-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -403,7 +403,7 @@ The tripod features an extendable design, allowing you to adjust the height, and
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Extendable-Sensyne-YouTube-Compatible-Phones/dp/B08B3X7NXC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Extendable-Tripod-Stand.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Extendable-Sensyne-YouTube-Compatible-Phones/dp/B08B3X7NXC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Extendable-Tripod-Stand.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -422,7 +422,7 @@ The soft and breathable fabric ensures optimal comfort even on warm days, while 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1485984789/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Embroidered-Bucket-Hat-960x883.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1485984789/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Embroidered-Bucket-Hat-960x883.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -441,7 +441,7 @@ From trendy slang to digital jargon, this comprehensive dictionary unveils the h
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Gen-Z-Dictionary-Kelly-King/dp/1735187704/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/The-Gen-Z-Dictionary.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Gen-Z-Dictionary-Kelly-King/dp/1735187704/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/The-Gen-Z-Dictionary.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -460,7 +460,7 @@ It's a playful statement piece that adds a touch of laughter to your morning rou
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Bruh-Funny-Coffee-Gifts-Millennials/dp/B09XG5HCMC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Funny-Coffee-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Bruh-Funny-Coffee-Gifts-Millennials/dp/B09XG5HCMC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Funny-Coffee-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -479,7 +479,7 @@ With its customizable design, you can wear your birth year, lucky number, or any
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1203298714/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Gold-Number-Necklace-960x894.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1203298714/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Gold-Number-Necklace-960x894.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -498,7 +498,7 @@ As Gen Z, you value critical thinking, creativity, and connection; this game del
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/SolidRoots-00046-Mind-The-Gap/dp/B08DGX8TF1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Mind-The-Gap-Game.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/SolidRoots-00046-Mind-The-Gap/dp/B08DGX8TF1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Mind-The-Gap-Game.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -517,7 +517,7 @@ Its easy application and residue-free removal ensure a hassle-free customization
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1292369167/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Decal-Sticker-Car-960x895.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1292369167/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Decal-Sticker-Car-960x895.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -536,7 +536,7 @@ This adorable lamp will bring comfort and relaxation to your nighttime routine. 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/WoneNice-Silicone-Rechargeable-Children-Breathing/dp/B07T335YNG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Cat-Night-Lamp.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/WoneNice-Silicone-Rechargeable-Children-Breathing/dp/B07T335YNG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Cat-Night-Lamp.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -555,7 +555,7 @@ Made from premium quality fabric, it ensures a soft and comfortable fit, perfect
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1439732744/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Unisex-T-Shirt-960x925.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1439732744/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Unisex-T-Shirt-960x925.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -574,7 +574,7 @@ Its vibrant colors and stunning galaxy projection bring a sense of wonder and aw
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Valentines-Control-Rechargeable-Girlfriend-Boyfriend/dp/B092HVCCNC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Galaxy-Lamp.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Valentines-Control-Rechargeable-Girlfriend-Boyfriend/dp/B092HVCCNC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Galaxy-Lamp.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -593,7 +593,7 @@ With thought-provoking questions and prompts, this deck serves as a catalyst for
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Foundations-Card-Deck-Conversation-Intimately/dp/B07PMYDMV3/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Conversation-Card-Deck.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Foundations-Card-Deck-Conversation-Intimately/dp/B07PMYDMV3/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Conversation-Card-Deck.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -612,7 +612,7 @@ Made with love, this ring brings a touch of playfulness to any outfit while also
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1354061406/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Smiley-Face-Ring-960x911.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1354061406/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Smiley-Face-Ring-960x911.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -631,7 +631,7 @@ Perfect for outdoor play, the set includes two handheld launchers and a stretchy
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Toss-Catch-Ball-Set-Outdoor/dp/B0B57QGC1Y/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Stringy-Ball-Toss.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Toss-Catch-Ball-Set-Outdoor/dp/B0B57QGC1Y/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Stringy-Ball-Toss.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -650,7 +650,7 @@ The anti-yellowing material keeps the case looking fresh and vibrant over time. 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/AhaStyle-Compatible-Samsung-Transparent-Anti-Yellowing/dp/B0B7HDK53Q/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Samsung-Galaxy-Buds-Case.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/AhaStyle-Compatible-Samsung-Transparent-Anti-Yellowing/dp/B0B7HDK53Q/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Samsung-Galaxy-Buds-Case.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -669,7 +669,7 @@ Its delicate design and high-quality craftsmanship make it a symbol of timeless 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/834754534/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230606/Gold-Necklace.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/834754534/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/assets/img/post/20230606/Gold-Necklace.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
