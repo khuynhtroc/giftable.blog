@@ -6,9 +6,7 @@ last-modify-at:
 permalink: "/blog/what-to-write-on-christmas-card/"
 categories: Blog Holiday
 tags: christmas card messge
-image:
-	path: "https://storage.googleapis.com/loveable.appspot.com/blog/uploads/2023/09/28142100/What-to-Write-on-a-Christmas-Card.jpg"
-	alt: "What to Write on a Christmas Card: 10 Festive and Meaningful Message Ideas"
+image_path: "https://storage.googleapis.com/loveable.appspot.com/blog/uploads/2023/09/28142100/What-to-Write-on-a-Christmas-Card.jpg"
 --- 
 
 The Christmas season will be here soon. It is also the time to send [Christmas gifts](/christmas-gift-sets/) and share best wishes with friends, family members, and everyone special to you. One cherished tradition that encapsulates the spirit of the holidays is sending Christmas cards. Though small, these thoughtful messages can make someone feel good and create special moments they will remember. But as you sit down with a stack of cards, you might wonder: **What to write on a Christmas card?**
