@@ -6,9 +6,6 @@ last-modify-at:
 permalink: "/blog/heartfelt-christmas-card-messages/"
 categories: Blog Holiday
 tags: christmas card messge
-image:
-	path: "https://storage.googleapis.com/loveable.appspot.com/blog/uploads/2023/09/27163227/Heartfelt-Christmas-Card-Messages.jpg"
-	alt: "120+ Heartfelt Christmas Card Messages that Touch Other Hearts and Souls"
 --- 
 
 Christmas is a great time to spread your love and attitude to friends, family or any one around you. The better way to do that is writing **heartfelt Christmas card messages**. Taking the time to pen a few sincere words can mean so much to the recipient.
