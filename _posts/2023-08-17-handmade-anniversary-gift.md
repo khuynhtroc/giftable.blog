@@ -25,7 +25,7 @@ Handcrafted with love and attention to detail, this wallet serves as a heartfelt
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://loveable.us/products/where-we-met-personalized-map-couples-valentines-gift-custom-anniversary-gift-keepsake-for-him-leather-map-wallet-305ihpnplw588?variant=44525369393384" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Personalized-Map-Leather-Wallet.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://loveable.us/products/where-we-met-personalized-map-couples-valentines-gift-custom-anniversary-gift-keepsake-for-him-leather-map-wallet-305ihpnplw588?variant=44525369393384" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Map-Leather-Wallet.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -47,7 +47,7 @@ Each delicate petal is carefully hand-dipped in real 24K gold, creating a captiv
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Dipped-Rose-Original-Forever-Brand/dp/B00361WV84/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Real-24K-Gold-Rose.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Dipped-Rose-Original-Forever-Brand/dp/B00361WV84/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Real-24K-Gold-Rose.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -67,7 +67,7 @@ The most striking feature of this custom wall art is the incorporation of your f
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://loveable.us/products/vinyl-record-song-lyrics-custom-wall-art-square-canvas-for-music-loving-husband-or-wife-sustainable-gift-208ihpthca116?variant=43796644266216" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Record-Song-Lyrics-Custom-Picture.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://loveable.us/products/vinyl-record-song-lyrics-custom-wall-art-square-canvas-for-music-loving-husband-or-wife-sustainable-gift-208ihpthca116?variant=43796644266216" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Record-Song-Lyrics-Custom-Picture.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -87,7 +87,7 @@ Each cutting board is meticulously handcrafted with care, making it a unique and
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Personalized-Monogrammed-Engagement-Anniversary-Housewarming/dp/B07CHPZMV5/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Hand-Crafted-Cutting-Boards-1-960x640.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Personalized-Monogrammed-Engagement-Anniversary-Housewarming/dp/B07CHPZMV5/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Hand-Crafted-Cutting-Boards-1-960x640.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -107,7 +107,7 @@ Whether it's a picture from your first vacation together, a breathtaking landsca
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.uncommongoods.com/product/custom-travel-photo-coasters" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Travel-Photo-Coasters.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.uncommongoods.com/product/custom-travel-photo-coasters" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Custom-Travel-Photo-Coasters.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -127,7 +127,7 @@ Its elegant design and timeless appeal will complement any decoration style, whi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://loveable.us/products/the-day-that-two-become-one-personalized-canvas-poster-home-wall-art-decor-custom-star-map-and-photo-anniversary-gifts-for-couple-209ihpthca149?variant=43814771294440" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Personalized-Star-Map-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://loveable.us/products/the-day-that-two-become-one-personalized-canvas-poster-home-wall-art-decor-custom-star-map-and-photo-anniversary-gifts-for-couple-209ihpthca149?variant=43814771294440" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Personalized-Star-Map-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -147,7 +147,7 @@ The standout feature of this kit is the ability to craft your hand sculptures to
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Edinburgh-Casting-Studio-Weddings-Anniversaries/dp/B07QD1SF7G/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Hand-Casting-Kit-Couples.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Edinburgh-Casting-Studio-Weddings-Anniversaries/dp/B07QD1SF7G/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Hand-Casting-Kit-Couples.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -167,7 +167,7 @@ The smooth curves and intricate detailing create a captivating visual appeal, ma
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/G6-Collection-Handcrafted-Decorative-Decoration/dp/B00F235K9G/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wooden-Abstract-Sculpture-Statue-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/G6-Collection-Handcrafted-Decorative-Decoration/dp/B00F235K9G/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wooden-Abstract-Sculpture-Statue-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -187,7 +187,7 @@ The standout feature of this heart-shaped balm is its handmade nature, crafted w
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.uncommongoods.com/product/handmade-heart-shaped-balm-with-dish" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Heart-Shaped-Balm-Dish-1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.uncommongoods.com/product/handmade-heart-shaped-balm-with-dish" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Heart-Shaped-Balm-Dish-1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -207,7 +207,7 @@ The standout feature of this beautiful bowl is the intricate Tree of Hearts desi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/JANECKA-Turquoise-Hearts-Pottery-Anniversary/dp/B079NNYJ9K/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Tree-of-Hearts-Bowl.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/JANECKA-Turquoise-Hearts-Pottery-Anniversary/dp/B079NNYJ9K/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Tree-of-Hearts-Bowl.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -227,7 +227,7 @@ The map showcases the exact place where your love story began, surrounded by mea
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://loveable.us/products/the-day-two-became-one-personalized-map-canvas-best-birthday-gift-for-herhim-for-wifehusband-best-home-decor-on-anniversary-304ihpnpca497?variant=44461409894632" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Day-Two-Became-One-Map.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://loveable.us/products/the-day-two-became-one-personalized-map-canvas-best-birthday-gift-for-herhim-for-wifehusband-best-home-decor-on-anniversary-304ihpnpca497?variant=44461409894632" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Day-Two-Became-One-Map.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -247,7 +247,7 @@ The high-quality craftsmanship ensures that this frame will stand the test of ti
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Agbrics-Marriage-Prayer-Wedding-Photo/dp/B0BRW9BQQ6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Marriage-Prayer-Wedding-Frame.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Agbrics-Marriage-Prayer-Wedding-Photo/dp/B0BRW9BQQ6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Marriage-Prayer-Wedding-Frame.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -267,7 +267,7 @@ The standout feature of this handmade rose is its attention to detail and lifeli
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/SKPAND-Handmade-Birthday-Anniversary-Boyfriend/dp/B0BDT3ZCBP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Handmade-Rose-Birthday.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/SKPAND-Handmade-Birthday-Anniversary-Boyfriend/dp/B0BDT3ZCBP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Handmade-Rose-Birthday.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -287,7 +287,7 @@ The standout feature of this tray is its personalized touch, allowing you to eng
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1426466882/personalized-round-catchall-tray-5th" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/5th-Wedding-Anniversary-Tray.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1426466882/personalized-round-catchall-tray-5th" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/5th-Wedding-Anniversary-Tray.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -306,7 +306,7 @@ Versatility and striking design make them an ideal addition to any home decorati
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.uncommongoods.com/product/hand-dyed-zodiac-coasters" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Hand-Dyed-Zodiac-Coasters.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.uncommongoods.com/product/hand-dyed-zodiac-coasters" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Hand-Dyed-Zodiac-Coasters.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -326,7 +326,7 @@ The standout feature of these paper flowers is the heartfelt "I Love You" messag
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Paper-Flowers-handmade-anniversary-wedding/dp/B01CB5O8NG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/5-I-Love-You-Paper-Flowers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Paper-Flowers-handmade-anniversary-wedding/dp/B01CB5O8NG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/5-I-Love-You-Paper-Flowers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -346,7 +346,7 @@ Unlike traditional roses, these preserved beauties will never wither or fade, se
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Handmade-Preserved-Valentines-Birthday-Anniversary/dp/B08XMF5HYF" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Long-Lasting-Royal-Blue-Roses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Handmade-Preserved-Valentines-Birthday-Anniversary/dp/B08XMF5HYF" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Long-Lasting-Royal-Blue-Roses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -366,7 +366,7 @@ This personal touch makes it a truly unique and meaningful gift, capturing a mom
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1087529253/personalized-leather-photo-keychain" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Leather-Photo-Keychain-1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1087529253/personalized-leather-photo-keychain" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Leather-Photo-Keychain-1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -386,7 +386,7 @@ Its timeless appeal and sentimental significance make it a beautiful and cherish
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Personalized-Established-Anniversary-Engagement-Valentines/dp/B09MPN5L9L/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Last-Name-Established-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Personalized-Established-Anniversary-Engagement-Valentines/dp/B09MPN5L9L/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Last-Name-Established-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -405,7 +405,7 @@ The genuine penny adds an element of nostalgia and uniqueness to the gift, while
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Anniversary-Lucky-Penny-Forever-Chain/dp/B08KDZQ1K4/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wedding-Anniversary-Coin-Key-Chain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Anniversary-Lucky-Penny-Forever-Chain/dp/B08KDZQ1K4/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wedding-Anniversary-Coin-Key-Chain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -425,7 +425,7 @@ The standout feature of this tray is its intricate engraving, showcasing the cou
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Marriage-Engraved-Handmade-Italian-Anniversary/dp/B09ZV73MSZ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/3rd-Wedding-Anniversary-Tray.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Marriage-Engraved-Handmade-Italian-Anniversary/dp/B09ZV73MSZ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/3rd-Wedding-Anniversary-Tray.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -445,7 +445,7 @@ The standout feature of this ornament is its intricate craftsmanship and attenti
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/MUUJEE-Years-Christmas-Ornament-Anniversary/dp/B0B69NWKL1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/5-Years-Christmas-Ornament.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/MUUJEE-Years-Christmas-Ornament-Anniversary/dp/B0B69NWKL1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/5-Years-Christmas-Ornament.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -465,7 +465,7 @@ The personalized touch makes it a truly unique and meaningful present, capturing
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1386872326/personalized-couple-wooden-sign" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Valentines-Day-Wooden-Sign.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1386872326/personalized-couple-wooden-sign" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Valentines-Day-Wooden-Sign.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -484,7 +484,7 @@ Crafted with love and attention to detail, the keychains can be customized with 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/973536128/matching-secret-message-10th-wedding" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Matching-Secret-Message-Keychain.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/973536128/matching-secret-message-10th-wedding" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Matching-Secret-Message-Keychain.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -504,7 +504,7 @@ The standout feature of this wood engraving is its elegant and natural design. I
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Memory-Anniversary-Engraving-Wedding-Natural/dp/B0BT78B6SG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Anniversary-Wood-Engraving.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Memory-Anniversary-Engraving-Wedding-Natural/dp/B0BT78B6SG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Anniversary-Wood-Engraving.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -524,7 +524,7 @@ The standout feature of these bracelets is their personalized touch. You can cho
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/TAGOMEI-Bracelet-Adjustable-Inspirational-Valentines/dp/B0BBTFL3N2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Morse-Code-Bracelets-2.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/TAGOMEI-Bracelet-Adjustable-Inspirational-Valentines/dp/B0BBTFL3N2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Morse-Code-Bracelets-2.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -544,7 +544,7 @@ The high-quality materials ensure a seamless flow of ink, while the ergonomic de
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1084346698/wood-pen-handmade-wood-pen-engraved" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Exotic-Wood-Pens.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1084346698/wood-pen-handmade-wood-pen-engraved" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Exotic-Wood-Pens.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -564,7 +564,7 @@ The standout feature of these Wood Grain Hearts is their thoughtful design. When
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/LOVE-piece-that-holds-together/dp/B09QH8Y9JD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wood-Grain-Hearts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/LOVE-piece-that-holds-together/dp/B09QH8Y9JD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wood-Grain-Hearts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -583,7 +583,7 @@ Made from high-quality copper, the dish exudes a sense of elegance and sophistic
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1443716078/i-still-do-wedding-ring-dish-for-husband" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Copper-Jewelry-Dish.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1443716078/i-still-do-wedding-ring-dish-for-husband" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Copper-Jewelry-Dish.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -602,7 +602,7 @@ It can be customized with the couple's names and wedding date, adding a sentimen
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Inch-Wooden-Clock-Personalized-Wedding/dp/B07PK2ZSF3/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wooden-Bear-Clock.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Inch-Wooden-Clock-Personalized-Wedding/dp/B07PK2ZSF3/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wooden-Bear-Clock.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -622,7 +622,7 @@ Made from high-quality wood, the board can be personalized with the couple's nam
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Birthday-Decorations-Sixtieth-Anniversary-Retirement/dp/B0BR1NPLLZ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Signing-Board-Guest-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Birthday-Decorations-Sixtieth-Anniversary-Retirement/dp/B0BR1NPLLZ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Signing-Board-Guest-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -641,7 +641,7 @@ The standout feature of this dice set is its creativity and customizability. The
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dice-After-Dark-Edition.webp" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Dice-After-Dark-Edition.webp" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -661,7 +661,7 @@ The standout feature of these coasters is their high-quality wood and precise cr
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Personalized-Wood-Coasters-Housewarming-Customizable/dp/B0C3JCWPK3" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wedding-Anniversary-Coasters.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Personalized-Wood-Coasters-Housewarming-Customizable/dp/B0C3JCWPK3" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Wedding-Anniversary-Coasters.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -681,7 +681,7 @@ The standout feature of this bracelet is its high-quality craftsmanship. Made wi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/BeGenuine-Store-Bracelet-Handmade-Anniversary/dp/B0C383W2T7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Secret-Hidden-Message-Bracelet.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/BeGenuine-Store-Bracelet-Handmade-Anniversary/dp/B0C383W2T7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Secret-Hidden-Message-Bracelet.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -701,7 +701,7 @@ The couple's names can be beautifully crafted and layered, adding a personal tou
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1143137423/personalized-wooden-sign-couples-custom" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Layered-3D-Couples-Names-Sign.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1143137423/personalized-wooden-sign-couples-custom" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="assets/img/post/20230601/Layered-3D-Couples-Names-Sign.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
