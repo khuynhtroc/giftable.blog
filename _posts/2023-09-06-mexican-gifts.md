@@ -4,7 +4,7 @@ description: "Welcome to a world of vibrant colors, rich traditions, and heartfe
 date: 2023-09-06 00:00:00 +0000
 last-modify-at: 
 permalink: "/mexican-gifts/"
-categories: Recipients Anyone
+categories: Recipients Anyone 
 tags: mexican lovers
 image:
     path: "/assets/img/post/2023/09/copied/mexican-gifts.jpg"
