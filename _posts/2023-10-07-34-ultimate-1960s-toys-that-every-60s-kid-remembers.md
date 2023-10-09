@@ -1,0 +1,678 @@
+---
+title: "34 Ultimate 1960s Toys That Every 60s Kid Remembers"
+date: "2023-10-07"
+categories: 
+  - "blog"
+tags: 
+  - "interests"
+  - "loveable"
+  - "popular"
+---
+
+This article has been written and researched by our expert Loveable through a precise methodology. [Learn more about our methodology](https://avada.io/loveable/our-methodological.html)
+
+[Loveable](https://avada.io/loveable/) > [Interests](https://avada.io/loveable/interests/) > [Popular](https://avada.io/loveable/popular/)
+
+# 34 Ultimate 1960s Toys That Every 60s Kid Remembers
+
+Written by [Alex Smith](https://avada.io/loveable/author/alex/) Last Updated on July 13, 2023
+
+When you are a child, the excitement of getting a new toy of your own is such a vulnerable and cherishable moment that it echoes and lingers throughout your life. In today’s world, there are countless variations of toys, from physical items to virtual ones like digital games or websites. However, back in the 90s, the choices were slim; therefore, having a toy was so much more valuable in the old days. Millennials can trip down to their memory lane, bringing back that nostalgic feeling by seeing this list of 1960s toys below.
+
+These 1960s collections of goods are indeed vintage items and most definitely original from the old times. If you are an adult but want to dive back into your childhood, then this list is made for you. Whether the purpose is to collect these original, authentic toys or to play with them with your friends and families, these 1960s toys will not disappoint you and will accompany you to create the best memory ever.
+
+**Related:**
+
+- **[1970 Toys](https://avada.io/loveable/1970s-toys/)**
+- **[1980 Toys](https://avada.io/loveable/1980s-toys/)**
+
+### [1\. The Beatles Stacking Dolls](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/235596973/the-beatles-5-pc-sgt-peppers-john-lennon)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/235596973/the-beatles-5-pc-sgt-peppers-john-lennon)
+
+The Beatles is known to be one of the most legendary icon in the music industry back in the 1960s, and they have millions of fans worldwide. This nesting doll is made based on each member from the band, with high-quality, handmade painted design on woods, promising an excellent piece of attraction to highlight your living space.
+
+The nesting doll consists of five pieces, represeting five members in The Beatles, with sturdy hand-feel material and detailed drawing. This is definitely an exceptional gift for lovers of The Beatles.
+
+**Pros**
+
+✔️ High-quality wood and paint
+
+✔️ An ideal gift choice for the music fan
+
+✔️ A staple item for Beatles fan
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/235596973/the-beatles-5-pc-sgt-peppers-john-lennon)
+
+### [2\. Wooly Willy Magnetic Wand Toy](https://www.amazon.com/PlayMonster-Magnetic-Personalities-Original-Wooly/dp/B00BT92SB0/?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/PlayMonster-Magnetic-Personalities-Original-Wooly/dp/B00BT92SB0/?ie=UTF8&tag=avadalove-20)
+
+Create hilarious faces with your kids by getting this classic "Magnetic Personalities" kit. If your children enjoy drawing different characters on blank canvases, this original Wooly Willy will be ideal for them to try on different personas!
+
+The kit is simple to use. It provides a magnetic wand to attract magnet dust inside the kit, and from there, kids can draw by using the wand to make different characters.
+
+**Pros**
+
+✔️ Portable size for drawing anywhere
+
+✔️ Thin plastic wrap to avoid magnet spilling
+
+✔️ Both girls and boys can play
+
+[Buy from Amazon](https://www.amazon.com/PlayMonster-Magnetic-Personalities-Original-Wooly/dp/B00BT92SB0/?ie=UTF8&tag=avadalove-20)
+
+### [3\. Rubber Fish Skeleton](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1016810853/1960s-weird-rubber-dead-6-inch-fish)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1016810853/1960s-weird-rubber-dead-6-inch-fish)
+
+Make your gift more memorable and funny by purchasing these hilarious fake rubber fish skeletons. If your friends love to go fishing on the weekends or are fishermen themselves, then these fish skeletons will definitely surprise them.
+
+The fish skeleton is made out of rubber; therefore, they are great for decoration as well. You can either collect them or simply display them as decorations on your shelf. 
+
+**Pros**
+
+✔️ Rubber fish replicates relistic deisgn
+
+✔️ The material is made out of durable rubber
+
+✔️ Funny and witty gift choice
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1016810853/1960s-weird-rubber-dead-6-inch-fish)
+
+### [4\. Vintage Surprise Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/797184039/vintage-1960s-english-kohner-surprise)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/797184039/vintage-1960s-english-kohner-surprise)
+
+Giving your children a surprise box as a gift never fails to put a smile on their face. That is definitely what this 1960s antique surprise box will provide, with each capsule containing a hilarious sound and a cute face from an English Kohner.
+
+**Pros**
+
+✔️ Complex design with colourful pattern
+
+✔️ The toy is an original, vintage item
+
+✔️ Ideal as a gift for children
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/797184039/vintage-1960s-english-kohner-surprise)
+
+### [5\. The Flinestone Ramp Walker](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/886104469/the-flinestones-ramp-walker-1960s-marx)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/886104469/the-flinestones-ramp-walker-1960s-marx)
+
+If you are a big fan of the famous cartoon series "The Flintstone", then this item is a must have to your toy collection. It is a ramp walker toy with two characters: Huckle Berry and Yogi Bear. These ramp walkers are vintage items, and perfect to collect or to play with.
+
+They are in good condition, and fully fuctioned. These toys are able to run down a steep slope, creating a hilarious and funny moment to players.
+
+**Pros**
+
+✔️ Authentic vintage item
+
+✔️ The product is one of a kind
+
+✔️ A perfect present for the Flintstone fan
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/886104469/the-flinestones-ramp-walker-1960s-marx)
+
+### [6\. 1960s Kohner Bros Board Game](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1157017490/vintage-60s-1965-trouble-pop-o-matic)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1157017490/vintage-60s-1965-trouble-pop-o-matic)
+
+Another great vintage board game to remind yourself of some old memory is this vintage 1965 board game from Kohner Bros. If you are looking for another great piece of a board game for your collection, then this will not disappoint you.
+
+The item is originally from 1965 and is still in good condition. It is indeed a rare find, so it is collectible as well.
+
+**Pros**
+
+✔️ Classic board game
+
+✔️ Fully equipped and no need for preparation
+
+✔️ Product can be played or collected
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1157017490/vintage-60s-1965-trouble-pop-o-matic)
+
+### [7\. 1960s Pop Culture Puzzles](https://www.amazon.com/Re-marks-1960s-Culture-Puzzle-Piece/dp/B0BCR3C2ZD/?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/Re-marks-1960s-Culture-Puzzle-Piece/dp/B0BCR3C2ZD/?ie=UTF8&tag=avadalove-20)
+
+Do you want to walk down to your memory lane with multiple 1960s pop culture references? Intropducing this 1500 puzzle pieces, printed with various famouse icon back in the 90s.
+
+The puzzle is suitable for all ages, therefore you can have a blast with your family, speding your evening figuring out the puzzle. It will take quite a while so bring as many people as you can!
+
+**Pros**
+
+✔️ Colorful designs and patterns
+
+✔️ High-quality material
+
+✔️ Features numbers of pop icons
+
+[Buy from Amazon](https://www.amazon.com/Re-marks-1960s-Culture-Puzzle-Piece/dp/B0BCR3C2ZD/?ie=UTF8&tag=avadalove-20)
+
+### [8\. Easter Bunny Snow Globe](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1155373382/easter-snow-globe-easter-bunny-easter)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1155373382/easter-snow-globe-easter-bunny-easter)
+
+Snow globe represents holidays and family gatherings, and it's always an excellent choice of gift. This easter bunny snow globe is a great option if you are looking for a gift to give to your friends on family on this specific holiday.
+
+With an artistry bunny inside the globe, painting an eater egg, it should bring some laughter to the receiver with such a witty and funny design.
+
+**Pro**
+
+✔️ Vintage design from the 90s
+
+✔️ Beautiful colors and details
+
+✔️ An excellent choice of gift
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1155373382/easter-snow-globe-easter-bunny-easter)
+
+### [9\. Vintage Baby Musical Toy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1072261470/vintage-baby-musical-nursery-television)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1072261470/vintage-baby-musical-nursery-television)
+
+Create a comfortable, safe atmosphere for your babies by using this vintage baby musical toy. The soft, melodic sound created by the music box can help your babies to calm down their mood, get them to have better sleep, or perhaps simply keep them entertained throughout your day. With the design coming straight from the 90s, this piece is great to play with and decor.
+
+**Pros**
+
+✔️ Product doesn't need any source of power
+
+✔️ Cute, vintage design with pink color
+
+✔️ Suitable for toddlers and babies
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1072261470/vintage-baby-musical-nursery-television)
+
+### [10\. 1960s Children Puzzles](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/566207704/1960s-70-childrens-puzzles)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/566207704/1960s-70-childrens-puzzles)
+
+Puzzles are always a great option to spend your free time and challenge yourself with a small, light-minded activity. This is a vintage children's puzzle with an adorable bunny and mouse design made with hardwood for kids to play with.
+
+The game is made for children. Therefore it would not be too challenging for them. All of the pieces are made out of wood, with a clear design to ease the process of playing for kids. It is an excellent choice for your child to play in their free time. 
+
+**Pros**
+
+✔️ Retro, vintage designs
+
+✔️ Good for self-entertainment
+
+✔️ Suitable for all genders
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/566207704/1960s-70-childrens-puzzles)
+
+### [11\. Vintage Spaces Into Faces Game](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1070985004/rare-faces-into-space-by-milton-bradley)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1070985004/rare-faces-into-space-by-milton-bradley)
+
+The vintage "Spaces into Faces" game is a great indoor activity for your kids to use in their leisure time. Kids are required to put a different variation of faces into different characters, and they are totally reusable for next time usage. The book can be colored to the child's desire if they want to create more faces, and there are also pages with coloring activities.
+
+**Pros**
+
+✔️ Encourage child's creativity
+
+✔️ Product is collectible if desired
+
+✔️ A wonderful addition to vintage collection
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1070985004/rare-faces-into-space-by-milton-bradley)
+
+### [12\. Vintage Mystery Date Board Game](https://www.amazon.com/Mystery-Date-Classic-Board-Nostalgic/dp/B000J5AAR4/?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/Mystery-Date-Classic-Board-Nostalgic/dp/B000J5AAR4/?ie=UTF8&tag=avadalove-20)
+
+Board games have never failed to bring amusement and laughter to the atmosphere, and this vintage mystery date board game is no exception. Inspired by a dating theme back in the 1960s, players are on a mission to find which date they are getting by drawing cards provided by the game. The winner is the person who can guess who is behind that door.
+
+This game is great to play with young girls and families, promising some competitiveness and enjoyment!
+
+**Pros**
+
+✔️ Fun and easy to play 
+
+✔️ Games are inspired by the 1960s, with retro design
+
+✔️ Fully equipped and no preparation needed
+
+[Buy from Amazon](https://www.amazon.com/Mystery-Date-Classic-Board-Nostalgic/dp/B000J5AAR4/?ie=UTF8&tag=avadalove-20)
+
+### [13\. 1960s Car Toy](https://www.amazon.com/Greenlight-Diecast-18220-Eleanor-Seconds/dp/B00OMU9OHE/?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/Greenlight-Diecast-18220-Eleanor-Seconds/dp/B00OMU9OHE/?ie=UTF8&tag=avadalove-20)
+
+This vintage 1960s car toy will definitely satisfy individuals who adore speedy action and racing. Replicating a real car model from the 90s, collectors cannot miss out on this amazing, detailed car figure. 
+
+The toy is able to steer and run on a sloped surface. It can also be a collecting piece for your car collection, or you can decorate it in your personal room.
+
+**Pros**
+
+✔️ The product has realistic designs
+
+✔️ Detailed interior and exterior
+
+✔️ An ideal gift choice for car collectors
+
+[Buy from Amazon](https://www.amazon.com/Greenlight-Diecast-18220-Eleanor-Seconds/dp/B00OMU9OHE/?ie=UTF8&tag=avadalove-20)
+
+### [14\. Retro Lite-Brite Board Game](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1396584866/original-1967-hasbro-lite-brite-5455)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1396584866/original-1967-hasbro-lite-brite-5455)
+
+Create beautiful colored pictures with this retro lite-brite board game now. But this is just not any colorful picture. This board game not only allows you to thrive on your inner artist, but also they are able to light up.
+
+This is great to play with your kids who love to draw but add a touch of flashy lighting to make the art the most unique. Imagine playing this under the sky or in a low-light room; you can witness the most stunning picture that you've ever created.
+
+**Pros**
+
+✔️ Comes with eight colored light builds to design
+
+✔️ The game is powered by electricity
+
+✔️ Multiple designs to follow
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1396584866/original-1967-hasbro-lite-brite-5455)
+
+### [15\. 1960s Toddler Toy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/521623880/sifo-wood-wagon-of-blocks-1960s-painted)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/521623880/sifo-wood-wagon-of-blocks-1960s-painted)
+
+Teaching a toddler to take their first baby step can be quite time-consuming and challenging for parents. It can be quite stressful if parents don't have a suitable method of teaching them how to walk. That issue can now be fixed by getting your baby this 1960s-wheeled toy, which can assist them in learning how to walk with amusement.
+
+The cart has four wheels and a string attached to pull it, as well as colorful wooden shapes inside for kids to enjoy dragging. This item is perfect for keeping them entertained and improving their walking skills. 
+
+**Pros**
+
+✔️ Strong wood material with colorful paint
+
+✔️ The product is in good condition
+
+✔️ Assist kids with walking and entertaining
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/521623880/sifo-wood-wagon-of-blocks-1960s-painted)
+
+### [16\. Vintage Twisters Game](https://www.amazon.com/Winning-Moves-Games-Classic-Twister/dp/B00HVTH2MC/?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/Winning-Moves-Games-Classic-Twister/dp/B00HVTH2MC/?ie=UTF8&tag=avadalove-20)
+
+Another great option to put in your cart if you're looking for an easy, fun, classic game is this vintage twisters game. Any millennial from the 90s will be overjoyed to have this game in their collection, as it has previously appeared in numerous sitcom series.
+
+The game comes with a color sheet for players and a random board to decide which arms and legs go to which colors. It is suitable for all ages, from kids to adults, and challenges your elasticity and skills.
+
+**Pros**
+
+✔️ Create bonding moments with families and friends
+
+✔️ The game is easy to instruct and follow
+
+✔️ Ideal choice of entertainment
+
+[Buy from Amazon](https://www.amazon.com/Winning-Moves-Games-Classic-Twister/dp/B00HVTH2MC/?ie=UTF8&tag=avadalove-20)
+
+### [17\. Set of 1960s Miniature Toys](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1387384648/a-bunch-of-random-small-miniature-toys)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1387384648/a-bunch-of-random-small-miniature-toys)
+
+Collectors will be thrilled to find this antique, vintage set of miniature toys, which originated back in the 1960s. You can now be transported back to your childhood, immerse yourself in the nostalgic feelings of playing with these as a child, and you might even find something familiar to your childhood toys in this collection of random goodies.
+
+**Pros**
+
+✔️ A collection of 1960s toys
+
+✔️ Diverse and variable items
+
+✔️ Authentic vintage toys  
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1387384648/a-bunch-of-random-small-miniature-toys)
+
+### [18\. Vintage Plastic Soldiers](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1313520964/louis-marx-and-co-vintage-german-world)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1313520964/louis-marx-and-co-vintage-german-world)
+
+If your kid is a big fan of history and wants to learn more from wars full of bravery and gallantry, then this set of vintage german soldier figures is a perfect toy to have!
+
+This toy is excellent either for collecting or playing with scenes from the war. You can share the fun with your kids, teach them about each civilization through the figures, or simply display them as an attraction to your living area.
+
+**Pros**
+
+✔️ Made with sturdy plastic
+
+✔️ Detailed designs on each soldier
+
+✔️ Comes with a set of two
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1313520964/louis-marx-and-co-vintage-german-world)
+
+### [19\. Vintage Sooner Gooper](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1186412412/1960s-vintage-sooner-gooper-as-is-no)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1186412412/1960s-vintage-sooner-gooper-as-is-no)
+
+If you want to create these delicious cookies with your kids, then this vintage Sooner Gooper is an ideal tool to assist you in the kitchen. With a cute design to replicate as a friend accompanying you in the kitchen, children can now have fun and learn how to bake like a real chef. Parents can enjoy such bonding moments with their kids in the kitchen as bakery chefs!
+
+**Pros**
+
+✔️ A cooking tool powered by electricity
+
+✔️ Cute and bright design
+
+✔️ Inspire kids in cooking and baking
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1186412412/1960s-vintage-sooner-gooper-as-is-no)
+
+### [20\. 1960s Wanda Vision Funko](https://www.amazon.com/Funko-60957-Mini-Moments-WandaVision/dp/B09DL8KZ6Q?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/Funko-60957-Mini-Moments-WandaVision/dp/B09DL8KZ6Q?ie=UTF8&tag=avadalove-20)
+
+If you are an enthusiast of the famous Marvel series "Wanda Vision," then this toy is not going to be a miss. Get one for your collection now with this adorable Wanda Vision Funko, a set of figures recreating a scene from the 1960s.
+
+The set comes with two figures, with a living-room designed background to replicate the vintage, retro atmosphere of the 90s, with miniature furniture and décor. This item is ideal for collecting and displaying as well!
+
+**Pros**
+
+✔️ An ideal gift for collectors
+
+✔️ High-quality design and colors
+
+✔️ Great for scene-acting with families and friends
+
+[Buy from Amazon](https://www.amazon.com/Funko-60957-Mini-Moments-WandaVision/dp/B09DL8KZ6Q?ie=UTF8&tag=avadalove-20)
+
+### [21\. Vintage Mattel’s Man In Space](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1206265047/1967-mattel-major-matt-mason-sgt-storm)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1206265047/1967-mattel-major-matt-mason-sgt-storm)
+
+Are you a big fan of collecting antique space-themed toy items? Then congratulations! You have found yourself a very rare piece that originated back in the 1962 toy store. This is a Mattle "Man in Space" figure, which replicates exactly an astronaut from the past going into space.
+
+This item is a must for a collector and will definitely be a highlight of your NASA-themed collection!
+
+**Pros**
+
+✔️ Item was created in 1962
+
+✔️ This item works with batteries
+
+✔️ Excellent for decorating and collecting 
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1206265047/1967-mattel-major-matt-mason-sgt-storm)
+
+### [22\. 1960s Maze Game](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122458316/1960s-space-tilt-labyrinth-maze-game)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122458316/1960s-space-tilt-labyrinth-maze-game)
+
+Play this Space Tilt Maze game now to bring back that vintage, arcade, and retro feeling to your night in! This game challenges your skills and thinking with the goal of getting the marble to the end of the maze. You could even hold a small competition to see who can play in the shortest amount of time.
+
+The game is made out of sturdy wood, with an exotic maze design and a knob to tilt the surface. There is no better option than to spend some quality time with your acquaintance by playing this classic board game. 
+
+**Pros**
+
+✔️ Authentic vintage item with little wear
+
+✔️ High-quality wood material
+
+✔️ Fun to play and collect
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122458316/1960s-space-tilt-labyrinth-maze-game)
+
+### [23\. Voyage to The Bottom Sea Vintage Watch](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/561257289/voyage-to-the-bottom-of-the-sea-1960s-tv)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/561257289/voyage-to-the-bottom-of-the-sea-1960s-tv)
+
+Vintage accessories are not only rare and original, but also valuable due to their age and the stories behind them, and this vintage watch from the famous 1960s TV show is no exception. 
+
+With an exotic design that replicates sea waves inside the watch face as you move and water-resistant functions, you can wear your watch to any beach party and stand out!
+
+**Pros**
+
+✔️ Rare piece of jewelry
+
+✔️ Detailed design
+
+✔️ Water-resistent
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/561257289/voyage-to-the-bottom-of-the-sea-1960s-tv)
+
+### [24\. Vintage Hungry Henry Game](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1225684532/vintage-hungry-henry-game-ideal-toy-co)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1225684532/vintage-hungry-henry-game-ideal-toy-co)
+
+Looking for an interesting board game to entertain you and your family? Introducing the vintage "Hungry Henry" game - a board game that tests your skills and thinking. 
+
+The game can carry up to 4 persons, and you are required to keep the pelican's balance while putting the object into his mouth. Rules are relatively simple, but they can surely create some laughter and competitiveness among members.
+
+**Pros**
+
+✔️ Suitable for indoor activities
+
+✔️ Create bonding moments with your family and friends.
+
+✔️ High-quality colors and design
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1225684532/vintage-hungry-henry-game-ideal-toy-co)
+
+### [25\. Vintage Board Game](https://www.amazon.com/TriMagic-Classic-Include-Silver-Rubber/dp/B089QJHHMN/?ie=UTF8&tag=avadalove-20)
+
+[](https://www.amazon.com/TriMagic-Classic-Include-Silver-Rubber/dp/B089QJHHMN/?ie=UTF8&tag=avadalove-20)
+
+Spending the night indoors with your loved ones can foster a lot of cherished memories. This vintage Jacks game will meet your needs if you're looking for indoor entertainment.
+
+Everyone can play this game together and enjoy the moment because it is suitable for players of all ages, from young children to adults. You can now have a little friendly competition with your acquaintance while spending time together with simple rules and materials.
+
+**Pros**
+
+✔️ Perfect for indoor activity
+
+✔️ Creating fantastic memory with the family
+
+✔️ A vintage, classic board game
+
+[Buy from Amazon](https://www.amazon.com/TriMagic-Classic-Include-Silver-Rubber/dp/B089QJHHMN/?ie=UTF8&tag=avadalove-20)
+
+### [26\. 1960s VIntage Spirograph](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1260163169/vintage-1967s-kenners-spirograph-no401)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1260163169/vintage-1967s-kenners-spirograph-no401)
+
+Helping your kids to start learning about shapes and designs? Then this vintage spirograph set is the perfect choice for you. Allow your kid's imagination to thrive by using these spirograph disks to assist your kid in creating beautiful and unique designs. The set can act as both a fun learning experience and a tool for artists who need high precision in their work.
+
+**Pros**
+
+✔️ Comes with tools and disks
+
+✔️ A vintage item for the kids
+
+✔️ Entertaining choices for younger kids
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1260163169/vintage-1967s-kenners-spirograph-no401)
+
+### [27\. Flying Saucer Tin Toy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297591182/mars-quest-flying-saucer-tin-toy-windup)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297591182/mars-quest-flying-saucer-tin-toy-windup)
+
+Your kid is a big fan of spaceships and aircraft, but you don't know what to give them? This spinning flying saucer tin toy is fantastic for some competitive outdoors activities and is designed like the 1950s sci-fi movies.
+
+Made out of strong metal, now your kid and their friends can have amazing outdoor leisures and compete with each other with this spinner. You can now open a space-themed party for them with this idea toy.
+
+**Pros**
+
+✔️ Great for gift and collect
+
+✔️ Suitable for party and outdoor activities
+
+✔️ Durable with a colorful design
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297591182/mars-quest-flying-saucer-tin-toy-windup)
+
+### [28\. Vintage Moody Mary Plush Toy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268250768/vintage-rare-1960s-60s-moody-mary-plush)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268250768/vintage-rare-1960s-60s-moody-mary-plush)
+
+Another rare piece to add to your antique collection is this cute Moody Mary plush toy. With four faces representing four different moods: Happy, bored, sad, and furious, this is a fantastic item as a collector item and a toy for kids learning how to express their emotions.
+
+**Pros**
+
+✔️ In great condition
+
+✔️ Detailed design and colors
+
+✔️ Perfect for gifts to children
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268250768/vintage-rare-1960s-60s-moody-mary-plush)
+
+### [29\. 1960s Astronaut Robot](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1390626604/vintage-1960s-cragstan-great-astronaut)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1390626604/vintage-1960s-cragstan-great-astronaut)
+
+The experience of possessing a genuine vintage object is ineffable to a collector, which explains why some items can be so priceless and unique. The rarest of all robots, this 1960s Astronaut Robot, is no exception.
+
+This toy features realistic space detail, astronaut styling, and a space suit replica. It can walk while using battery-powered flashing lighting.
+
+**Pros**
+
+✔️ Have an eye-catching design
+
+✔️ Authentic from 1962
+
+✔️ A collectible toy item
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1390626604/vintage-1960s-cragstan-great-astronaut)
+
+### [30\. Vintage Chatter Telephone](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/682237494/vintage-1960s-fisher-price-chatter)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/682237494/vintage-1960s-fisher-price-chatter)
+
+Replica phone toys are excellent **[choice of gift](https://avada.io/loveable/cheap-gifts-kids/)** if your kid want to play as a grown adult playing as an working office staff. This Fisher Price Chatterbox is not only adorable, but is able to act as a companion, playing with your kids in their leisure time.
+
+The toy is designed as a table phone, therefore, it is easy to carry around when using, has a portable size, and wheels to drag on the floor.
+
+**Pros**
+
+✔️ Well-made with a hilarious design
+
+✔️ Product is in good condition
+
+✔️ Ideal for display and collect
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/682237494/vintage-1960s-fisher-price-chatter)
+
+### [31\. Vintage Monkey Elephant Toy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248731176/vintage-monkey-elephant-me776-tin-toy)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248731176/vintage-monkey-elephant-me776-tin-toy)
+
+Wanting to find an antique item to decorate your living space? This adorable 1960s vintage monkey and elephant tin toy is ideal for making your room more attractive. 
+
+The toy is combined with two cute animals with colorful designs and details. Since this is a true vintage toy, it is perfect to go with your antique decor and collection.
+
+**Pros**
+
+✔️ An ideal gift choice for collectors
+
+✔️ Excellence in decoration
+
+✔️ True vintage item
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248731176/vintage-monkey-elephant-me776-tin-toy)
+
+### [32\. Nasa Space Capsule Tin](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/978384601/1960s-nasa-space-capsule-tin-toy)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/978384601/1960s-nasa-space-capsule-tin-toy)
+
+Space lovers are known to be enthusiastic collectors when it comes to rare items. Some people love to decorate their homes with decorations such as planets from the solar system or perhaps rocket ships with galaxy wallpaper. The others could have more passion for their love of space and collect very rare original items.
+
+The Nasa Space Capsule Tin Toy, which dates back to the 1960s, is a battery-powered toy that can move on the floor and open up like a real spaceship. You can use it as a gift for NASA's fans or as a toy to play with our families and friends.
+
+**Pros**
+
+✔️ Genuine vintage item
+
+✔️ Rare and original piece
+
+✔️ Fully operational and usable
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/978384601/1960s-nasa-space-capsule-tin-toy)
+
+### [33\. Vintage Barbie Cases](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1385243804/1968-blue-and-pink-world-of-barbie)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1385243804/1968-blue-and-pink-world-of-barbie)
+
+Barbie is a famous cartoon character who is a part of every girl's childhood. From Barbie dolls to the Makeover Barbie toy, this character has been in every memory of young girls, both in the past and nowadays.
+
+If you're looking for a Barbie-themed accessory, this vintage Barbie case is a must-have. The case has a retro, old-fashioned design with Barbie on it, and is painted pink, which is very eye-catching. It is suitable to carry school items, makeup, or accessories. 
+
+**Pros**
+
+✔️ Case is made with strong metal
+
+✔️ Well-made with the unique design
+
+✔️ Perfect **[gift for young girls](https://avada.io/loveable/gifts-little-girl/)**
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1385243804/1968-blue-and-pink-world-of-barbie)
+
+### [34\. Vintage Steiff Froggy Soft Toy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1089142685/vintage-1960s-steiff-froggy-the-frog)
+
+[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1089142685/vintage-1960s-steiff-froggy-the-frog)
+
+This vintage Steiff froggy has been crafted with excellent materials, and it surely is a true vintage item. Its soft, delicate material makes the product both durable and huggable. Kids can now cuddle them to sleep or play with them as imaginary friend, and it provides more entertainment options. This item is suitable for numerous purposes, namely for decorating or giving as a gift. 
+
+**Pros**
+
+✔️ Soft and comfortable to touch
+
+✔️ In great condition with little wear
+
+✔️ Suitable for collectors
+
+[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1089142685/vintage-1960s-steiff-froggy-the-frog)
+
+[
+
+](https://avada.io/loveable/author/alex/)
+
+### [Alex Smith](https://avada.io/loveable/author/alex/)
+
+I'm Alex from Loveable. I excel at giving thoughtful gifts that bring joy. I offer personalized, budget-friendly ideas like concerts, getaways, and spa treatments. I'm a compassionate colleague who volunteers at local charities. I'm proud to be part of the Loveable team and a trusted gift advisor.
+
+- [Twitter](https://twitter.com/intent/tweet)
+- [Facebook](https://www.facebook.com/sharer/sharer.php)
+- [instagram](https://avada.io/loveable/1960s-toys/)
+- [pinterest](https://www.pinterest.com/loveablellc/)
+
+### Related Gifts
+
+[](https://avada.io/loveable/retirement-gifts-coworker/)
+
+[
+
+### 35 Meaningful Retirement Gifts for Coworkers That Make The Transition Memorable
+
+](https://avada.io/loveable/retirement-gifts-coworker/)
+
+[](https://avada.io/loveable/thanksgiving-gifts/)
+
+[
+
+### Best Thanksgiving Gifts That Will Delight Any Hostess In 2023
+
+](https://avada.io/loveable/thanksgiving-gifts/)
+
+[](https://avada.io/loveable/black-friday-gift-him/)
+
+[
+
+### Best Black Friday Gifts for Him To Buy Online In 2023
+
+](https://avada.io/loveable/black-friday-gift-him/)
+
+[](https://avada.io/loveable/new-year-gifts-for-friends/)
+
+[
+
+### Best New Years Gifts For Friends That They Will Love
+
+](https://avada.io/loveable/new-year-gifts-for-friends/)
+
+[](https://avada.io/loveable/horror-gifts/)
+
+[
+
+### Best Horror Gifts You Should Check Out In 2023
+
+](https://avada.io/loveable/horror-gifts/)
