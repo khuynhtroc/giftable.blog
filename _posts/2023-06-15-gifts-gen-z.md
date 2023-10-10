@@ -5,7 +5,7 @@ date: 2023-06-15 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-gen-z/"
 categories: Interests Popular
-tags: gift genz z
+tags: gift genz-z
 image:
     path: "/assets/img/post/2023/09/copied/Gifts-Gen-Z.jpg"
     alt: "35 Best Gifts for Gen Z In Your Life That They Really Want"                                
