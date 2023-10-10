@@ -5,7 +5,7 @@ date: 2023-08-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-meat-smokers/"
 categories: Recipients Anyone
-tags: gifts meat 
+tags: gifts meat  
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-meat-smokers.jpg"
     alt: "35 Best Gifts for Meat Smokers On Any Occasions"                                
