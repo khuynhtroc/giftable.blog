@@ -4,8 +4,8 @@ description: "The guests&nbsp;will be&nbsp;thrilled about receiving the presents
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/return-gifts-for-birthday-party/"
-categories:
-tags:
+categories: Interests Popular
+tags: kids birthday
 image:
     path: "/assets/img/post/2023/09/copied/medium_return-gifts-for-birthday-party.png"
     alt: "Return Gift Ideas for Kids on Birthday Party That They’ll Love"                                
