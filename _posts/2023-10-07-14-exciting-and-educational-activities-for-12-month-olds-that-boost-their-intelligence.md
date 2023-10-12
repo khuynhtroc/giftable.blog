@@ -21,7 +21,7 @@ Overall, the main activities for a one-year-old child are quite similar to those
 
 ### **1\. Storytime** 
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_490-960x608-1.jpg "screenshot_490-960x608-1")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_490-960x608-1.jpg "screenshot_490-960x608-1")
 
 Many people think a 12-month-old baby cannot understand what adults say, but the reality is different. A one-year-old baby can understand many simple words, phrases, and grammar. Toddlers often learn language by listening and observing the adults around them, so letting them hear as much as possible can give them more learning opportunities.
 
@@ -37,7 +37,7 @@ When you see your child looking at something, point to it and say the name of th
 
 ### **3\. Obstacles Crawl**
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_438-2-960x620-1.jpg "screenshot_438-2-960x620-1")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_438-2-960x620-1.jpg "screenshot_438-2-960x620-1")
 
 Encouraging young children to crawl over small objects placed on the floor can help them develop good hand-eye coordination and fine motor skills. It can also promote cognitive development as they learn to problem-solve and navigate different situations.
 
@@ -49,7 +49,7 @@ You can improve your child’s visual and sensory skills by putting small beads,
 
 ### **5\. Play with Puzzle**
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_491-960x640-1.jpg "screenshot_491-960x640-1")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_491-960x640-1.jpg "screenshot_491-960x640-1")
 
 Try buying a simple [personalized puzzle](/personalized-puzzles/) set and help your child complete it. At this age, your child may still have difficulty fitting the puzzle pieces together independently, but playing with puzzles can still help improve spatial awareness and problem-solving skills. And don’t forget to praise them once they complete it.
 
@@ -75,7 +75,7 @@ To start off, you can place the tube vertically. As your little one gets better 
 
 ### **10\. Block Stacking** 
 
-![Block Stacking ](/assets/img/post/images/screenshot_493-960x624-1.jpg "screenshot_493-960x624-1")
+![Block Stacking ](/assets/img/images/screenshot_493-960x624-1.jpg "screenshot_493-960x624-1")
 
 Sorting blocks by color, order, and size can be a very fun activity for young children. It is a highly creative activity, and you can start introducing block sorting to your child from the first few months of their life. 
 
@@ -95,7 +95,7 @@ Finally, you can divide the dough into smaller pieces and add different food col
 
 ### **13\. Playing with Bubbles** 
 
-![Playing with Bubbles ](/assets/img/post/images/screenshot_494-960x636-1.jpg "screenshot_494-960x636-1")
+![Playing with Bubbles ](/assets/img/images/screenshot_494-960x636-1.jpg "screenshot_494-960x636-1")
 
 Engaging in bubble play can be a fantastic pastime both indoors and outdoors, but take heed to avoid unintentionally wafting bubbles into your little one’s face, for the solution can irritate their eyes. With their inexplicable characteristics, bubbles truly possess a touch of enchantment.
 
@@ -109,7 +109,7 @@ With the activities mentioned above, I hope you have some great ideas for playin
 
 ### [**LeapFrog Learning Friends 100 Words Book**](https://www.amazon.com/LeapFrog-Learning-Friends-Frustration-Packaging/dp/B07CCFDZZ3/ref=sr_1_2?keywords=best%2Btoys%2Bfor%2B12%2Bmonth%2Bold&qid=1684032251&sr=8-2&th=1)
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_501.jpg "screenshot_501")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_501.jpg "screenshot_501")
 
 As mentioned earlier, this is a prime time for children to learn about language and intonation firsthand. That’s why this fun vocabulary self-learning kit for kids is sure to help them have a great time while learning and learning while having fun.
 
@@ -117,13 +117,13 @@ It features colorful pages with vivid images and sounds that help children learn
 
 ### [**Musical Rhymes Book**](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/ref=sr_1_4?keywords=best%2Btoys%2Bfor%2B12%2Bmonth%2Bold&qid=1684032251&sr=8-4&th=1)
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_497.jpg "screenshot_497")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_497.jpg "screenshot_497")
 
 Unlike the electronic vocabulary book mentioned above, this product includes 40 songs and various melodies to stimulate children’s auditory and cognitive abilities. You can also play with it as a substitute for reading storybooks and singing with your child to make it more enjoyable. The product is made from safe plastic, with easy-to-interact buttons and multiple colors. In addition, the product is also equipped with AAA batteries. It is definitely a worthwhile product to buy for children.
 
 ### [**Pop-a-Balls Push & Pop Bulldozer**](https://www.amazon.com/VTech-Pop-a-Balls-Push-Pop-Bulldozer/dp/B06WV7VBY5/ref=sr_1_6?keywords=best%2Btoys%2Bfor%2B12%2Bmonth%2Bold&qid=1684032251&sr=8-6&th=1)
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_498.jpg "screenshot_498")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_498.jpg "screenshot_498")
 
 This Pop-a-Balls Push & Pop Bulldozer is a fun and interactive toy for children 12 months and up. This bulldozer toy has a friendly driver and colorful balls that pop up and out as the toy is pushed and pulled along. This can help to encourage children to engage in imaginative play and develop their fine motor skills.
 
@@ -131,13 +131,13 @@ The material used to make this toy is safe for kids as it is made of durable and
 
 ### [**Wooden Musical Pounding Toy for Toddlers**](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/ref=sr_1_7?keywords=best+toys+for+12+month+old&qid=1684032251&sr=8-7)
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_502.jpg "screenshot_502")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_502.jpg "screenshot_502")
 
 If you’re looking for a toy to help develop your child’s creativity and musicality, this multifunctional musical instrument might be perfect. Your little one can play the xylophone in various ways, like fetching balls and sending them tinkling over or pulling out the keyboard for a solo performance. As they play, they’ll develop essential skills like fine motor skills, hand-eye coordination, and arm movement, and it encourages musical exploration and audio recognition, helping your child establish their own sense of rhythm and melody.
 
 ### [**Baby Walker Balance Bike with 4 Wheels**](https://www.amazon.com/Retrospec-Cricket-Walker-Balance-Wheels/dp/B094YM3DMX/ref=sr_1_10?keywords=best%2Btoys%2Bfor%2B12%2Bmonth%2Bold&qid=1684032251&sr=8-10&th=1)
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_499.jpg "screenshot_499")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_499.jpg "screenshot_499")
 
 It may be a bit early to start your child on a bike, but it can be a great way to make it easier for them to learn how to ride in the future.
 
@@ -145,7 +145,7 @@ With a sturdy frame made of steel and a comfortable saddle, this balance bike is
 
 ### [**Fisher-Price Toddler Block Toys**](https://www.amazon.com/80-piece-Building-Toddler-Storage-Toddlers/dp/B007GE75HY/ref=sr_1_9?keywords=best%2Btoys%2Bfor%2B12%2Bmonth%2Bold&qid=1684032251&sr=8-9&th=1)
 
-![Activities for 12-Month-Olds](/assets/img/post/images/screenshot_500.jpg "screenshot_500")
+![Activities for 12-Month-Olds](/assets/img/images/screenshot_500.jpg "screenshot_500")
 
 Let your child’s creativity soar with this building block set! With over 80 pieces to play with, your little one can create a variety of different animals and shapes (with a little help from you, of course). This is the perfect toy to develop your child’s imagination and hand-eye coordination. The set comes in a range of vibrant colors that are sure to delight your child. 
 
