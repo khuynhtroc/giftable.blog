@@ -4,7 +4,7 @@ description: "Items for home decoration make excellent holiday gifts for practic
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/home-decor-gifts/"
-categories: Housewarming Occasions 
+categories: Occasions Housewarming
 tags: decor make-up
 image:
     path: "/assets/img/post/2023/09/copied/medium_home decor gifts.jpg"
