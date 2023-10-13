@@ -4,7 +4,7 @@ description: "Opening up a door and lead your kids to an interesting world to ex
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/birthday-gifts-5-year-olds/"
-categories: occasions birthday kids-teens
+categories: Occasions Birthday Kids&Teens
 tags: birthday 5-year-olds
 image:
     path: "/assets/img/post/2023/09/copied/medium_Birthday gifts for 5 year olds.jpg"
