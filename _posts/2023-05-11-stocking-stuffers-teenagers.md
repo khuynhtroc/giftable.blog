@@ -4,8 +4,8 @@ description: "Give your beloved teenagers these stocking stuffer gifts on Christ
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/stocking-stuffers-teenagers/"
-categories: Occasions Christmas Kids-teens
-tags: stuffers teenagers
+categories: [Occasions Christmas, Kids & Teens]
+tags: stuffers teenagers christmas
 image:
     path: "/assets/img/post/2023/09/copied/medium_Stocking stuffers for teenagers.jpg"
     alt: "Best Stocking Stuffers For Teenagers That They Love To Receive"                                

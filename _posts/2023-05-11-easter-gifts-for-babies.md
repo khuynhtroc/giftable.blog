@@ -4,7 +4,7 @@ description: "Send a little Easter present to your newborn, something that will 
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/easter-gifts-for-babies/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: easter babies
 image:
     path: "/assets/img/post/2023/09/copied/medium_easter gifts for babies.png"

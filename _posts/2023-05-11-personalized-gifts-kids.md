@@ -4,7 +4,7 @@ description: "Little kids love to write their names or anything else they can as
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/personalized-gifts-kids/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: gifts kids
 image:
     path: "/assets/img/post/2023/09/copied/medium_personalized gifts for kids.jpg"
