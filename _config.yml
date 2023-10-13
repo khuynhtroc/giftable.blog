@@ -193,3 +193,5 @@ jekyll-archives:
     tag: /tags/:name/
     category: /:name/
 
+plugins:
+  - jekyll-last-modified-at
