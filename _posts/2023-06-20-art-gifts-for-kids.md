@@ -4,7 +4,7 @@ description: "Are you ready to embark on an artistic adventure with the young cr
 date: 2023-06-20 00:00:00 +0000
 last-modify-at: 
 permalink: "/art-gifts-for-kids/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: art kids
 image:
     path: "/assets/img/post/2023/09/copied/art-gifts-for-kids.jpg"

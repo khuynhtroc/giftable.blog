@@ -4,7 +4,7 @@ description: "As someone once said, ‘Being the middle child is like being the 
 date: 2023-06-14 00:00:00 +0000
 last-modify-at: 
 permalink: "/middle-child-gifts/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: child special
 image:
     path: "/assets/img/post/2023/09/copied/middle-child-gifts.jpg"

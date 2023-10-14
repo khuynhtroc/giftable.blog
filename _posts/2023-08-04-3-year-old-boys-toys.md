@@ -4,7 +4,7 @@ description: "Whether you are looking for a toy that encourages imaginative play
 date: 2023-08-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/3-year-old-boys-toys/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys boys
 image:
     path: "/assets/img/post/2023/09/copied/toys-for-3-year-old-boys.jpg"

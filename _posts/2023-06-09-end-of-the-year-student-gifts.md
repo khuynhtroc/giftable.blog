@@ -4,7 +4,7 @@ description: "As the school year draws to a close, it’s time to celebrate the 
 date: 2023-06-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/end-of-the-year-student-gifts/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: end year student 
 image:
     path: "/assets/img/post/2023/09/copied/End-Of-The-Year-Student-Gifts.jpg"

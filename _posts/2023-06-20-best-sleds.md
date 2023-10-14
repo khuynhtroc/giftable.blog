@@ -4,7 +4,7 @@ description: "Get ready for some winter excitement with our selection of the 34 
 date: 2023-06-20 00:00:00 +0000
 last-modify-at: 
 permalink: "/best-sleds/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: sleds kids 
 image:
     path: "/assets/img/post/2023/09/copied/best-sleds.jpg"

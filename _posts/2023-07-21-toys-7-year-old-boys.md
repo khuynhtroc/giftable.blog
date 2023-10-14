@@ -4,7 +4,7 @@ description: "Are you searching for the perfect toys to delight and captivate yo
 date: 2023-07-21 00:00:00 +0000
 last-modify-at: 
 permalink: "/toys-7-year-old-boys/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys boys
 image:
     path: "/assets/img/post/2023/09/copied/toy-for-7-year-old-boys-1.jpg"

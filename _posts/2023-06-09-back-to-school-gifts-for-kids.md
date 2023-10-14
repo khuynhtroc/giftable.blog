@@ -4,7 +4,7 @@ description: "It offers a collection of 35 back to school gifts for kids, includ
 date: 2023-06-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/back-to-school-gifts-for-kids/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: school kids
 image:
     path: "/assets/img/post/2023/09/copied/Back-To-School-Gifts-For-Kids.jpg"

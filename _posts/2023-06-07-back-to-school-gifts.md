@@ -4,7 +4,7 @@ description: "It’s a time when students embark on a fresh journey, armed with 
 date: 2023-06-07 00:00:00 +0000
 last-modify-at: 
 permalink: "/back-to-school-gifts/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: back-to-school kids
 image:
     path: "/assets/img/post/2023/09/copied/back-to-school-gifts-1.jpg"

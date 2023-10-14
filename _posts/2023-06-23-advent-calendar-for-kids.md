@@ -4,7 +4,7 @@ description: "Step into the magical world of anticipation and joy with our extra
 date: 2023-06-23 00:00:00 +0000
 last-modify-at: 
 permalink: "/advent-calendar-for-kids/"
-categories: Occasions Christmas Kids-teens
+categories: [Occasions, Kids & Teens, Christmas]
 tags: calendar count-down
 image:
     path: "/assets/img/post/2023/09/copied/Advent-Calendar-For-Kids.jpg"
