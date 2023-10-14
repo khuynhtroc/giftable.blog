@@ -4,7 +4,7 @@ description: "Discover the extraordinary world of Magpie Gifts with our collecti
 date: 2023-05-23 00:00:00 +0000
 last-modify-at: 
 permalink: "/magpie-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: magpie occasion
 image:
     path: "/assets/img/post/2023/09/copied/Magpie-Gifts.jpg"
