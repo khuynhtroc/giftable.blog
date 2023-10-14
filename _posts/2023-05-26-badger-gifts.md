@@ -4,7 +4,7 @@ description: "Badger Gifts offers a range of products that showcase these charmi
 date: 2023-05-26 00:00:00 +0000
 last-modify-at: 
 permalink: "/badger-gifts/"
-categories: [Interests, Animal-lovers]
+categories: [Interests, Animal Lovers]
 tags: badger lovers
 image:
     path: "/assets/img/post/2023/09/copied/Badger-Gifts.jpg"
