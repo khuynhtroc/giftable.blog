@@ -4,7 +4,7 @@ description: "Whether it’s cat-themed clothing, accessories, home decor, or hu
 date: 2023-08-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/fun-cat-gifts/"
-categories: [Interests Animal Lovers]
+categories: [Interests, Animal Lovers]
 tags: cat delight
 image:
     path: "/assets/img/post/2023/09/copied/fun-cat-gifts.jpg"
