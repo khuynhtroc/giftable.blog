@@ -4,7 +4,7 @@ description: "Are you on the lookout for the perfect toys that will provide endl
 date: 2023-08-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/toys-for-5-year-old-boys/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys boys
 image:
     path: "/assets/img/post/2023/09/copied/toys-for-5-year-old-boys.jpg"
