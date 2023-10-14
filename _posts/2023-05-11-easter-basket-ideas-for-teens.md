@@ -4,7 +4,7 @@ description: "Impressing teens is a tall order, but our recommended gifts are gu
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/easter-basket-ideas-for-teens/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: easter-basket teens
 image:
     path: "/assets/img/post/2023/09/copied/medium_easter gifts for teens.png"

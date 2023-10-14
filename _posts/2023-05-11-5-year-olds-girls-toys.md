@@ -4,7 +4,7 @@ description: "Our incredible selection of 5-year-old girls toys will immerse you
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/5-year-olds-girls-toys/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys girls
 image:
     path: "/assets/img/post/2023/09/copied/medium_toys for 5 year olds girls.jpg"

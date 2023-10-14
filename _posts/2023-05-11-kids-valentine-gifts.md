@@ -4,7 +4,7 @@ description: "But actually, the true meaning of that day is not limited to peopl
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/kids-valentine-gifts/"
-categories: Occasions Valentine Kids-teens
+categories: [Occasions, Valentine, Kids & Teens]
 tags: kids lovely
 image:
     path: "/assets/img/post/2023/09/copied/medium_kids valentine gifts.jpg"

@@ -4,7 +4,7 @@ description: "Through imaginative and creative play, sensory toys attempt to eng
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/sensory-toys/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys toddlers kids
 image:
     path: "/assets/img/post/2023/09/copied/medium_sensory toys.jpg"

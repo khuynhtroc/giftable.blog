@@ -4,8 +4,8 @@ description: "Your gift recipient will feel special, and you won’t need to ask
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/quirky-valentines-gifts/"
-categories: Occasiquirky uniqueons Valentine
-tags: 
+categories: Occasions Valentine
+tags: valentines quirky
 image:
     path: "/assets/img/post/2023/09/copied/medium_quirky valentines gifts.jpg"
     alt: "Best Quirky Valentines Gifts That Are Unique And Fun"                                

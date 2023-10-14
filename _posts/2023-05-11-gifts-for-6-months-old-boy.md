@@ -4,7 +4,7 @@ description: "The best gift for a 6 month old baby should both nurture their gro
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-6-months-old-boy/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toy boys
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts-for-6-months-old-boy.png"
