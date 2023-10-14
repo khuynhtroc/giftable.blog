@@ -4,7 +4,7 @@ description: "As Albert Einstein once said, “Play is the highest form of resea
 date: 2023-08-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/toys-2-year-olds/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys light eyes
 image:
     path: "/assets/img/post/2023/09/copied/toys-for-2-year-olds.jpg"
