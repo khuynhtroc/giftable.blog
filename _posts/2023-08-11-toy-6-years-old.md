@@ -4,7 +4,7 @@ description: "This collection also includes interactive STEM kits that foster a 
 date: 2023-08-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/toy-6-years-old/"
-categories: Recipients Kids-teens
+categories: [Recipients, Kids & Teens]
 tags: toys 6-years-old
 image:
     path: "/assets/img/post/2023/09/copied/toy-for-6-years-old.jpg"
