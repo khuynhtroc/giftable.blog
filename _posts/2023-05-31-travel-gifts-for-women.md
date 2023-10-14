@@ -4,7 +4,7 @@ description: "Caring, love, and gift is always the best recipe to strengthen you
 date: 2023-05-31 00:00:00 +0000
 last-modify-at: 
 permalink: "/travel-gifts-for-women/"
-categories: Interests Outdoors-sports Women
+categories: [Interests, Outdoors + Sports, Women]
 tags: travel exploring
 image:
     path: "/assets/img/post/2023/09/copied/medium_Travel Gifts For Women.jpg"

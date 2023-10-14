@@ -4,7 +4,7 @@ description: "Don’t settle for the same old golfing experience. Embrace the la
 date: 2023-08-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/funny-golf-gifts/"
-categories: Interests Outdoors-sports
+categories: [Interests, Outdoors + Sports]
 tags: golf satisfy
 image:
     path: "/assets/img/post/2023/09/copied/funny-golf-gifts.jpg"
