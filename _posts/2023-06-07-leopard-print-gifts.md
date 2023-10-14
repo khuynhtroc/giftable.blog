@@ -4,7 +4,7 @@ description: "Welcome to our world of fabulous leopard print gifts! If you’re 
 date: 2023-06-07 00:00:00 +0000
 last-modify-at: 
 permalink: "/leopard-print-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: leopard-print anyone
 image:
     path: "/assets/img/post/2023/09/copied/leopard-print-gifts-1-14.jpg"
