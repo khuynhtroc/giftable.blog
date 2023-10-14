@@ -4,7 +4,7 @@ description: "Remember, the bond between a French Bulldog and its owner is speci
 date: 2023-08-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/french-bulldog-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: bulldog frenchie-lovers
 image:
     path: "/assets/img/post/2023/09/copied/french-bulldog-gifts.jpg"

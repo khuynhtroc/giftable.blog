@@ -4,7 +4,7 @@ description: "Find the perfect monkey-themed gift in our collection of 35 unique
 date: 2023-05-19 00:00:00 +0000
 last-modify-at: 
 permalink: "/monkey-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: monkey delightful playful
 image:
     path: "/assets/img/post/2023/09/copied/Monkey-Gifts.jpg"

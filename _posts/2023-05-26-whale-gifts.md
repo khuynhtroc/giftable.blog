@@ -4,7 +4,7 @@ description: "Are you ready to dive into a world of wonder and enchantment? Look
 date: 2023-05-26 00:00:00 +0000
 last-modify-at: 
 permalink: "/whale-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: whale adults
 image:
     path: "/assets/img/post/2023/09/copied/Whale-Gifts.jpg"

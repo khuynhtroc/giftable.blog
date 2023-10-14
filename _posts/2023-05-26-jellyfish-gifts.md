@@ -4,7 +4,7 @@ description: "Dive into a jellyfish extravaganza with our stylish and chic colle
 date: 2023-05-26 00:00:00 +0000
 last-modify-at: 
 permalink: "/jellyfish-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: jellyfish lovers
 image:
     path: "/assets/img/post/2023/09/copied/jellyfish-gifts.jpg"

@@ -4,7 +4,7 @@ description: "By investing in products designed with their well-being in mind, y
 date: 2023-08-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-old-dogs/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: old-dogs furry-friend
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-old-dogs.jpg"

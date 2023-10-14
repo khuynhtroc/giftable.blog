@@ -4,7 +4,7 @@ description: "If you’re searching for the perfect gift that embodies warmth, t
 date: 2023-05-23 00:00:00 +0000
 last-modify-at: 
 permalink: "/polar-bear-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: polar-bear enthusiasts
 image:
     path: "/assets/img/post/2023/09/copied/polar-bear-gifts.jpg"

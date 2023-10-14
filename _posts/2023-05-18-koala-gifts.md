@@ -4,7 +4,7 @@ description: "Welcome to a world of adorable wonders and heartfelt connections w
 date: 2023-05-18 00:00:00 +0000
 last-modify-at: 
 permalink: "/koala-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: koala surprises
 image:
     path: "/assets/img/post/2023/09/copied/Koala-Gifts.jpg"

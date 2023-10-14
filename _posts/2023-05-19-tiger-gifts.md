@@ -4,7 +4,7 @@ description: "Tigers have long been revered for their majestic beauty, strength,
 date: 2023-05-19 00:00:00 +0000
 last-modify-at: 
 permalink: "/tiger-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: tiger presents
 image:
     path: "/assets/img/post/2023/09/copied/Tiger-Gifts.jpg"

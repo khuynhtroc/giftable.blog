@@ -4,7 +4,7 @@ description: "Turkeys, with their striking plumage and fascinating behavior, hav
 date: 2023-05-18 00:00:00 +0000
 last-modify-at: 
 permalink: "/turkey-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: turkey memorable
 image:
     path: "/assets/img/post/2023/09/copied/Turkey-Gifts.jpg"

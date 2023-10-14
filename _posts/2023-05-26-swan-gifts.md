@@ -4,7 +4,7 @@ description: "Swan gifts are a unique and elegant option for those who want to s
 date: 2023-05-26 00:00:00 +0000
 last-modify-at: 
 permalink: "/swan-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: swan lovers
 image:
     path: "/assets/img/post/2023/09/copied/Swan-Gifts.jpg"

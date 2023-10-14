@@ -4,7 +4,7 @@ description: "Doesn’t sloth remind you of any girl with who you feel safe and 
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/sloth-gifts-her/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: sloth bring
 image:
     path: "/assets/img/post/2023/09/copied/medium_sloth gifts for her.jpg"

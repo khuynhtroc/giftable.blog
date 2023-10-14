@@ -4,7 +4,7 @@ description: "Each shirt boasts clever wordplay, delightful artwork, and witty e
 date: 2023-08-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/funny-cat-shirts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: cat-shirts lovers
 image:
     path: "/assets/img/post/2023/09/copied/funny-cat-shirts.jpg"

@@ -4,7 +4,7 @@ description: "As the saying goes, “A house is not a home without a Boston Terr
 date: 2023-08-02 00:00:00 +0000
 last-modify-at: 
 permalink: "/boston-terrier-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: boston-terrier dog
 image:
     path: "/assets/img/post/2023/09/copied/boston-terrier-gifts.jpg"

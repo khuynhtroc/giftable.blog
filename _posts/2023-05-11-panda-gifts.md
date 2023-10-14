@@ -4,7 +4,7 @@ description: "Looking at pandas eating bamboo branches and the climbing tree is 
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/panda-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: panda light-up
 image:
     path: "/assets/img/post/2023/09/copied/medium_Panda Gifts.jpg"

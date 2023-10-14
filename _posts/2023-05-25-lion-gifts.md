@@ -4,7 +4,7 @@ description: "Our collection of lion gifts features 35 carefully curated items, 
 date: 2023-05-25 00:00:00 +0000
 last-modify-at: 
 permalink: "/lion-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: lion lovers
 image:
     path: "/assets/img/post/2023/09/copied/Lion-Gifts.jpg"

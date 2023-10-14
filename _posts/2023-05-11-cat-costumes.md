@@ -4,7 +4,7 @@ description: "Life would be boring and narrow when you only love yourself. Letâ€
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/cat-costumes/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: cat costumes
 image:
     path: "/assets/img/post/2023/09/copied/medium_Cat Costumes.jpg"

@@ -4,7 +4,7 @@ description: "Boxer Dog Gifts offers 35 curated products celebrating the playful
 date: 2023-08-02 00:00:00 +0000
 last-modify-at: 
 permalink: "/boxer-dog-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: boxer-dog lovers
 image:
     path: "/assets/img/post/2023/09/copied/boxer-dog-gifts.jpg"

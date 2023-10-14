@@ -4,7 +4,7 @@ description: "Sheep have long held a special place in cultural tales, representi
 date: 2023-05-22 00:00:00 +0000
 last-modify-at: 
 permalink: "/sheep-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: delightful enthusiasts
 image:
     path: "/assets/img/post/2023/09/copied/Sheep-Gifts.jpg"

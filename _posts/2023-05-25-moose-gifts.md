@@ -4,7 +4,7 @@ description: "Prepare to be enchanted by a collection of delightful treasures th
 date: 2023-05-25 00:00:00 +0000
 last-modify-at: 
 permalink: "/moose-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: moose cute
 image:
     path: "/assets/img/post/2023/09/copied/moose-gifts-.jpg"

@@ -4,7 +4,7 @@ description: "Calling all donkey enthusiasts and animal lovers! Prepare to be en
 date: 2023-05-25 00:00:00 +0000
 last-modify-at: 
 permalink: "/donkey-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: donkey lovers
 image:
     path: "/assets/img/post/2023/09/copied/donkey-gifts.jpg"

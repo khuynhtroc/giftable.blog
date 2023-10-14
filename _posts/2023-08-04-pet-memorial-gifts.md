@@ -4,7 +4,7 @@ description: "Are you looking for the perfect way to honor your beloved furry fr
 date: 2023-08-04 00:00:00 +0000
 last-modify-at: 
 permalink: "/pet-memorial-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: pet remember lost
 image:
     path: "/assets/img/post/2023/09/copied/Pet-Memorial-Gifts.jpg"

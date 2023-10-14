@@ -4,7 +4,7 @@ description: "Welcome to the enchanting world of Goose Gifts, where imagination 
 date: 2023-06-09 00:00:00 +0000
 last-modify-at: 
 permalink: "/goose-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: goose animal
 image:
     path: "/assets/img/post/2023/09/copied/Goose-Gifts.jpg"

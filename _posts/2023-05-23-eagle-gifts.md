@@ -4,7 +4,7 @@ description: "Eagles have been an important part of cultural tales and tradition
 date: 2023-05-23 00:00:00 +0000
 last-modify-at: 
 permalink: "/eagle-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: eagle grace strength
 image:
     path: "/assets/img/post/2023/09/copied/Eagle-Gifts.jpg"

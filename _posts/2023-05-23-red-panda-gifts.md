@@ -4,7 +4,7 @@ description: "Are you a fan of adorable and unique gifts? Do you have a soft spo
 date: 2023-05-23 00:00:00 +0000
 last-modify-at: 
 permalink: "/red-panda-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: panda adorable
 image:
     path: "/assets/img/post/2023/09/copied/red-panda-gifts.jpg"

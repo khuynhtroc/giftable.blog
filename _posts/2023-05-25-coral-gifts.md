@@ -4,7 +4,7 @@ description: "Now, dive into a realm where beauty meets symbolism, where the won
 date: 2023-05-25 00:00:00 +0000
 last-modify-at: 
 permalink: "/coral-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: coral ocean
 image:
     path: "/assets/img/post/2023/09/copied/Coral-Gifts.jpg"

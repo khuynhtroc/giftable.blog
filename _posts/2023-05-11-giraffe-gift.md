@@ -4,7 +4,7 @@ description: "If you’re on the lookout for unique and delightful gifts, why no
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/giraffe-gift/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: giraffe impressed
 image:
     path: "/assets/img/post/2023/09/copied/medium_Giraffe Gift.jpg"

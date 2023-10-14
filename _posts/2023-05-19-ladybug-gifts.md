@@ -4,7 +4,7 @@ description: "Imagine strolling through a sun-kissed garden, where vibrant flowe
 date: 2023-05-19 00:00:00 +0000
 last-modify-at: 
 permalink: "/ladybug-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: ladybug presents
 image:
     path: "/assets/img/post/2023/09/copied/Ladybug-Gifts.jpg"

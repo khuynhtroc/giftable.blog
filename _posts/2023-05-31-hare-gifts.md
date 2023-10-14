@@ -4,7 +4,7 @@ description: "Are you searching for a unique and enchanting gift that will bring
 date: 2023-05-31 00:00:00 +0000
 last-modify-at: 
 permalink: "/hare-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: hare anyone
 image:
     path: "/assets/img/post/2023/09/copied/hare-gifts.jpg"

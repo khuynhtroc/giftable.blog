@@ -4,7 +4,7 @@ description: "Welcome to the enchanting world of manatee gifts, where you can di
 date: 2023-05-26 00:00:00 +0000
 last-modify-at: 
 permalink: "/manatee-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: manatee lovers
 image:
     path: "/assets/img/post/2023/09/copied/Manatee-Gifts.jpg"

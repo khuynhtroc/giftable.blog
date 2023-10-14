@@ -4,7 +4,7 @@ description: "Welcome to a world where the enchanting beauty of bluebirds takes 
 date: 2023-05-31 00:00:00 +0000
 last-modify-at: 
 permalink: "/bluebird-gifts/"
-categories: Interests Animal-lovers
+categories: [Interests, Animal Lovers]
 tags: bluebird lovers
 image:
     path: "/assets/img/post/2023/09/copied/blue-bird-gifts.jpg"
