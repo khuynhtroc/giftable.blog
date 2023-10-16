@@ -3,7 +3,7 @@
 icon: fas fa-info-circle
 order: 4
 title: About Us
-description: As soon as you find that perfect birthday gift for Aunt Netty, you need to start looking for your cousin's anniversary gift. It doesn't stop. Well, neither do we. Finally, a gifting website that doesn't suck.
+description: Giftable as soon as you find that perfect birthday gift, you need to start looking for your cousin's anniversary gift. It doesn't stop. Well, neither do we. Finally, a gifting website that doesn't suck.
 permalink: /about/
 toc: false
 ---
@@ -11,19 +11,19 @@ toc: false
 We try our best to find the perfect gifts for every occasion. That’s our job.
 =============================================================================
 
-![](https://giftlab.co/wp-content/uploads/2023/01/giftlab-1-1-500x250.png)
+![Giftable](https://giftlab.co/wp-content/uploads/2023/01/giftlab-1-1-500x250.png)
 
 The struggle is real.
 ---------------------
 
-Finding great gifts for your family and friends year after year is **_tough_**. It can take hours of scrolling and googling to find the perfect thing to delight the ones you love. Giftlab makes it easier.
+Finding great gifts for your family and friends year after year is **_tough_**. It can take hours of scrolling and googling to find the perfect thing to delight the ones you love. [Giftable](/) makes it easier.
 
 It’s all in the process.
 ------------------------
 
-Giftlab is a **_data-driven company that_** prides itself on our  lists. We are constantly updating our existing gift guides and running reports to make sure the best most clicked items make their way to the top of our lists – saving you time.
+Giftlab is a **_data-driven company that_** prides itself on our lists. We are constantly updating our existing gift guides and running reports to make sure the best most clicked items make their way to the top of our lists – saving you time.
 
-We keep our links are up to date, so you you’re not disappointed when you click links that are broken, outdated, or out of stock. We built [Lasso](https://getlasso.co/) to do this for us.
+We keep our links are up to date, so you you’re not disappointed when you click links that are broken, outdated, or out of stock. We built Lasso to do this for us.
 
 We have great taste.
 --------------------
@@ -37,11 +37,11 @@ We believe transparency is key to earning and maintaining your trust, so we want
 
 When you click on a gift idea from one of our lists and make a purchase, sometimes the company you purchased from pays us a commission. It does not change the price you pay.
 
-By being a member of the [Amazon Associates program](https://getlasso.co/affiliate/amazon-associates/), we earn money from qualifying purchases you make that we refer. Since most things we buy are on Amazon anyway, it works out quite well.
+By being a member of the Amazon Associates program, we earn money from qualifying purchases you make that we refer. Since most things we buy are on Amazon anyway, it works out quite well.
 
-We also have a relationship with [Uncommon Goods](https://uncommongoods.sjv.io/c/1208728/490851/8444?u=https://www.uncommongoods.com/&fobs=about) since they also have some great gift options.
+We also have a relationship with Uncommon Goods since they also have some great gift options.
 
-Everything was built and monetized by [Lasso](https://getlasso.co/?ref=lmm&utm_source=GL).
+Everything was built and monetized by Lasso.
 
 Do your affiliate commissions make you biased?
 ----------------------------------------------
