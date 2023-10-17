@@ -7,8 +7,8 @@ permalink: "/halloween-gnomes/"
 categories: Occasions Halloween
 tags: creative gnomes
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/halloween-gnomes (1).jpg"
+    alt: "35 Creative Halloween Gnomes Ideas For 2023"                             
 ---    
 
 This Halloween, walk into a whimsical world of enchantment with our delightful collection of Halloween gnomes! These charming and mischievous creatures are here to add a touch of magic and festive spirit to your **[Halloween decorations](/halloween-decoration-ideas/)**. Imagine a scene where these adorable gnomes come alive under the moonlight, dressed in their finest spooky attire. Their mischievous grins and playful poses bring a sense of whimsy and joy to any Halloween setting.
