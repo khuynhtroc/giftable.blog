@@ -413,9 +413,9 @@ This watch has a genuine leather strap, which is splash resistant. Moreover it h
 
 [Buy from Loveable](https://loveable.ai/products/happy-birthday-limited-edition-personalized-mens-watch-birthday-gifts-for-husband-dad-grandpa-209ihpthwa179?variant=43828651327720?utm_source=avada&ranking=&utm_source=&utm_campaign=best-65th-birthday-gifts-for-the-special-one-in-your-life)
 
-### [23\. Happy 65th Birthday Party Supplies](https://www.amazon.com/Birthday-Supplies-Presents-Turning-Decoration/dp/B099YZNVJK?ie=UTF8&tag=avadalove-20)
+### [23\. Happy 65th Birthday Party Supplies](https://www.amazon.com/Birthday-Supplies-Presents-Turning-Decoration/dp/B099YZNVJK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Supplies-Presents-Turning-Decoration/dp/B099YZNVJK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Supplies-Presents-Turning-Decoration/dp/B099YZNVJK?ie=UTF8&tag=giftable02-20)
 
 It's been said that the happiest day of your life is the day you were born, but with the help of these fabulous 65th birthday party supplies, you will see that the day of your first big party will surely be unforgettable.
 
@@ -429,7 +429,7 @@ Each box includes with high quality soy candle, cheers to 65th birthday tumbler,
 
 ✔️ Keep the fun coming all year long
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Supplies-Presents-Turning-Decoration/dp/B099YZNVJK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Supplies-Presents-Turning-Decoration/dp/B099YZNVJK?ie=UTF8&tag=giftable02-20)
 
 ### [24\. 1957 Penny Heart Earrings](https://www.etsy.com/listing/1106419587/65th-birthday-1957-penny-heart-earrings)
 
@@ -757,9 +757,9 @@ Also excellent for any budding coin collector. The half penny is ex-circulated f
 
 [Buy from Esty](https://www.etsy.com/listing/937400593/65th-birthday-gift-1957-polished)
 
-### [42\. 65 Paper Party Sparkling Napkins](https://www.amazon.com/Sparkling-Celebration-Luncheon-Napkins-Birthday/dp/B07FPV73CG?ie=UTF8&tag=avadalove-20)
+### [42\. 65 Paper Party Sparkling Napkins](https://www.amazon.com/Sparkling-Celebration-Luncheon-Napkins-Birthday/dp/B07FPV73CG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sparkling-Celebration-Luncheon-Napkins-Birthday/dp/B07FPV73CG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sparkling-Celebration-Luncheon-Napkins-Birthday/dp/B07FPV73CG?ie=UTF8&tag=giftable02-20)
 
 65 Paper Party Napkins for a Sparkling Celebration Add a little of glitz to your table setting with these black napkins with a "Happy 65th Birthday" headline, dots, and stars that will stand out against any table setting.
 
@@ -773,7 +773,7 @@ These napkins' size is 6.5x6.5 inch, which is ideal for bringing some color and 
 
 ✔️ Be easy-to-use throughout the party
 
-[Buy from Amazon](https://www.amazon.com/Sparkling-Celebration-Luncheon-Napkins-Birthday/dp/B07FPV73CG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sparkling-Celebration-Luncheon-Napkins-Birthday/dp/B07FPV73CG?ie=UTF8&tag=giftable02-20)
 
 ### [43\. Born in 1957 Birthday Classic Shirt](https://www.etsy.com/listing/580337032/65th-birthday-gift-65th-birthday-shirt)
 
