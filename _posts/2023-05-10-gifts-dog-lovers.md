@@ -4,7 +4,7 @@ description: "There are plenty of things that you can give a dog lover. But we t
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-dog-lovers/"
-categories: Interests, [Animal Lovers]
+categories: [Interests, Animal Lovers]
 tags: personalized dog
 image:
     path: "/assets/img/post/2023/09/copied/medium_Gift For Dog Lovers.jpg"
