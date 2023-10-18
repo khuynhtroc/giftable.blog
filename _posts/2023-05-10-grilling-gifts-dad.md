@@ -4,7 +4,7 @@ description: "Particularly at the end of the week, he will remunerate the family
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/grilling-gifts-dad/"
-categories: Interests, Outdoors & Sports, Dad
+categories: [Interests, Outdoors & Sports, Dad]
 tags: grilling dad 
 image:
     path: "/assets/img/post/2023/09/copied/medium_grilling gifts for dad.png"
