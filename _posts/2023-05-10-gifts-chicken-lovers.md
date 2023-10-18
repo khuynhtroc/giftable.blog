@@ -4,7 +4,7 @@ description: "There is an increasing number of people who love raising chickens 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-chicken-lovers/"
-categories: [Interests, animal Lovers]
+categories: [Interests, Animal Lovers]
 tags: egg-cellent chicken
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for chicken lovers.jpg"
