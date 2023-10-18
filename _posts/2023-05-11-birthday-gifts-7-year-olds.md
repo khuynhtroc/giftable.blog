@@ -4,7 +4,7 @@ description: "With this sentiment in mind, we’ve handpicked a selection of gif
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/birthday-gifts-7-year-olds/"
-categories: [Occasions, Kids & Teens, Birthday]
+categories: [Recipients, Kids & Teens, Birthday]
 tags: birthday 7-year-olds
 image:
     path: "/assets/img/post/2023/09/copied/medium_Birthday gifts for 7 year olds.jpg"

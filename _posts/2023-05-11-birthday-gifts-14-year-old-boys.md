@@ -4,7 +4,7 @@ description: "14-year-old boys frequently undergo physiological changes and are 
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/birthday-gifts-14-year-old-boys/"
-categories: [Occasions, Kids & Teens, Birthday]
+categories: [Recipients, Kids & Teens, Birthday]
 tags: birthday boys
 image:
     path: "/assets/img/post/2023/09/copied/medium_Birthday gifts for 14 year old boy.jpg"

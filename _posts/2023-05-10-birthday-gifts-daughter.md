@@ -4,7 +4,7 @@ description: "Finding special birthday gifts for daughters can be difficult for 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/birthday-gifts-daughter/"
-categories: [Occasions, Kids & Teens, Birthday]
+categories: [Recipients, Kids & Teens, Birthday]
 tags: birthday daughter
 image:
     path: "/assets/img/post/2023/09/copied/medium_birthday gifts for daughter.png"
