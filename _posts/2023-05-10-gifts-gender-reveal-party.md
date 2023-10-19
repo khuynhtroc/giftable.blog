@@ -4,7 +4,7 @@ description: "If you find it difficult to pick up suitable gifts for a gender re
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-gender-reveal-party/"
-categories: Recipients Anyone
+categories: Interests Popular
 tags: gifts party
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for gender reveal party.jpg"
