@@ -4,7 +4,7 @@ description: "The fitness craze known as Crossfit is gaining more and more follo
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-crossfitters/"
-categories: [Interests, Outdoors + ports]
+categories: [Interests, Outdoors & Sports]
 tags: crossfitters workout
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-crossfitters.jpg"

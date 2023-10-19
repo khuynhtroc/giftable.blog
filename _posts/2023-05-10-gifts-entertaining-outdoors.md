@@ -4,7 +4,7 @@ description: "On the hot summer days, playing outdoors with friends and family, 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-entertaining-outdoors/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: entertaining outdoors
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for entertaining outdoors.jpg"
