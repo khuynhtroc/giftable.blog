@@ -4,7 +4,7 @@ description: "The road trip is a wonderful and amazing experience that you need 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/road-trips-gifts/"
-categories: [Interests, outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: road-trip trippers
 image:
     path: "/assets/img/post/2023/09/copied/medium_road trips gifts.png"

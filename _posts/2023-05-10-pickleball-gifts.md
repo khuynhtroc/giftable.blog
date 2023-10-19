@@ -4,7 +4,7 @@ description: "Almost everyone enjoys playing pickleball. Read on to learn about 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/pickleball-gifts/"
-categories: [Interests, outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: pickleball appreciate
 image:
     path: "/assets/img/post/2023/09/copied/medium_Pickleball gifts FIX.jpg"
