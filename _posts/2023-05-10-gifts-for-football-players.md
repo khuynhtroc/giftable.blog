@@ -4,7 +4,7 @@ description: "Since the gift that you will get is for a football player, it is n
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-football-players/"
-categories: [Interests, Outdoors & Sports]
+categories: [Interests, Outdoors + Sports]
 tags: football-players skill
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for football players (1).png"
