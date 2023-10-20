@@ -4,7 +4,7 @@ description: "Discover a curated collection of 35 irresistible Outdoor Lover Gif
 date: 2023-05-31 00:00:00 +0000
 last-modify-at: 
 permalink: "/outdoor-lover-gifts/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: Outdoor going-out
 image:
     path: "/assets/img/post/2023/09/copied/outdoor-lover-gifts.jpg"

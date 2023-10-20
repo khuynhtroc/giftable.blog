@@ -4,7 +4,7 @@ description: "Tennis presents range from equipment, jewelry, and a skort to clot
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/tennis-gifts-him/"
-categories: [Interests, Outdoors + Sports, Men]
+categories: [Interests, Outdoors & Sports, Men]
 tags: tennis enhance
 image:
     path: "/assets/img/post/2023/09/copied/medium_tennis gifts for him.png"

@@ -4,7 +4,7 @@ description: "Baseball is a sport that is popular all over the world and is know
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/baseball-gifts-boys/"
-categories: [Recipients, Kids & Teens, Outdoors + Sports]
+categories: [Recipients, Kids & Teens, Outdoors & Sports]
 tags: baseball boys
 image:
     path: "/assets/img/post/2023/09/copied/medium_baseball gifts.png"

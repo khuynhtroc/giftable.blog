@@ -4,7 +4,7 @@ description: "Are you searching for the perfect gift for a passionate runner in 
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-runners/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: runners motivate
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for runners.jpg"

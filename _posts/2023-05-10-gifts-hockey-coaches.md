@@ -4,7 +4,7 @@ description: "Giving your coach a wonderful gift is a wonderful way to show your
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-hockey-coaches/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: hockey-coaches love
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for hockey coaches.jpg"

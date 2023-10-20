@@ -4,7 +4,7 @@ description: "You shall come across quite a wide variety of pots, chemicals, lig
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-indoor-gardeners/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: indoor-gardeners heart
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for indoor gardeners.jpg"

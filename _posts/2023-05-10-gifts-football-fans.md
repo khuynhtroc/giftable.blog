@@ -4,7 +4,7 @@ description: "You are joining them in celebrating the victories, enduring the de
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-football-fans/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: football fans
 image:
     path: "/assets/img/post/2023/09/copied/football-fan-gifts.jpg"

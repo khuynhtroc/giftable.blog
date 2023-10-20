@@ -4,7 +4,7 @@ description: "We are dedicated to finding unique, thoughtful, and useful swimmin
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-swimmers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: swimmers water
 image:
     path: "/assets/img/post/2023/09/copied/medium_best gifts for swimmers.jpg"

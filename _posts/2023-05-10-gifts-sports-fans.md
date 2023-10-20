@@ -4,7 +4,7 @@ description: "In our array of products, you’ll discover more than just items; 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-sports-fans/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: sports-fans sportsperson
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for sports fans.jpg"

@@ -4,7 +4,7 @@ description: "Skiing is a gear-heavy sport, so you can’t go wrong with getting
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-skiers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: unique skiers
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts-for-skiers.png"

@@ -4,7 +4,7 @@ description: "When shopping for someone who loves to kayak or canoe, you might b
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-kayakers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: kayakers enhance 
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for ayakers.jpg"

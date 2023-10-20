@@ -4,7 +4,7 @@ description: "If you are still struggling with choosing a gift for someone who i
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-hikers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: hikers appreciate
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for hikers.jpg"

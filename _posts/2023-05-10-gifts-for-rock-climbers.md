@@ -4,7 +4,7 @@ description: "You want to give your friends, husband, daughter, or one of your l
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-rock-climbers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: rock-climbers always
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for rock climber.png"

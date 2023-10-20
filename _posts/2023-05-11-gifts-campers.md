@@ -4,7 +4,7 @@ description: "If you have any friends or relatives who love going camping or are
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-campers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: campers appreciate
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for campers.jpg"

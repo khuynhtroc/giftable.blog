@@ -4,7 +4,7 @@ description: "If you’re looking for the perfect gifts for soccer lovers, look 
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-soccer-lovers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: soccer wildest-dream
 image: 
     path: "/assets/img/post/2023/09/copied/medium_gifts for soccer lovers.jpg"

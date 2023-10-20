@@ -4,7 +4,7 @@ description: "Gifts for dancers are functional as they can be given on a variety
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-dancers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: dancers twirl
 image:
     path: "/assets/img/post/2023/09/copied/medium_Gifts for dancers.jpg"

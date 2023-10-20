@@ -4,7 +4,7 @@ description: "Embrace the sentimental spirit of the game by surprising your hock
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-hockey-players/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: hockey game
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts-for-hockey-players.png"

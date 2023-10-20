@@ -4,7 +4,7 @@ description: "The holiday is coming near us, and it is time to show your swim co
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-swim-coaches/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: swim-coaches appreciation
 image:
     path: "/assets/img/post/2023/09/copied/medium_Best Gifts For Swim Coaches To Exemplify Your Appreciation.jpg"

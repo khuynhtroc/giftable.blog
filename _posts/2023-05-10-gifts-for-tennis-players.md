@@ -4,7 +4,7 @@ description: "It might be difficult to find a perfect gift for a committed tenni
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-for-tennis-players/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: tennis-players game
 image:
     path: "/assets/img/post/2023/09/copied/gifts-for-tennis-players.jpg"

@@ -4,7 +4,7 @@ description: "Bodybuilding is also a sport in which it could be how you live and
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-bodybuilders/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: bodybuilders tailored
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for bodybuilders.jpg"

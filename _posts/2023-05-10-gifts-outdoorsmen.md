@@ -4,7 +4,7 @@ description: "Finding a gift for your outdoorsmen is really important as it will
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-outdoorsmen/"
-categories: [Interests, Outdoors + Sports, Men]
+categories: [Interests, Outdoors & Sports, Men]
 tags: outdoorsmen nature
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for outdoorsmen.jpg"

@@ -4,7 +4,7 @@ description: "Whether it’s an inspirational quote engraved on a personalized w
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-walkers/"
-categories: [Interests, Outdoors + Sports]
+categories: [Interests, Outdoors & Sports]
 tags: walkers count
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for joggers.png"
