@@ -17,9 +17,9 @@ Imagine the sheer delight on their faces as they wake up each morning, eager to 
 
 Each advent calendar is a treasure trove of surprises, meticulously crafted to ignite their wonder and anticipation. Every day, from miniature toys and trinkets to delicious treats and \*delightful activities, brings a new delight. Let the enchantment unfold as they embark on a magical journey, counting down the days until Christmas with joy and excitement. Discover the perfect advent calendar for your little ones and make this \*\*\[Christmas an unforgettable celebration of joy and wonder.
 
-### [1\. Family Advent Calendar](https://www.amazon.com/Disney-Encanto-Madrigal-Advent-Calendar/dp/B09NVN3WLP/?ie=UTF8&tag=avadalove-20)
+### [1\. Family Advent Calendar](https://www.amazon.com/Disney-Encanto-Madrigal-Advent-Calendar/dp/B09NVN3WLP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Disney-Encanto-Madrigal-Advent-Calendar/dp/B09NVN3WLP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Disney-Encanto-Madrigal-Advent-Calendar/dp/B09NVN3WLP/?ie=UTF8&tag=giftable02-20)
 
 Step into the enchanting world of Disney's Encanto with our extraordinary Family Advent Calendar.
 
@@ -33,11 +33,11 @@ Unwrap the joy and excitement of the holiday season with the Madrigal family as 
 
 ✔️ Magical surprises every day
 
-[Buy from Amazon](https://www.amazon.com/Disney-Encanto-Madrigal-Advent-Calendar/dp/B09NVN3WLP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Disney-Encanto-Madrigal-Advent-Calendar/dp/B09NVN3WLP/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Girls Advent Calendar](https://www.amazon.com/Christmas-Countdown-accessories-Bracelets-Sunglasses/dp/B0B8SKGPPB/r?ie=UTF8&tag=avadalove-20)
+### [2\. Girls Advent Calendar](https://www.amazon.com/Christmas-Countdown-accessories-Bracelets-Sunglasses/dp/B0B8SKGPPB/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-Countdown-accessories-Bracelets-Sunglasses/dp/B0B8SKGPPB/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-Countdown-accessories-Bracelets-Sunglasses/dp/B0B8SKGPPB/r?ie=UTF8&tag=giftable02-20)
 
 Embark on a delightful journey of surprises and joy with our Girls Advent Calendar.
 
@@ -51,11 +51,11 @@ Open a door each day to reveal a delightful surprise, from sparkly bracelets to 
 
 ✔️ Exciting surprises every day
 
-[Buy from Amazon](https://www.amazon.com/Christmas-Countdown-accessories-Bracelets-Sunglasses/dp/B0B8SKGPPB/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-Countdown-accessories-Bracelets-Sunglasses/dp/B0B8SKGPPB/r?ie=UTF8&tag=giftable02-20)
 
-### [3\. Wheels Advent Calendar](https://www.amazon.com/Hot-Wheels-Calendar-Holiday-Themed-Accessories/dp/B09NRWHM96/?ie=UTF8&tag=avadalove-20)
+### [3\. Wheels Advent Calendar](https://www.amazon.com/Hot-Wheels-Calendar-Holiday-Themed-Accessories/dp/B09NRWHM96/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hot-Wheels-Calendar-Holiday-Themed-Accessories/dp/B09NRWHM96/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hot-Wheels-Calendar-Holiday-Themed-Accessories/dp/B09NRWHM96/?ie=UTF8&tag=giftable02-20)
 
 Each day, your child will unveil a new surprise, from exclusive Hot Wheels cars to track pieces and accessories. Watch their eyes light up with joy as they discover the world of Hot Wheels unfold before their eyes.
 
@@ -69,11 +69,11 @@ This advent calendar is not just about counting down to Christmas, but also abou
 
 ✔️ Exclusive Hot Wheels collectibles
 
-[Buy from Amazon](https://www.amazon.com/Hot-Wheels-Calendar-Holiday-Themed-Accessories/dp/B09NRWHM96/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hot-Wheels-Calendar-Holiday-Themed-Accessories/dp/B09NRWHM96/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Lego Advent Calendar](https://www.amazon.com/LEGO-Friends-Calendar-Building-Including/dp/B09YVTV39F/?ie=UTF8&tag=avadalove-20)
+### [4\. Lego Advent Calendar](https://www.amazon.com/LEGO-Friends-Calendar-Building-Including/dp/B09YVTV39F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEGO-Friends-Calendar-Building-Including/dp/B09YVTV39F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEGO-Friends-Calendar-Building-Including/dp/B09YVTV39F/?ie=UTF8&tag=giftable02-20)
 
 Watch as your child's excitement grows with each passing day as they build and create their very own Lego world.
 
@@ -87,11 +87,11 @@ The Lego Advent Calendar includes 24 surprises, one each day leading up to Chris
 
 ✔️ Builds fine motor skills
 
-[Buy from Amazon](https://www.amazon.com/LEGO-Friends-Calendar-Building-Including/dp/B09YVTV39F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEGO-Friends-Calendar-Building-Including/dp/B09YVTV39F/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Disney Advent Calendar](https://www.amazon.com/Disney-18922-Classic-Advent-Calendar/dp/B0851HMW2Q/?ie=UTF8&tag=avadalove-20)
+### [5\. Disney Advent Calendar](https://www.amazon.com/Disney-18922-Classic-Advent-Calendar/dp/B0851HMW2Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Disney-18922-Classic-Advent-Calendar/dp/B0851HMW2Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Disney-18922-Classic-Advent-Calendar/dp/B0851HMW2Q/?ie=UTF8&tag=giftable02-20)
 
 Behind each door awaits a delightful surprise featuring beloved Disney characters, making every day leading up to Christmas a truly special experience.
 
@@ -105,11 +105,11 @@ Uncover mini-figures, accessories, and iconic Disney elements as your child expl
 
 ✔️ Unveils beloved Disney characters
 
-[Buy from Amazon](https://www.amazon.com/Disney-18922-Classic-Advent-Calendar/dp/B0851HMW2Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Disney-18922-Classic-Advent-Calendar/dp/B0851HMW2Q/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Jurassic World Advent Calendar](https://www.amazon.com/Fisher-Price-Imaginext-Jurassic-World-Calendar/dp/B09RQ3M1WR/?ie=UTF8&tag=avadalove-20)
+### [6\. Jurassic World Advent Calendar](https://www.amazon.com/Fisher-Price-Imaginext-Jurassic-World-Calendar/dp/B09RQ3M1WR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Imaginext-Jurassic-World-Calendar/dp/B09RQ3M1WR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Imaginext-Jurassic-World-Calendar/dp/B09RQ3M1WR/?ie=UTF8&tag=giftable02-20)
 
 Uncover mini-figures, accessories, and surprise Jurassic World elements as your child opens each door. From ferocious T-rex to cunning raptors, this advent calendar is a gateway to a world of dinosaur fun.
 
@@ -123,11 +123,11 @@ With 24 surprises, this Jurassic World Advent Calendar is packed with prehistori
 
 ✔️ Unveils exciting Jurassic World elements
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Imaginext-Jurassic-World-Calendar/dp/B09RQ3M1WR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Imaginext-Jurassic-World-Calendar/dp/B09RQ3M1WR/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Rock Collection Advent Calendar](https://www.amazon.com/NATIONAL-GEOGRAPHIC-Collection-Advent-Calendar/dp/B0B7QFGHXF/?ie=UTF8&tag=avadalove-20)
+### [7\. Rock Collection Advent Calendar](https://www.amazon.com/NATIONAL-GEOGRAPHIC-Collection-Advent-Calendar/dp/B0B7QFGHXF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/NATIONAL-GEOGRAPHIC-Collection-Advent-Calendar/dp/B0B7QFGHXF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/NATIONAL-GEOGRAPHIC-Collection-Advent-Calendar/dp/B0B7QFGHXF/?ie=UTF8&tag=giftable02-20)
 
 Each day, your child will unveil a new specimen and learn its origin, properties, and significance.
 
@@ -141,11 +141,11 @@ With 24 carefully selected specimens, this Rock Collection Advent Calendar provi
 
 ✔️ Offers educational insights into geology
 
-[Buy from Amazon](https://www.amazon.com/NATIONAL-GEOGRAPHIC-Collection-Advent-Calendar/dp/B0B7QFGHXF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/NATIONAL-GEOGRAPHIC-Collection-Advent-Calendar/dp/B0B7QFGHXF/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Holiday Advent Calendar](https://www.amazon.com/Jazwares-Pokemon-Holiday-Advent-Calendar/dp/B08T4FMGK9/?ie=UTF8&tag=avadalove-20)
+### [8\. Holiday Advent Calendar](https://www.amazon.com/Jazwares-Pokemon-Holiday-Advent-Calendar/dp/B08T4FMGK9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jazwares-Pokemon-Holiday-Advent-Calendar/dp/B08T4FMGK9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jazwares-Pokemon-Holiday-Advent-Calendar/dp/B08T4FMGK9/?ie=UTF8&tag=giftable02-20)
 
 Unleash the holiday magic with the Pokemon Holiday Advent Calendar. Behind each door, your child will discover a delightful surprise from the world of Pokemon.
 
@@ -159,11 +159,11 @@ As your child opens each door, they'll unveil a new Pokemon character, accessory
 
 ✔️ Offers a daily dose of Pokemon excitement
 
-[Buy from Amazon](https://www.amazon.com/Jazwares-Pokemon-Holiday-Advent-Calendar/dp/B08T4FMGK9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jazwares-Pokemon-Holiday-Advent-Calendar/dp/B08T4FMGK9/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Lego Toy Advent Calendar](https://www.amazon.com/LEGO-Calendar-Building-Playmat-Characters/dp/B09YVTG8DQ/?ie=UTF8&tag=avadalove-20)
+### [9\. Lego Toy Advent Calendar](https://www.amazon.com/LEGO-Calendar-Building-Playmat-Characters/dp/B09YVTG8DQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEGO-Calendar-Building-Playmat-Characters/dp/B09YVTG8DQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEGO-Calendar-Building-Playmat-Characters/dp/B09YVTG8DQ/?ie=UTF8&tag=giftable02-20)
 
 As your child opens each door, they'll discover mini LEGO figures, accessories, and festive elements that come together to create a unique holiday-themed play experience.
 
@@ -177,7 +177,7 @@ From snowmen to sleighs, this advent calendar brings the season's joy to life th
 
 ✔️ Offers daily surprises for building fun
 
-[Buy from Amazon](https://www.amazon.com/LEGO-Calendar-Building-Playmat-Characters/dp/B09YVTG8DQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEGO-Calendar-Building-Playmat-Characters/dp/B09YVTG8DQ/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Personalised Advent Calendar](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1301552523/)
 
@@ -197,9 +197,9 @@ Imagine the joy on your child's face as they uncover a personalized surprise eac
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1301552523/)
 
-### [11\. Super Mario Advent Calendar](https://www.amazon.com/Super-Advent-Calendar-Limited-Christmas/dp/B07KW3VPJ1/?ie=UTF8&tag=avadalove-20)
+### [11\. Super Mario Advent Calendar](https://www.amazon.com/Super-Advent-Calendar-Limited-Christmas/dp/B07KW3VPJ1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Super-Advent-Calendar-Limited-Christmas/dp/B07KW3VPJ1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Super-Advent-Calendar-Limited-Christmas/dp/B07KW3VPJ1/?ie=UTF8&tag=giftable02-20)
 
 Embark on an exciting journey with the Super Mario Advent Calendar, a must-have for every young adventurer and fan of the iconic video game franchise.
 
@@ -213,11 +213,11 @@ Behind each door lies a surprise that will transport your child to the enchantin
 
 ✔️ Exciting surprises from the Super Mario universe
 
-[Buy from Amazon](https://www.amazon.com/Super-Advent-Calendar-Limited-Christmas/dp/B07KW3VPJ1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Super-Advent-Calendar-Limited-Christmas/dp/B07KW3VPJ1/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Barbie Color Advent Calendar](https://www.amazon.com/Barbie-Color-Reveal-Advent-Calendar/dp/B09NMRDRVX/?ie=UTF8&tag=avadalove-20)
+### [12\. Barbie Color Advent Calendar](https://www.amazon.com/Barbie-Color-Reveal-Advent-Calendar/dp/B09NMRDRVX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Barbie-Color-Reveal-Advent-Calendar/dp/B09NMRDRVX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Barbie-Color-Reveal-Advent-Calendar/dp/B09NMRDRVX/?ie=UTF8&tag=giftable02-20)
 
 This advent calendar is more than just a countdown; it's a gateway to endless imaginative play.
 
@@ -231,11 +231,11 @@ With the color-changing surprises, they can transform their Barbie dolls' outfit
 
 ✔️ Color-changing surprises for endless creativity
 
-[Buy from Amazon](https://www.amazon.com/Barbie-Color-Reveal-Advent-Calendar/dp/B09NMRDRVX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Barbie-Color-Reveal-Advent-Calendar/dp/B09NMRDRVX/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Christmas Advent Calendar](https://www.amazon.com/Calendar-Christmas-Countdown-Calendars-Bracelet/dp/B0BFQVV4T6/?ie=UTF8&tag=avadalove-20)
+### [13\. Christmas Advent Calendar](https://www.amazon.com/Calendar-Christmas-Countdown-Calendars-Bracelet/dp/B0BFQVV4T6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Calendar-Christmas-Countdown-Calendars-Bracelet/dp/B0BFQVV4T6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Calendar-Christmas-Countdown-Calendars-Bracelet/dp/B0BFQVV4T6/?ie=UTF8&tag=giftable02-20)
 
 This beautifully crafted calendar holds hidden treasures behind each door, bringing joy and anticipation to your child's countdown to Christmas.
 
@@ -249,7 +249,7 @@ With its festive design and intricate details, it creates a delightful atmospher
 
 ✔️ Hidden treasures behind each door
 
-[Buy from Amazon](https://www.amazon.com/Calendar-Christmas-Countdown-Calendars-Bracelet/dp/B0BFQVV4T6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Calendar-Christmas-Countdown-Calendars-Bracelet/dp/B0BFQVV4T6/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. DIY Advent Calendar](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1314505365/)
 
@@ -269,9 +269,9 @@ The DIY Advent Calendar provides a wonderful opportunity for you and your child 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1314505365/)
 
-### [15\. Educational Advent Calendar](https://www.amazon.com/Educational-Insights-Advent-Calendar-Party/dp/B09TV14YSL/?ie=UTF8&tag=avadalove-20)
+### [15\. Educational Advent Calendar](https://www.amazon.com/Educational-Insights-Advent-Calendar-Party/dp/B09TV14YSL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Educational-Insights-Advent-Calendar-Party/dp/B09TV14YSL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Educational-Insights-Advent-Calendar-Party/dp/B09TV14YSL/?ie=UTF8&tag=giftable02-20)
 
 From math challenges and science experiments to language puzzles and brain teasers, the Educational Advent Calendar provides a fun and engaging way for your child to learn and explore.
 
@@ -285,11 +285,11 @@ Measuring approximately 12 x 9 x 2 inches, this calendar is designed with bright
 
 ✔️ Promotes educational activities
 
-[Buy from Amazon](https://www.amazon.com/Educational-Insights-Advent-Calendar-Party/dp/B09TV14YSL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Educational-Insights-Advent-Calendar-Party/dp/B09TV14YSL/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Pokemon Advent Calendar](https://www.amazon.com/Pokemon-Holiday-Advent-Calendar-Playset/dp/B0B1JRG4LJ/?ie=UTF8&tag=avadalove-20)
+### [16\. Pokemon Advent Calendar](https://www.amazon.com/Pokemon-Holiday-Advent-Calendar-Playset/dp/B0B1JRG4LJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pokemon-Holiday-Advent-Calendar-Playset/dp/B0B1JRG4LJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pokemon-Holiday-Advent-Calendar-Playset/dp/B0B1JRG4LJ/?ie=UTF8&tag=giftable02-20)
 
 Each day reveals a new Pokemon-themed surprise, allowing your child to dive into the captivating world of Pokemon and ignite their imagination.
 
@@ -303,11 +303,11 @@ Your child will have the opportunity to expand their Pokemon collection, engage 
 
 ✔️ Collectible Pokemon surprises
 
-[Buy from Amazon](https://www.amazon.com/Pokemon-Holiday-Advent-Calendar-Playset/dp/B0B1JRG4LJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pokemon-Holiday-Advent-Calendar-Playset/dp/B0B1JRG4LJ/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Peppa’s Kids Advent Calendar](https://www.amazon.com/Peppa-Pig-Calendar-Contains-Surprise/dp/B09P1QV75M/?ie=UTF8&tag=avadalove-20)
+### [17\. Peppa’s Kids Advent Calendar](https://www.amazon.com/Peppa-Pig-Calendar-Contains-Surprise/dp/B09P1QV75M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Peppa-Pig-Calendar-Contains-Surprise/dp/B09P1QV75M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Peppa-Pig-Calendar-Contains-Surprise/dp/B09P1QV75M/?ie=UTF8&tag=giftable02-20)
 
 With Peppa's Kids Advent Calendar, your child will embark on a joyful journey of discovery, as they eagerly open each door to uncover a new surprise.
 
@@ -321,7 +321,7 @@ The durable construction ensures that it withstands the holiday excitement, prov
 
 ✔️ Daily surprises with Peppa Pig themes
 
-[Buy from Amazon](https://www.amazon.com/Peppa-Pig-Calendar-Contains-Surprise/dp/B09P1QV75M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Peppa-Pig-Calendar-Contains-Surprise/dp/B09P1QV75M/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Christmas Advent Calendar Kids](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1076454732/)
 
@@ -341,9 +341,9 @@ The Advent Calendar Kids is not just about counting down the days; it's about th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1076454732/)
 
-### [19\. Cars Advent Calendar](https://www.amazon.com/JOYIN-Calendar-Christmas-Countdown-Diecast/dp/B08HB6ZKTC/?ie=UTF8&tag=avadalove-20)
+### [19\. Cars Advent Calendar](https://www.amazon.com/JOYIN-Calendar-Christmas-Countdown-Diecast/dp/B08HB6ZKTC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JOYIN-Calendar-Christmas-Countdown-Diecast/dp/B08HB6ZKTC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JOYIN-Calendar-Christmas-Countdown-Diecast/dp/B08HB6ZKTC/?ie=UTF8&tag=giftable02-20)
 
 Embark on a thrilling journey of anticipation and excitement with the Cars Advent Calendar.
 
@@ -357,11 +357,11 @@ The Cars Advent Calendar is not just about collecting cars; it's about fostering
 
 ✔️ Daily surprises of die-cast cars
 
-[Buy from Amazon](https://www.amazon.com/JOYIN-Calendar-Christmas-Countdown-Diecast/dp/B08HB6ZKTC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JOYIN-Calendar-Christmas-Countdown-Diecast/dp/B08HB6ZKTC/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Countdown Calendar](https://www.amazon.com/Advent-Countdown-Calendar-FAMILY-GAMES/dp/B0B133F6WM/?ie=UTF8&tag=avadalove-20)
+### [20\. Countdown Calendar](https://www.amazon.com/Advent-Countdown-Calendar-FAMILY-GAMES/dp/B0B133F6WM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Advent-Countdown-Calendar-FAMILY-GAMES/dp/B0B133F6WM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Advent-Countdown-Calendar-FAMILY-GAMES/dp/B0B133F6WM/?ie=UTF8&tag=giftable02-20)
 
 This enchanting calendar offers a delightful way for children to eagerly anticipate each day leading up to Christmas.
 
@@ -375,11 +375,11 @@ Measuring approximately 15 x 11 inches, the Countdown Calendar features a visual
 
 ✔️ Builds anticipation and excitement
 
-[Buy from Amazon](https://www.amazon.com/Advent-Countdown-Calendar-FAMILY-GAMES/dp/B0B133F6WM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Advent-Countdown-Calendar-FAMILY-GAMES/dp/B0B133F6WM/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Doll Advent Calendar](https://www.amazon.com/Surprise-Surprises-Including-Collectible-Accessories/dp/B09S2N8C52/?ie=UTF8&tag=avadalove-20)
+### [21\. Doll Advent Calendar](https://www.amazon.com/Surprise-Surprises-Including-Collectible-Accessories/dp/B09S2N8C52/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Surprise-Surprises-Including-Collectible-Accessories/dp/B09S2N8C52/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Surprise-Surprises-Including-Collectible-Accessories/dp/B09S2N8C52/?ie=UTF8&tag=giftable02-20)
 
 Having this cute doll advent calendar, an enchanting world unfolds, filled with collectible accessories and delightful surprises.
 
@@ -393,11 +393,11 @@ The hidden benefits lie in the joy of discovering new accessories that enhance t
 
 ✔️ Encourages imaginative play
 
-[Buy from Amazon](https://www.amazon.com/Surprise-Surprises-Including-Collectible-Accessories/dp/B09S2N8C52/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Surprise-Surprises-Including-Collectible-Accessories/dp/B09S2N8C52/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Winter House Advent Calendar](https://www.amazon.com/Polly-Pocket-Calendar-Surprises-Discover/dp/B09NQPF6RH/?ie=UTF8&tag=avadalove-20)
+### [22\. Winter House Advent Calendar](https://www.amazon.com/Polly-Pocket-Calendar-Surprises-Discover/dp/B09NQPF6RH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Polly-Pocket-Calendar-Surprises-Discover/dp/B09NQPF6RH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Polly-Pocket-Calendar-Surprises-Discover/dp/B09NQPF6RH/?ie=UTF8&tag=giftable02-20)
 
 This magical calendar brings joy and excitement to each day leading up to Christmas, offering hidden benefits that are ready to be discovered.
 
@@ -411,7 +411,7 @@ Behind each door, a delightful surprise awaits, allowing children to unlock thei
 
 ✔️ Sparks imagination and creativity
 
-[Buy from Amazon](https://www.amazon.com/Polly-Pocket-Calendar-Surprises-Discover/dp/B09NQPF6RH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Polly-Pocket-Calendar-Surprises-Discover/dp/B09NQPF6RH/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Personalized Puzzle Calendar](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/724271558/)
 
@@ -431,9 +431,9 @@ Measuring approximately 8 x 10 inches, this puzzle calendar features high-qualit
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/724271558/)
 
-### [24\. Animal Toys Advent Calendar](https://www.amazon.com/Calendar-Building-Christmas-Countdown-Calendars/dp/B09CTGRVRF/?ie=UTF8&tag=avadalove-20)
+### [24\. Animal Toys Advent Calendar](https://www.amazon.com/Calendar-Building-Christmas-Countdown-Calendars/dp/B09CTGRVRF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Calendar-Building-Christmas-Countdown-Calendars/dp/B09CTGRVRF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Calendar-Building-Christmas-Countdown-Calendars/dp/B09CTGRVRF/?ie=UTF8&tag=giftable02-20)
 
 This delightful calendar is sure to combine play, learning, and anticipation!
 
@@ -447,11 +447,11 @@ Each day reveals a new animal toy, allowing your child to expand their imaginati
 
 ✔️ Promotes imaginative play
 
-[Buy from Amazon](https://www.amazon.com/Calendar-Building-Christmas-Countdown-Calendars/dp/B09CTGRVRF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Calendar-Building-Christmas-Countdown-Calendars/dp/B09CTGRVRF/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Jewelry Gift Advent Calendar](https://www.amazon.com/Christmas-Countdown-Including-Accessories-Bracelets/dp/B0995N7F92/?ie=UTF8&tag=avadalove-20)
+### [25\. Jewelry Gift Advent Calendar](https://www.amazon.com/Christmas-Countdown-Including-Accessories-Bracelets/dp/B0995N7F92/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-Countdown-Including-Accessories-Bracelets/dp/B0995N7F92/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-Countdown-Including-Accessories-Bracelets/dp/B0995N7F92/?ie=UTF8&tag=giftable02-20)
 
 Let's unveil the magic of the holiday season with the Jewelry Gift Advent Calendar. With various jewelry pieces, including bracelets and accessories, your child can create unique looks and express their style throughout the holiday season.
 
@@ -465,7 +465,7 @@ Behind its dazzling façade, this advent calendar holds secret treasures that wi
 
 ✔️ Unleashes the inner diva with stylish bling
 
-[Buy from Amazon](https://www.amazon.com/Christmas-Countdown-Including-Accessories-Bracelets/dp/B0995N7F92/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-Countdown-Including-Accessories-Bracelets/dp/B0995N7F92/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Personalized Christmas Countdown](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1095559068/)
 
@@ -485,9 +485,9 @@ With its customizable design, you can personalize it with your child's name, add
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1095559068/)
 
-### [27\. Unicorn Advent Calendar](https://www.amazon.com/Advent-Calendar-2022-Girls-Granddaughters/dp/B0B7MJPM69/?ie=UTF8&tag=avadalove-20)
+### [27\. Unicorn Advent Calendar](https://www.amazon.com/Advent-Calendar-2022-Girls-Granddaughters/dp/B0B7MJPM69/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Advent-Calendar-2022-Girls-Granddaughters/dp/B0B7MJPM69/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Advent-Calendar-2022-Girls-Granddaughters/dp/B0B7MJPM69/?ie=UTF8&tag=giftable02-20)
 
 Unleash the magic of the holiday season with the Unicorn Advent Calendar! This enchanting calendar is a delightful surprise-filled journey for unicorn lovers. The detailed features and precise measurements perfectly fit any wall or tabletop display.
 
@@ -501,11 +501,11 @@ This calendar will surely be a daily dose of whimsy, imagination, and the opport
 
 ✔️ Sparkles with magical surprises
 
-[Buy from Amazon](https://www.amazon.com/Advent-Calendar-2022-Girls-Granddaughters/dp/B0B7MJPM69/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Advent-Calendar-2022-Girls-Granddaughters/dp/B0B7MJPM69/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Car Advent Calendar](https://www.amazon.com/MVNISE-Christmas-Countdown-Calendars-Girls-%EF%BC%8824pcs%EF%BC%89/dp/B0BG7QFK4T/?ie=UTF8&tag=avadalove-20)
+### [28\. Car Advent Calendar](https://www.amazon.com/MVNISE-Christmas-Countdown-Calendars-Girls-%EF%BC%8824pcs%EF%BC%89/dp/B0BG7QFK4T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MVNISE-Christmas-Countdown-Calendars-Girls-%EF%BC%8824pcs%EF%BC%89/dp/B0BG7QFK4T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MVNISE-Christmas-Countdown-Calendars-Girls-%EF%BC%8824pcs%EF%BC%89/dp/B0BG7QFK4T/?ie=UTF8&tag=giftable02-20)
 
 Rev up the excitement this holiday season with the Car Advent Calendar!
 
@@ -519,7 +519,7 @@ With 24 doors to open, this car-themed advent calendar is packed with surprises.
 
 ✔️ Unleashes racing excitement daily
 
-[Buy from Amazon](https://www.amazon.com/MVNISE-Christmas-Countdown-Calendars-Girls-%EF%BC%8824pcs%EF%BC%89/dp/B0BG7QFK4T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MVNISE-Christmas-Countdown-Calendars-Girls-%EF%BC%8824pcs%EF%BC%89/dp/B0BG7QFK4T/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Act Of Kindness Calendar](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1328034962/)
 
@@ -539,9 +539,9 @@ From spreading smiles to lending a helping hand, this calendar encourages empath
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1328034962/)
 
-### [30\. Dinosaur Toy Advent Calendar](https://www.amazon.com/Dinosaur-Collection-Christmas-Countdown-Dinosaurs/dp/B0B7JWJNZT/?ie=UTF8&tag=avadalove-20)
+### [30\. Dinosaur Toy Advent Calendar](https://www.amazon.com/Dinosaur-Collection-Christmas-Countdown-Dinosaurs/dp/B0B7JWJNZT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dinosaur-Collection-Christmas-Countdown-Dinosaurs/dp/B0B7JWJNZT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dinosaur-Collection-Christmas-Countdown-Dinosaurs/dp/B0B7JWJNZT/?ie=UTF8&tag=giftable02-20)
 
 Embark on an epic journey to a land of roaring excitement with the Dinosaur Toy Advent Calendar!
 
@@ -555,11 +555,11 @@ Roar-some benefits await! From the fearsome T-Rex to the majestic Stegosaurus, t
 
 ✔️ Encourages learning through play
 
-[Buy from Amazon](https://www.amazon.com/Dinosaur-Collection-Christmas-Countdown-Dinosaurs/dp/B0B7JWJNZT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dinosaur-Collection-Christmas-Countdown-Dinosaurs/dp/B0B7JWJNZT/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Hello Kitty Calendar](https://www.amazon.com/Galerie-Christmas-Countdown-Chocolate-Calendars/dp/B0BFXJLGS5/?ie=UTF8&tag=avadalove-20)
+### [31\. Hello Kitty Calendar](https://www.amazon.com/Galerie-Christmas-Countdown-Chocolate-Calendars/dp/B0BFXJLGS5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Galerie-Christmas-Countdown-Chocolate-Calendars/dp/B0BFXJLGS5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Galerie-Christmas-Countdown-Chocolate-Calendars/dp/B0BFXJLGS5/?ie=UTF8&tag=giftable02-20)
 
 Step into a world of cuteness and enchantment with the Hello Kitty Calendar! With the lovable Hello Kitty guiding the way, children can engage in imaginative play and create their own stories of friendship and kindness.
 
@@ -573,11 +573,11 @@ Unveil the hidden benefits! As your child opens each door, they'll discover more
 
 ✔️ Sparkles with adorable Hello Kitty charm
 
-[Buy from Amazon](https://www.amazon.com/Galerie-Christmas-Countdown-Chocolate-Calendars/dp/B0BFXJLGS5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Galerie-Christmas-Countdown-Chocolate-Calendars/dp/B0BFXJLGS5/?ie=UTF8&tag=giftable02-20)
 
-### [32\. DIY Craft Advent Calendar](https://www.amazon.com/ORIENTAL-CHERRY-Advent-Calendar-2022/dp/B09ZTWV2CR/?ie=UTF8&tag=avadalove-20)
+### [32\. DIY Craft Advent Calendar](https://www.amazon.com/ORIENTAL-CHERRY-Advent-Calendar-2022/dp/B09ZTWV2CR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ORIENTAL-CHERRY-Advent-Calendar-2022/dp/B09ZTWV2CR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ORIENTAL-CHERRY-Advent-Calendar-2022/dp/B09ZTWV2CR/?ie=UTF8&tag=giftable02-20)
 
 This unique calendar brings more than just the joy of counting down to Christmas!
 
@@ -591,11 +591,11 @@ From ornaments to decorations, this advent calendar is a solution for keeping li
 
 ✔️ Ignites creativity through hands-on crafts
 
-[Buy from Amazon](https://www.amazon.com/ORIENTAL-CHERRY-Advent-Calendar-2022/dp/B09ZTWV2CR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ORIENTAL-CHERRY-Advent-Calendar-2022/dp/B09ZTWV2CR/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Roblox Advent Calendar](https://www.amazon.com/Roblox-Action-Collection-Calendar-Exclusive/dp/B09DDDR9WV/?ie=UTF8&tag=avadalove-20)
+### [33\. Roblox Advent Calendar](https://www.amazon.com/Roblox-Action-Collection-Calendar-Exclusive/dp/B09DDDR9WV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Roblox-Action-Collection-Calendar-Exclusive/dp/B09DDDR9WV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Roblox-Action-Collection-Calendar-Exclusive/dp/B09DDDR9WV/?ie=UTF8&tag=giftable02-20)
 
 Embark on an exciting digital adventure with the Roblox Advent Calendar!
 
@@ -609,7 +609,7 @@ Unlock hidden benefits! From rare collectibles to unique outfits, this advent ca
 
 ✔️ Exclusive Roblox items
 
-[Buy from Amazon](https://www.amazon.com/Roblox-Action-Collection-Calendar-Exclusive/dp/B09DDDR9WV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Roblox-Action-Collection-Calendar-Exclusive/dp/B09DDDR9WV/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Wooden Calendar](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1141677968/)
 

@@ -17,9 +17,9 @@ Our selection of DC Comics presents is excellent if you're having trouble findin
 
 But let's be honest here - these aren't just any ordinary DC Comics gifts. This is top-quality stuff, folks. To guarantee that every product we sell is of the highest caliber, we collaborate with the finest of the best. So not only will your gift recipient look cool, but they'll also feel super comfortable and snug in their new gear. So suit up and head on over to our catalog of DC Comics gifts. Trust us and you won't be disappointed. Your inner superhero deserves it!
 
-### [1\. Night Style Painting T-Shirt](https://www.amazon.com/DC-Comics-Batman-Painting-T-Shirt/dp/B08CSJRM91/?ie=UTF8&tag=avadalove-20)
+### [1\. Night Style Painting T-Shirt](https://www.amazon.com/DC-Comics-Batman-Painting-T-Shirt/dp/B08CSJRM91/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Batman-Painting-T-Shirt/dp/B08CSJRM91/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Batman-Painting-T-Shirt/dp/B08CSJRM91/?ie=UTF8&tag=giftable02-20)
 
 Embrace the Night Style Painting T-Shirt, a must-have for fans seeking a cool and artistic edge in their fashion choices.
 
@@ -33,11 +33,11 @@ The design on this t-shirt is of excellent quality and depicts a captivating Bat
 
 ✔️ Captivating night style painting design
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Batman-Painting-T-Shirt/dp/B08CSJRM91/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Batman-Painting-T-Shirt/dp/B08CSJRM91/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Woman Pen Bundle Set](https://www.amazon.com/DC-Comics-Wonder-Woman-Super/dp/B07N4CQHW9/?ie=UTF8&tag=avadalove-20)
+### [2\. Woman Pen Bundle Set](https://www.amazon.com/DC-Comics-Wonder-Woman-Super/dp/B07N4CQHW9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Wonder-Woman-Super/dp/B07N4CQHW9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Wonder-Woman-Super/dp/B07N4CQHW9/?ie=UTF8&tag=giftable02-20)
 
 Introducing the Wonder Woman Pen Bundle Set, an essential item for fans who want to bring a touch of superhero magic to their writing experience.
 
@@ -51,7 +51,7 @@ Three pens are included in this set, each with a special Wonder Woman-inspired d
 
 ✔️ Smooth writing experience for effortless note-taking
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Wonder-Woman-Super/dp/B07N4CQHW9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Wonder-Woman-Super/dp/B07N4CQHW9/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Wall Art Canvas](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1140610795/dc-heroes-canvas-dc-heroes-puzzle-canvas)
 
@@ -71,9 +71,9 @@ The canvas is ideal for hanging in any room at 16 inches by 20 inches. It also c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1140610795/dc-heroes-canvas-dc-heroes-puzzle-canvas)
 
-### [4\. Super Hero Coasters](https://www.amazon.com/Justice-League-Super-Hero-Coaster/dp/B07492QVTT/?ie=UTF8&tag=avadalove-20)
+### [4\. Super Hero Coasters](https://www.amazon.com/Justice-League-Super-Hero-Coaster/dp/B07492QVTT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Justice-League-Super-Hero-Coaster/dp/B07492QVTT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Justice-League-Super-Hero-Coaster/dp/B07492QVTT/?ie=UTF8&tag=giftable02-20)
 
 Are your current coasters failing to showcase your love for superheroes? Fear not - the Justice League Super Hero Coasters have arrived!
 
@@ -87,7 +87,7 @@ Each coaster is the ideal size to put under any beverage, measuring 4 inches by 
 
 ✔️ Set of four coasters for sharing and variety
 
-[Buy from Amazon](https://www.amazon.com/Justice-League-Super-Hero-Coaster/dp/B07492QVTT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Justice-League-Super-Hero-Coaster/dp/B07492QVTT/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Movie Car Vent Mini Figures](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297749697/batman-car-air-freshener-dc-comics-movie)
 
@@ -107,9 +107,9 @@ These little figures bring a little bit of Batman enchantment to your everyday c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297749697/batman-car-air-freshener-dc-comics-movie)
 
-### [6\. Interactive Gauntlet](https://www.amazon.com/Batman-Interactive-Gauntlet-Phrases-Sounds/dp/B07WFHSFYN/?ie=UTF8&tag=avadalove-20)
+### [6\. Interactive Gauntlet](https://www.amazon.com/Batman-Interactive-Gauntlet-Phrases-Sounds/dp/B07WFHSFYN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Batman-Interactive-Gauntlet-Phrases-Sounds/dp/B07WFHSFYN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Batman-Interactive-Gauntlet-Phrases-Sounds/dp/B07WFHSFYN/?ie=UTF8&tag=giftable02-20)
 
 Unlock your heroic potential and embrace the essence of Batman with the Interactive Gauntlet, a great accessory that allows you to unleash your inner vigilante.
 
@@ -123,11 +123,11 @@ This gauntlet delivers the thrill of Gotham City directly to your fingers with i
 
 ✔️ Durable construction ensures long-lasting playtime
 
-[Buy from Amazon](https://www.amazon.com/Batman-Interactive-Gauntlet-Phrases-Sounds/dp/B07WFHSFYN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Batman-Interactive-Gauntlet-Phrases-Sounds/dp/B07WFHSFYN/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Superhero Puzzle Cast](https://www.amazon.com/AQUARIUS-Comics-Puzzle-Piece-Jigsaw/dp/B087CD1QG7/?ie=UTF8&tag=avadalove-20)
+### [7\. Superhero Puzzle Cast](https://www.amazon.com/AQUARIUS-Comics-Puzzle-Piece-Jigsaw/dp/B087CD1QG7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AQUARIUS-Comics-Puzzle-Piece-Jigsaw/dp/B087CD1QG7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AQUARIUS-Comics-Puzzle-Piece-Jigsaw/dp/B087CD1QG7/?ie=UTF8&tag=giftable02-20)
 
 Looking for the ultimate addition to your superhero-themed room as a die-hard Marvel Comics fan, the Open Road Brands Marvel Comics Framed Wood Wall Decor is it.
 
@@ -141,11 +141,11 @@ This framed wood wall decoration is the ideal size to put on any wall in your ho
 
 ✔️ Great addition to any Marvel fan's collection
 
-[Buy from Amazon](https://www.amazon.com/AQUARIUS-Comics-Puzzle-Piece-Jigsaw/dp/B087CD1QG7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AQUARIUS-Comics-Puzzle-Piece-Jigsaw/dp/B087CD1QG7/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Framed Wood Wall Decor](https://www.amazon.com/Open-Road-Brands-Comics-Framed/dp/B0BVC24ZMN/?ie=UTF8&tag=avadalove-20)
+### [8\. Framed Wood Wall Decor](https://www.amazon.com/Open-Road-Brands-Comics-Framed/dp/B0BVC24ZMN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Comics-Framed/dp/B0BVC24ZMN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Comics-Framed/dp/B0BVC24ZMN/?ie=UTF8&tag=giftable02-20)
 
 Those needing a challenging and entertaining activity to occupy their free time should consider the Aquarius Comics Puzzle Cast Piece Jigsaw.
 
@@ -159,7 +159,7 @@ Famous comic book covers from many companies, including DC and Marvel, may be fo
 
 ✔️ Sturdy, book-shaped box for easy storage and transport
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Comics-Framed/dp/B0BVC24ZMN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Comics-Framed/dp/B0BVC24ZMN/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Batman Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1391050304/batman-necklace-with-natural-diamond)
 
@@ -179,9 +179,9 @@ This necklace adds a sense of luxury to your Batman-inspired outfit with its sle
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1391050304/batman-necklace-with-natural-diamond)
 
-### [10\. Fight Scene Metal Sign](https://www.amazon.com/Comics-Aquaman-Fight-Scene-Metal/dp/B0BK9YBD35/?ie=UTF8&tag=avadalove-20)
+### [10\. Fight Scene Metal Sign](https://www.amazon.com/Comics-Aquaman-Fight-Scene-Metal/dp/B0BK9YBD35/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Comics-Aquaman-Fight-Scene-Metal/dp/B0BK9YBD35/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Comics-Aquaman-Fight-Scene-Metal/dp/B0BK9YBD35/?ie=UTF8&tag=giftable02-20)
 
 Channel the power of the seas with the Fight Scene Metal Sign, a visually stunning piece that brings the world of Aquaman to life.
 
@@ -195,7 +195,7 @@ You'll be whisked away to the exciting world of Aquaman thanks to the dramatic a
 
 ✔️ Sturdy metal construction for durability and long-lasting display
 
-[Buy from Amazon](https://www.amazon.com/Comics-Aquaman-Fight-Scene-Metal/dp/B0BK9YBD35/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Comics-Aquaman-Fight-Scene-Metal/dp/B0BK9YBD35/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Engraved Authentic Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1237202630/yeti-laser-engraved-authentic-tumbler) 
 
@@ -215,9 +215,9 @@ This tumbler, which holds 20 ounces, is the perfect size for carrying your prefe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1237202630/yeti-laser-engraved-authentic-tumbler)
 
-### [12\. Justice League T-Shirt](https://www.amazon.com/DC-Comics-Justice-League-T-Shirt/dp/B08CSKXHHC/?ie=UTF8&tag=avadalove-20)
+### [12\. Justice League T-Shirt](https://www.amazon.com/DC-Comics-Justice-League-T-Shirt/dp/B08CSKXHHC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Justice-League-T-Shirt/dp/B08CSKXHHC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Justice-League-T-Shirt/dp/B08CSKXHHC/?ie=UTF8&tag=giftable02-20)
 
 As a fan of the iconic superheroes from DC Comics, this DC Comic T-Shirt is a must-have to exhibit your love for these beloved characters.
 
@@ -231,11 +231,11 @@ Small to XXX-large sizes are offered for the DC Comics Justice League Panels T-S
 
 ✔️ Available in a wide range of sizes
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Justice-League-T-Shirt/dp/B08CSKXHHC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Justice-League-T-Shirt/dp/B08CSKXHHC/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Comics Batman Sign](https://www.amazon.com/Open-Road-Brands-Comics-Batman/dp/B0971JWKWD/?ie=UTF8&tag=avadalove-20)
+### [13\. Comics Batman Sign](https://www.amazon.com/Open-Road-Brands-Comics-Batman/dp/B0971JWKWD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Comics-Batman/dp/B0971JWKWD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Comics-Batman/dp/B0971JWKWD/?ie=UTF8&tag=giftable02-20)
 
 Revitalize your space with the timeless appeal of the Comics Batman Sign by Open Road Brands.
 
@@ -249,7 +249,7 @@ Its 12 by 16-inch dimension makes it the ideal decoration for your wall or your 
 
 ✔️ Perfect size for easy wall mounting or display
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Comics-Batman/dp/B0971JWKWD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Comics-Batman/dp/B0971JWKWD/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Wayne Est 1915 Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1203304181/wayne-est-1915-sweatshirt-unisex)
 
@@ -269,9 +269,9 @@ This sweatshirt will attract attention because of its striking Wayne Est 1915 pr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1203304181/wayne-est-1915-sweatshirt-unisex)
 
-### [15\. Plastic Cold Cup](https://www.amazon.com/Buffalo-HQ15087Q-DC-Comics-16-Ounces/dp/B01FIX1NUE/?ie=UTF8&tag=avadalove-20)
+### [15\. Plastic Cold Cup](https://www.amazon.com/Buffalo-HQ15087Q-DC-Comics-16-Ounces/dp/B01FIX1NUE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Buffalo-HQ15087Q-DC-Comics-16-Ounces/dp/B01FIX1NUE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Buffalo-HQ15087Q-DC-Comics-16-Ounces/dp/B01FIX1NUE/?ie=UTF8&tag=giftable02-20)
 
 The Plastic Cold Cup is the ultimate solution for anyone seeking a durable and stylish way to enjoy cold drinks while on-the-go.
 
@@ -285,7 +285,7 @@ This plastic cold cup, which holds 16 ounces, is ideal for carrying your favorit
 
 ✔️ Comes with a reusable straw and screw-on lid
 
-[Buy from Amazon](https://www.amazon.com/Buffalo-HQ15087Q-DC-Comics-16-Ounces/dp/B01FIX1NUE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Buffalo-HQ15087Q-DC-Comics-16-Ounces/dp/B01FIX1NUE/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. The Leader Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1197213686/the-leader-95-oz-candle-strong-scent)
 
@@ -305,9 +305,9 @@ Any area in your house will benefit from the warmth and coziness of this candle.
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1197213686/the-leader-95-oz-candle-strong-scent)
 
-### [17\. Fabric Basket Container](https://www.amazon.com/Superman-Comics-Storage-Organizer-Inches/dp/B07NQ7T2DK/?ie=UTF8&tag=avadalove-20)
+### [17\. Fabric Basket Container](https://www.amazon.com/Superman-Comics-Storage-Organizer-Inches/dp/B07NQ7T2DK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Superman-Comics-Storage-Organizer-Inches/dp/B07NQ7T2DK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Superman-Comics-Storage-Organizer-Inches/dp/B07NQ7T2DK/?ie=UTF8&tag=giftable02-20)
 
 Bring order to chaos with the Superman Comics Fabric Basket Container, a versatile and fashionable storage solution that will transform any space into a tidy haven.
 
@@ -321,11 +321,11 @@ The Fabric Basket Container has a diameter of 12 inches and a height of around 1
 
 ✔️ Superman-themed design adds a pop of superhero style
 
-[Buy from Amazon](https://www.amazon.com/Superman-Comics-Storage-Organizer-Inches/dp/B07NQ7T2DK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Superman-Comics-Storage-Organizer-Inches/dp/B07NQ7T2DK/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Voice Changing Mask](https://www.amazon.com/DC-Comics-Batman-Changing-Sounds/dp/B083V5XBRG/?ie=UTF8&tag=avadalove-20) 
+### [18\. Voice Changing Mask](https://www.amazon.com/DC-Comics-Batman-Changing-Sounds/dp/B083V5XBRG/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/DC-Comics-Batman-Changing-Sounds/dp/B083V5XBRG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Batman-Changing-Sounds/dp/B083V5XBRG/?ie=UTF8&tag=giftable02-20)
 
 Take your Batman cosplay to the next level with the Voice Changing Mask, a fantastic gadget that brings the character to life by modulating your voice.
 
@@ -339,7 +339,7 @@ The Voice Changing Mask allows you to fully immerse yourself in the environment 
 
 ✔️ High-quality construction ensures durability for long use
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Batman-Changing-Sounds/dp/B083V5XBRG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Batman-Changing-Sounds/dp/B083V5XBRG/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Leather Dopp Kit Bag Logo](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1446417671/personalized-marvel-gifts-for-son)
 
@@ -359,9 +359,9 @@ This Dopp kit bag, which measures 9 inches by 4.5 inches by 4 inches, is ideal f
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1446417671/personalized-marvel-gifts-for-son)
 
-### [20\. Black Adam Justice Society](https://www.amazon.com/DC-Comics-Black-Action-Figures/dp/B09NNM8H9H/?ie=UTF8&tag=avadalove-20)
+### [20\. Black Adam Justice Society](https://www.amazon.com/DC-Comics-Black-Action-Figures/dp/B09NNM8H9H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Black-Action-Figures/dp/B09NNM8H9H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Black-Action-Figures/dp/B09NNM8H9H/?ie=UTF8&tag=giftable02-20)
 
 This exceptional Black Adam action figure is a must-have collectible for enthusiasts of DC Comics and the Justice Society of America.
 
@@ -375,11 +375,11 @@ This figure is ideal for reenacting your favorite comic book scenes or exhibitin
 
 ✔️ Sturdy construction for both play and display
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Black-Action-Figures/dp/B09NNM8H9H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Black-Action-Figures/dp/B09NNM8H9H/?ie=UTF8&tag=giftable02-20)
 
-### [21\. DC Glass Set](https://www.amazon.com/DC-Comics-Justice-League-Glass/dp/B09FKHWSPG/?ie=UTF8&tag=avadalove-20) 
+### [21\. DC Glass Set](https://www.amazon.com/DC-Comics-Justice-League-Glass/dp/B09FKHWSPG/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/DC-Comics-Justice-League-Glass/dp/B09FKHWSPG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Justice-League-Glass/dp/B09FKHWSPG/?ie=UTF8&tag=giftable02-20)
 
 Elevate your drinking experience with the DC Comics Justice League Glass Set, a stunning collection that you can display it as a DC collection.
 
@@ -393,11 +393,11 @@ This collection is a must-have for any DC Comics fan since each glass features a
 
 ✔️ High-quality construction
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Justice-League-Glass/dp/B09FKHWSPG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Justice-League-Glass/dp/B09FKHWSPG/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Baby Superhero Socks](https://www.amazon.com/DC-Comics-Socks-newborn-justice-Superman-10-pack/dp/B09CRJ154C/?ie=UTF8&tag=avadalove-20)
+### [22\. Baby Superhero Socks](https://www.amazon.com/DC-Comics-Socks-newborn-justice-Superman-10-pack/dp/B09CRJ154C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Socks-newborn-justice-Superman-10-pack/dp/B09CRJ154C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Socks-newborn-justice-Superman-10-pack/dp/B09CRJ154C/?ie=UTF8&tag=giftable02-20)
 
 Dress your little one in superhero style with the DC Comics Baby Sock 10-Pack, a charming assortment that will make your baby the cutest hero in town.
 
@@ -411,7 +411,7 @@ These charming socks are ideal for budding DC Comics enthusiasts since they cont
 
 ✔️ Variety of fun patterns and colors
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Socks-newborn-justice-Superman-10-pack/dp/B09CRJ154C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Socks-newborn-justice-Superman-10-pack/dp/B09CRJ154C/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Batman Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1183585840/batman-inspired-fully-embroidered)
 
@@ -449,9 +449,9 @@ These cards are not only terrific for collectors, but they also make lovely pres
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1064819666/4-packs-of-dc-cosmic-cards-inaugural)
 
-### [25\. Chronograph Quartz Men’s Watch](https://www.amazon.com/Invicta-Comics-Batman-Chronograph-33165/dp/B08DQQ62V7/?ie=UTF8&tag=avadalove-20)
+### [25\. Chronograph Quartz Men’s Watch](https://www.amazon.com/Invicta-Comics-Batman-Chronograph-33165/dp/B08DQQ62V7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Invicta-Comics-Batman-Chronograph-33165/dp/B08DQQ62V7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Invicta-Comics-Batman-Chronograph-33165/dp/B08DQQ62V7/?ie=UTF8&tag=giftable02-20)
 
 Unleash your inner superhero with the Invicta Comics Batman Chronograph Watch.
 
@@ -465,7 +465,7 @@ Can a watch get much more relaxed? The watch has a Batman-themed chronograph dia
 
 ✔️ Reliable chronograph function
 
-[Buy from Amazon](https://www.amazon.com/Invicta-Comics-Batman-Chronograph-33165/dp/B08DQQ62V7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Invicta-Comics-Batman-Chronograph-33165/dp/B08DQQ62V7/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Comic Book Storage](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/400960861/comic-book-storage-display-box)
 
@@ -485,9 +485,9 @@ The box's 14 x 10 x 3 inches provides plenty of room for your favorite comic boo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/400960861/comic-book-storage-display-box)
 
-### [27\. Superheroes Wonder Woman Mini Figure](https://www.amazon.com/Comics-Superheroes-Wonder-Figure-Headlamp/dp/1465470255/?ie=UTF8&tag=avadalove-20) 
+### [27\. Superheroes Wonder Woman Mini Figure](https://www.amazon.com/Comics-Superheroes-Wonder-Figure-Headlamp/dp/1465470255/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Comics-Superheroes-Wonder-Figure-Headlamp/dp/1465470255/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Comics-Superheroes-Wonder-Figure-Headlamp/dp/1465470255/?ie=UTF8&tag=giftable02-20)
 
 What collectible to add to your superhero collection? Look no further than the Superheroes Wonder Woman Mini Figure.
 
@@ -501,11 +501,11 @@ It is unique due to the premium materials and careful attention to every last de
 
 ✔️ Compact size perfect for display
 
-[Buy from Amazon](https://www.amazon.com/Comics-Superheroes-Wonder-Figure-Headlamp/dp/1465470255/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Comics-Superheroes-Wonder-Figure-Headlamp/dp/1465470255/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Men’s Bracelet](https://www.etsy.com/listing/628703207/mens-bracelet-batman?ie=UTF8&tag=avadalove-20)
+### [28\. Men’s Bracelet](https://www.etsy.com/listing/628703207/mens-bracelet-batman?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/628703207/mens-bracelet-batman?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/628703207/mens-bracelet-batman?ie=UTF8&tag=giftable02-20)
 
 Show off your love in a sophisticated and surprising way with the Men's Batman Bracelet.
 
@@ -519,11 +519,11 @@ Any wrist size may wear it comfortably thanks to the adjustable construction, an
 
 ✔️ Sleek black leather band with silver-tone Batman logo
 
-[Buy from Amazon](https://www.etsy.com/listing/628703207/mens-bracelet-batman?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/628703207/mens-bracelet-batman?ie=UTF8&tag=giftable02-20)
 
-### [29\. Flash and Shazam Action Figure](https://www.amazon.com/DC-Comics-Mystery-Accessories-Adventure/dp/B07WJQW3Y1/?ie=UTF8&tag=avadalove-20)
+### [29\. Flash and Shazam Action Figure](https://www.amazon.com/DC-Comics-Mystery-Accessories-Adventure/dp/B07WJQW3Y1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Mystery-Accessories-Adventure/dp/B07WJQW3Y1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Mystery-Accessories-Adventure/dp/B07WJQW3Y1/?ie=UTF8&tag=giftable02-20)
 
 Unleash the power of superhero action with The Flash and Shazam Action Figure 2-Pack.
 
@@ -537,7 +537,7 @@ Two very realistic action figurines of The Flash and Shazam, both standing about
 
 ✔️ Articulated joints for poseability
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Mystery-Accessories-Adventure/dp/B07WJQW3Y1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Mystery-Accessories-Adventure/dp/B07WJQW3Y1/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Wooden Spoons](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1187144400/w-woman-kitchen-wooden-spoons-for)
 
@@ -557,9 +557,9 @@ These spoons, made of premium wood, combine practicality with artistic appeal. E
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1187144400/w-woman-kitchen-wooden-spoons-for)
 
-### [31\. Character Journal Collection](https://www.amazon.com/DC-Comics-Character-Journal-Collection/dp/1683832809/?ie=UTF8&tag=avadalove-20)
+### [31\. Character Journal Collection](https://www.amazon.com/DC-Comics-Character-Journal-Collection/dp/1683832809/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DC-Comics-Character-Journal-Collection/dp/1683832809/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DC-Comics-Character-Journal-Collection/dp/1683832809/?ie=UTF8&tag=giftable02-20)
 
 Display your fondness for DC Comics characters while arranging your thoughts and notes with the Character Journal Collection.
 
@@ -573,7 +573,7 @@ Each journal has 192 pages of premium paper ideal for jotting down ideas, though
 
 ✔️ 192 pages of high-quality paper in each journal
 
-[Buy from Amazon](https://www.amazon.com/DC-Comics-Character-Journal-Collection/dp/1683832809/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DC-Comics-Character-Journal-Collection/dp/1683832809/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Super Hero Art Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1400174550/gotham-silhouette-bad-wood-wall-decor)
 
@@ -593,9 +593,9 @@ This metal sign, which measures 18 by 14 inches, is ideal for any area. Made of 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1400174550/gotham-silhouette-bad-wood-wall-decor)
 
-### [33\. Comic Book Collection Gift Pack](https://www.amazon.com/Collection-Unique-Marvel-Condition-Perfect/dp/B08NFBGLWQ/?ie=UTF8&tag=avadalove-20)
+### [33\. Comic Book Collection Gift Pack](https://www.amazon.com/Collection-Unique-Marvel-Condition-Perfect/dp/B08NFBGLWQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Collection-Unique-Marvel-Condition-Perfect/dp/B08NFBGLWQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Collection-Unique-Marvel-Condition-Perfect/dp/B08NFBGLWQ/?ie=UTF8&tag=giftable02-20)
 
 Explore the Marvel universe in all its glory with the Comic Book Collection Gift Pack, a captivating ensemble of superhero tales.
 
@@ -609,11 +609,11 @@ This collection includes various Marvel heroes and storylines to interest any co
 
 ✔️ Wide range of Marvel titles
 
-[Buy from Amazon](https://www.amazon.com/Collection-Unique-Marvel-Condition-Perfect/dp/B08NFBGLWQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Collection-Unique-Marvel-Condition-Perfect/dp/B08NFBGLWQ/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Paint Logo Thunderstorm Mug](https://www.amazon.com/FL110532-DC-Comics-Splatter-14-Ounces/dp/B071HSN1D2/?ie=UTF8&tag=avadalove-20)
+### [34\. Paint Logo Thunderstorm Mug](https://www.amazon.com/FL110532-DC-Comics-Splatter-14-Ounces/dp/B071HSN1D2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FL110532-DC-Comics-Splatter-14-Ounces/dp/B071HSN1D2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FL110532-DC-Comics-Splatter-14-Ounces/dp/B071HSN1D2/?ie=UTF8&tag=giftable02-20)
 
 Start your day with this dynamic Thunderstorm Mug, designed for DC Comics fans who love their morning beverage.
 
@@ -627,7 +627,7 @@ This mug, which holds 14 ounces, is the ideal size for your preferred morning be
 
 ✔️ Vibrant paint splatter design adds a unique touch
 
-[Buy from Amazon](https://www.amazon.com/FL110532-DC-Comics-Splatter-14-Ounces/dp/B071HSN1D2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FL110532-DC-Comics-Splatter-14-Ounces/dp/B071HSN1D2/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Engraved Pocket Knive](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1113080186/personalized-bat-custom-engraved-pocket) 
 

@@ -17,11 +17,9 @@ Explore our curated collection and find the ideal gift for your coworker's inter
 
 As you embark on a question to find and get the perfect going away gift for your coworker, let your imagination wander and consider its impact on their life. So, don't wait any longer—explore our selection of going away gifts for coworkers and make their farewell unforgettable.
 
-**You may also like**: **[30 Best Office Gifts For Staff And Employee](/office-gifts/)**
+### [1\. Going Away Candle Gift](https://www.amazon.com/Congrats-Pursuing-Your-Dream-Friendship/dp/B09GL5Y5FK/?ie=UTF8&tag=giftable02-20)
 
-### [1\. Going Away Candle Gift](https://www.amazon.com/Congrats-Pursuing-Your-Dream-Friendship/dp/B09GL5Y5FK/?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Congrats-Pursuing-Your-Dream-Friendship/dp/B09GL5Y5FK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Congrats-Pursuing-Your-Dream-Friendship/dp/B09GL5Y5FK/?ie=UTF8&tag=giftable02-20)
 
 Give your coworker a thoughtful and inspiring going away gift with our "Congrats on Pursuing Your Dream" candle.
 
@@ -35,7 +33,7 @@ The candle features a hand-poured soy wax blend that provides a clean and long-l
 
 ✔️ Creates a soothing and pleasant ambiance
 
-[Buy from Amazon](https://www.amazon.com/Congrats-Pursuing-Your-Dream-Friendship/dp/B09GL5Y5FK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Congrats-Pursuing-Your-Dream-Friendship/dp/B09GL5Y5FK/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Colleague Leaving Gift](https://loveable.ai/products/colleague-leaving-gift-coworker-leaving-gift-colleague-gift-sorry-youre-leaving-work-gifts-retirement-gift-new-job-gift-303ihpnppt359?variant=44375752835304?utm_source=avada&ranking=&utm_source=&utm_campaign=35-meaningful-going-away-gifts-for-coworker-in-2023)
 
@@ -73,9 +71,9 @@ Designed with care, this frame measures 8x10 inches, making it an ideal size for
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/992131750/its-not-where-you-go-its-who-you-meet)
 
-### [4\. Large Farewell Card](https://www.amazon.com/Farewell-Decoration-Coworker-Greeting-Alternative/dp/B08YDM7RYX/?ie=UTF8&tag=avadalove-20)
+### [4\. Large Farewell Card](https://www.amazon.com/Farewell-Decoration-Coworker-Greeting-Alternative/dp/B08YDM7RYX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Farewell-Decoration-Coworker-Greeting-Alternative/dp/B08YDM7RYX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Farewell-Decoration-Coworker-Greeting-Alternative/dp/B08YDM7RYX/?ie=UTF8&tag=giftable02-20)
 
 Express your heartfelt farewell and appreciation with this creative Farewell Decoration Card.
 
@@ -89,11 +87,11 @@ This Farewell Decoration Card measures 5x7 inches, providing ample space for you
 
 ✔️ Intricate details and vibrant colors add an elegant touch
 
-[Buy from Amazon](https://www.amazon.com/Farewell-Decoration-Coworker-Greeting-Alternative/dp/B08YDM7RYX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Farewell-Decoration-Coworker-Greeting-Alternative/dp/B08YDM7RYX/?ie=UTF8&tag=giftable02-20)
 
-### [5\. A Truly Great Coworker Tumbler](https://www.amazon.com/Coworker-Gifts-Women-Appreciation-Colleague/dp/B0B19GDCFY/?ie=UTF8&tag=avadalove-20)
+### [5\. A Truly Great Coworker Tumbler](https://www.amazon.com/Coworker-Gifts-Women-Appreciation-Colleague/dp/B0B19GDCFY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Gifts-Women-Appreciation-Colleague/dp/B0B19GDCFY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Gifts-Women-Appreciation-Colleague/dp/B0B19GDCFY/?ie=UTF8&tag=giftable02-20)
 
 Show your appreciation to your coworker with our Coworker Gifts Women Tumbler. This thoughtful tumbler is the perfect going away gift for your coworker, offering both style and functionality.
 
@@ -107,11 +105,11 @@ It has a capacity of 20 ounces, perfect for enjoying their favorite beverages on
 
 ✔️ Clear lid with a sliding closure for easy sipping and spill prevention.
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Gifts-Women-Appreciation-Colleague/dp/B0B19GDCFY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Gifts-Women-Appreciation-Colleague/dp/B0B19GDCFY/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Funny Farewell Makeup Bag](https://www.amazon.com/Coworker-Leaving-Retirement-Farewell-Coworkers/dp/B09YC86M7D/?ie=UTF8&tag=avadalove-20)
+### [6\. Funny Farewell Makeup Bag](https://www.amazon.com/Coworker-Leaving-Retirement-Farewell-Coworkers/dp/B09YC86M7D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Leaving-Retirement-Farewell-Coworkers/dp/B09YC86M7D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Leaving-Retirement-Farewell-Coworkers/dp/B09YC86M7D/?ie=UTF8&tag=giftable02-20)
 
 Give your coworker a practical and stylish gift with our Coworker Leaving Makeup Bag.
 
@@ -125,7 +123,7 @@ This versatile bag is more than just a makeup organizer; it's a heartfelt gestur
 
 ✔️ Features meaningful quotes for an uplifting touch
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Leaving-Retirement-Farewell-Coworkers/dp/B09YC86M7D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Leaving-Retirement-Farewell-Coworkers/dp/B09YC86M7D/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Next Chapter Succulent Gift Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1174738710/next-chapter-succulent-gift-box-wood)
 
@@ -147,9 +145,9 @@ Inside, your coworker will discover a variety of vibrant succulents carefully po
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1174738710/next-chapter-succulent-gift-box-wood)
 
-### [8\. Flannel Blankets Throws](https://www.amazon.com/Coworker-Blankets-Farewell-Retirement-Coworkers/dp/B099PVQDVV/?ie=UTF8&tag=avadalove-20)
+### [8\. Flannel Blankets Throws](https://www.amazon.com/Coworker-Blankets-Farewell-Retirement-Coworkers/dp/B099PVQDVV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Blankets-Farewell-Retirement-Coworkers/dp/B099PVQDVV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Blankets-Farewell-Retirement-Coworkers/dp/B099PVQDVV/?ie=UTF8&tag=giftable02-20)
 
 Wrap your coworker in warmth and appreciation with a Coworker Blanket, a thoughtful and symbolic gift that will bring comfort and remind them of the cherished connections they've made.
 
@@ -163,7 +161,7 @@ The Coworker Blanket is made from high-quality and durable materials, ensuring b
 
 ✔️ Features heartfelt quotes for emotional connection
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Blankets-Farewell-Retirement-Coworkers/dp/B099PVQDVV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Blankets-Farewell-Retirement-Coworkers/dp/B099PVQDVV/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Coworkers Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1277593852/farewell-gifts-for-coworker-leaving-job)
 
@@ -183,9 +181,9 @@ This mug is made from high-quality ceramic, ensuring durability and a comfortabl
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1277593852/farewell-gifts-for-coworker-leaving-job)
 
-### [10\. You Are Dead To Us Mug](https://www.amazon.com/Coworker-Leaving-Gifts-Women-Men/dp/B0B81SSDYJ/?ie=UTF8&tag=avadalove-20)
+### [10\. You Are Dead To Us Mug](https://www.amazon.com/Coworker-Leaving-Gifts-Women-Men/dp/B0B81SSDYJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Leaving-Gifts-Women-Men/dp/B0B81SSDYJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Leaving-Gifts-Women-Men/dp/B0B81SSDYJ/?ie=UTF8&tag=giftable02-20)
 
 Embrace the opportunity to show your coworker how much they mean to you with this Coworker Leaving Mug, a heartfelt gift they will treasure.
 
@@ -199,7 +197,7 @@ Its sturdy handle ensures a secure grip, and the microwave and dishwasher safe d
 
 ✔️ Microwave and dishwasher safe for hassle-free use and cleaning
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Leaving-Gifts-Women-Men/dp/B0B81SSDYJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Leaving-Gifts-Women-Men/dp/B0B81SSDYJ/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Coworker Jewelry Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1340205556/gift-for-coworker-gift-for-her-women)
 
@@ -219,9 +217,9 @@ This bracelet features a delicate chain and a charm adorned with a heartfelt mes
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1340205556/gift-for-coworker-gift-for-her-women)
 
-### [12\. A New Chapter Necklace](https://www.amazon.com/Compass-Necklace-Farewell-Coworker-SmileBelle/dp/B09Y8W52KZ/?ie=UTF8&tag=avadalove-20)
+### [12\. A New Chapter Necklace](https://www.amazon.com/Compass-Necklace-Farewell-Coworker-SmileBelle/dp/B09Y8W52KZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Compass-Necklace-Farewell-Coworker-SmileBelle/dp/B09Y8W52KZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Compass-Necklace-Farewell-Coworker-SmileBelle/dp/B09Y8W52KZ/?ie=UTF8&tag=giftable02-20)
 
 This Compass Necklace serves as a heartfelt token for your coworker, reminding them to embrace new journeys and always follow their true north.
 
@@ -235,7 +233,7 @@ Crafted with exquisite attention to detail, this necklace features a compass pen
 
 ✔️ The silver compass pendant adds a touch of elegance to any outfit
 
-[Buy from Amazon](https://www.amazon.com/Compass-Necklace-Farewell-Coworker-SmileBelle/dp/B09Y8W52KZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Compass-Necklace-Farewell-Coworker-SmileBelle/dp/B09Y8W52KZ/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Crochet Positive Potato Decor](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430775003/well-being-lovely-crochet-positive)
 
@@ -255,9 +253,9 @@ This unique crochet decor piece is skillfully made using high-quality materials,
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430775003/well-being-lovely-crochet-positive)
 
-### [14\. Going Away Gifts Desk Sign](https://www.amazon.com/Coworker-Leaving-Gifts-Colleague-Friends/dp/B0C3CNDWBL/?ie=UTF8&tag=avadalove-20)
+### [14\. Going Away Gifts Desk Sign](https://www.amazon.com/Coworker-Leaving-Gifts-Colleague-Friends/dp/B0C3CNDWBL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Leaving-Gifts-Colleague-Friends/dp/B0C3CNDWBL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Leaving-Gifts-Colleague-Friends/dp/B0C3CNDWBL/?ie=UTF8&tag=giftable02-20)
 
 This heartfelt Sign adds a touch of sentiment and style to your coworker's workspace.
 
@@ -271,11 +269,11 @@ Measuring 6x12 inches, this sign is compact yet impactful. Moreover, the elegant
 
 ✔️ Blends seamlessly with any office decor style
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Leaving-Gifts-Colleague-Friends/dp/B0C3CNDWBL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Leaving-Gifts-Colleague-Friends/dp/B0C3CNDWBL/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Funny Going Away Card](https://www.amazon.com/Greeting-Farewell-Coworkers-Oversized-Envelope/dp/B09GG1VWWM/?ie=UTF8&tag=avadalove-20)
+### [15\. Funny Going Away Card](https://www.amazon.com/Greeting-Farewell-Coworkers-Oversized-Envelope/dp/B09GG1VWWM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Greeting-Farewell-Coworkers-Oversized-Envelope/dp/B09GG1VWWM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Greeting-Farewell-Coworkers-Oversized-Envelope/dp/B09GG1VWWM/?ie=UTF8&tag=giftable02-20)
 
 Capture the essence of farewell and leave a lasting impression with this heartfelt card.
 
@@ -289,7 +287,7 @@ Measuring 8.5 x 11 inches, this card stands out with its generous size, allowing
 
 ✔️ Includes an envelope for a polished presentation
 
-[Buy from Amazon](https://www.amazon.com/Greeting-Farewell-Coworkers-Oversized-Envelope/dp/B09GG1VWWM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Greeting-Farewell-Coworkers-Oversized-Envelope/dp/B09GG1VWWM/?ie=UTF8&tag=giftable02-20)
 
 ### [16\.  Custom Face Socks](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1261092743/goodbye-gift-for-coworker-custom-face)
 
@@ -309,9 +307,9 @@ These custom face socks are made from high-quality materials, ensuring comfort a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1261092743/goodbye-gift-for-coworker-custom-face)
 
-### [17\. Quitting Job Throw Pillow](https://www.amazon.com/Funny-Farewell-Colleague-Ideas-Gifts/dp/B0C37M8WYJ/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Quitting Job Throw Pillow](https://www.amazon.com/Funny-Farewell-Colleague-Ideas-Gifts/dp/B0C37M8WYJ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Farewell-Colleague-Ideas-Gifts/dp/B0C37M8WYJ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Farewell-Colleague-Ideas-Gifts/dp/B0C37M8WYJ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Add a touch of comfort and laughter to your coworker's farewell with this funny farewell pillow.
 
@@ -325,7 +323,7 @@ This farewell pillow is made from soft and durable materials, ensuring both comf
 
 ✔️ Leaves a lasting impression and shows appreciation
 
-[Buy from Amazon](https://www.amazon.com/Funny-Farewell-Colleague-Ideas-Gifts/dp/B0C37M8WYJ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Farewell-Colleague-Ideas-Gifts/dp/B0C37M8WYJ/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Landscape Custom Plaque](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297008847/any-us-state-landscape-custom-plaque?show_sold_out_detail=1&ref=nla_listing_details)
 
@@ -345,9 +343,9 @@ The plaque measures 8x10 inches, making it a great highlighting decor for a desk
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297008847/any-us-state-landscape-custom-plaque?show_sold_out_detail=1&ref=nla_listing_details)
 
-### [19\. Coworker Leaving Tumbler](https://www.amazon.com/Coworker-Gifts-Goodbye-Promotion-Colleagues-Coworkers/dp/B09J17F581/?ie=UTF8&tag=avadalove-20)
+### [19\. Coworker Leaving Tumbler](https://www.amazon.com/Coworker-Gifts-Goodbye-Promotion-Colleagues-Coworkers/dp/B09J17F581/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Gifts-Goodbye-Promotion-Colleagues-Coworkers/dp/B09J17F581/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Gifts-Goodbye-Promotion-Colleagues-Coworkers/dp/B09J17F581/?ie=UTF8&tag=giftable02-20)
 
 Give your coworker a stylish and practical gift with this tumbler, perfect for celebrating their promotion or bid them farewell.
 
@@ -361,7 +359,7 @@ The tumbler has a generous capacity of 20 ounces, providing ample space for thei
 
 ✔️ 20-ounce capacity for ample refreshment
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Gifts-Goodbye-Promotion-Colleagues-Coworkers/dp/B09J17F581/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Gifts-Goodbye-Promotion-Colleagues-Coworkers/dp/B09J17F581/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Never Too Far To Drink Wine Glass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1252178130/never-too-far-to-drink-together-stemless)
 
@@ -381,9 +379,9 @@ Crafted with care, this wine glass is made from durable materials that are dishw
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1252178130/never-too-far-to-drink-together-stemless)
 
-### [21\. Coworker Leaving Decoration](https://www.amazon.com/Farewell-Coworkers-Coworker-Retirement-Decorations/dp/B0BVRL4DNF/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Coworker Leaving Decoration](https://www.amazon.com/Farewell-Coworkers-Coworker-Retirement-Decorations/dp/B0BVRL4DNF/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Farewell-Coworkers-Coworker-Retirement-Decorations/dp/B0BVRL4DNF/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Farewell-Coworkers-Coworker-Retirement-Decorations/dp/B0BVRL4DNF/?th=1?ie=UTF8&tag=giftable02-20)
 
 Transform any space into a heartfelt tribute with this exquisite farewell decoration.
 
@@ -397,11 +395,11 @@ Measuring 11.8 x 7.8 inches, this high-quality decoration is crafted from durabl
 
 ✔️ Comes with an attached rope for convenient hanging
 
-[Buy from Amazon](https://www.amazon.com/Farewell-Coworkers-Coworker-Retirement-Decorations/dp/B0BVRL4DNF/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Farewell-Coworkers-Coworker-Retirement-Decorations/dp/B0BVRL4DNF/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [22\. Employee Farewell Goodbye Gifts](https://www.amazon.com/AWDK-Farewell-coworker-Coworker-Employee/dp/B0BZZ5FBR2/?ie=UTF8&tag=avadalove-20)
+### [22\. Employee Farewell Goodbye Gifts](https://www.amazon.com/AWDK-Farewell-coworker-Coworker-Employee/dp/B0BZZ5FBR2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AWDK-Farewell-coworker-Coworker-Employee/dp/B0BZZ5FBR2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AWDK-Farewell-coworker-Coworker-Employee/dp/B0BZZ5FBR2/?ie=UTF8&tag=giftable02-20)
 
 Celebrate your coworker's accomplishments and send them off with a meaningful gift set that they'll treasure for years to come. It's a heartfelt way to show gratitude and wish them success on their journey.
 
@@ -415,7 +413,7 @@ The tumbler features double-wall insulation to keep drinks hot or cold for longe
 
 ✔️ Adds a touch of humor to their daily routine
 
-[Buy from Amazon](https://www.amazon.com/AWDK-Farewell-coworker-Coworker-Employee/dp/B0BZZ5FBR2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AWDK-Farewell-coworker-Coworker-Employee/dp/B0BZZ5FBR2/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Personalized Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/675618094/going-away-coworker-gift-colleague)
 
@@ -435,9 +433,9 @@ This frame is carefully crafted with high-quality materials and features an eleg
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/675618094/going-away-coworker-gift-colleague)
 
-### [24\. Thanks A Lot Bitch Keychain](https://www.amazon.com/TGBJE-Coworker-Leaving-Shithole-Keychain/dp/B087JQSPLW/?ie=UTF8&tag=avadalove-20)
+### [24\. Thanks A Lot Bitch Keychain](https://www.amazon.com/TGBJE-Coworker-Leaving-Shithole-Keychain/dp/B087JQSPLW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TGBJE-Coworker-Leaving-Shithole-Keychain/dp/B087JQSPLW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TGBJE-Coworker-Leaving-Shithole-Keychain/dp/B087JQSPLW/?ie=UTF8&tag=giftable02-20)
 
 Give your coworker a memorable and laughter-filled farewell with this quirky keychain. It's a small token of appreciation to remind them of the fun times shared and leave a lasting impression.
 
@@ -451,7 +449,7 @@ It features a sleek design with a meaningful quote, making it a perfect keepsake
 
 ✔️ Compact and lightweight, perfect for everyday use
 
-[Buy from Amazon](https://www.amazon.com/TGBJE-Coworker-Leaving-Shithole-Keychain/dp/B087JQSPLW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TGBJE-Coworker-Leaving-Shithole-Keychain/dp/B087JQSPLW/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Coworker Departure Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1143778366/gift-for-coworker-these-people-are-going)
 
@@ -471,9 +469,9 @@ This gift is a beautiful, handcrafted wooden plaque made from high-quality mater
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1143778366/gift-for-coworker-these-people-are-going)
 
-### [26\. Going Away Candle](https://www.amazon.com/YouNique-Designs-Coworker-Farewell-Aromatherapy/dp/B0B3163QDG/?ie=UTF8&tag=avadalove-20)
+### [26\. Going Away Candle](https://www.amazon.com/YouNique-Designs-Coworker-Farewell-Aromatherapy/dp/B0B3163QDG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YouNique-Designs-Coworker-Farewell-Aromatherapy/dp/B0B3163QDG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YouNique-Designs-Coworker-Farewell-Aromatherapy/dp/B0B3163QDG/?ie=UTF8&tag=giftable02-20)
 
 Light up the farewell of your amazing coworker with this exquisite candle that says, "Wishing you the best on your new adventure."
 
@@ -487,11 +485,11 @@ This hand-poured soy wax candle offers a soothing aromatherapy experience with i
 
 ✔️ The glass jar adds a touch of sophistication to any decor
 
-[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Coworker-Farewell-Aromatherapy/dp/B0B3163QDG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Coworker-Farewell-Aromatherapy/dp/B0B3163QDG/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Coworker Leaving Glass](https://www.amazon.com/Coworker-Gifts-Women-Coworkers-Appreciation/dp/B0BXWW9VRC/?ie=UTF8&tag=avadalove-20)
+### [27\. Coworker Leaving Glass](https://www.amazon.com/Coworker-Gifts-Women-Coworkers-Appreciation/dp/B0BXWW9VRC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Gifts-Women-Coworkers-Appreciation/dp/B0BXWW9VRC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Gifts-Women-Coworkers-Appreciation/dp/B0BXWW9VRC/?ie=UTF8&tag=giftable02-20)
 
 With this meaningful glass, you can express your gratitude and admiration for your coworker in a heartfelt way. Cheers to their success and bright future!
 
@@ -505,7 +503,7 @@ This high-quality glass is made from durable, lead-free crystal, ensuring a new 
 
 ✔️ Holds 15 ounces of their preferred drink
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Gifts-Women-Coworkers-Appreciation/dp/B0BXWW9VRC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Gifts-Women-Coworkers-Appreciation/dp/B0BXWW9VRC/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Personalized Coworker Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1335584973/personalized-coworker-gift-farewell-gift)
 
@@ -525,9 +523,9 @@ The necklace features a delicate pendant of high-quality stainless steel, ensuri
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1335584973/personalized-coworker-gift-farewell-gift)
 
-### [29\. Amazonite Beads Farewell Bracelet](https://www.amazon.com/SOLINFOR-Coworker-Leaving-Gifts-Women/dp/B07SBQ3M25/?ie=UTF8&tag=avadalove-20)
+### [29\. Amazonite Beads Farewell Bracelet](https://www.amazon.com/SOLINFOR-Coworker-Leaving-Gifts-Women/dp/B07SBQ3M25/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SOLINFOR-Coworker-Leaving-Gifts-Women/dp/B07SBQ3M25/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SOLINFOR-Coworker-Leaving-Gifts-Women/dp/B07SBQ3M25/?ie=UTF8&tag=giftable02-20)
 
 Elevate your coworker's style and show appreciation with a meaningful bracelet that speaks volumes.
 
@@ -541,7 +539,7 @@ The bracelet is beautifully crafted using high-quality stainless steel and adorn
 
 ✔️ Infinity symbol represents the lasting connections
 
-[Buy from Amazon](https://www.amazon.com/SOLINFOR-Coworker-Leaving-Gifts-Women/dp/B07SBQ3M25/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SOLINFOR-Coworker-Leaving-Gifts-Women/dp/B07SBQ3M25/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Morse Code Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1155565076/ill-be-back-gift-ill-be-waiting-gift)
 
@@ -597,9 +595,9 @@ The box is meticulously designed and constructed, measuring approximately 4 inch
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1174843776/may-you-be-proud-of-the-work-you-do-the)
 
-### [33\. Indoor Putting Green Golf](https://www.amazon.com/PUTT-Foot-Putting-Green-Sports/dp/B09X7H9MRX/?ie=UTF8&tag=avadalove-20)
+### [33\. Indoor Putting Green Golf](https://www.amazon.com/PUTT-Foot-Putting-Green-Sports/dp/B09X7H9MRX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PUTT-Foot-Putting-Green-Sports/dp/B09X7H9MRX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PUTT-Foot-Putting-Green-Sports/dp/B09X7H9MRX/?ie=UTF8&tag=giftable02-20)
 
 Transform your home or office into a golfer's paradise with this Putting Green. It's not just a piece of turf; it's a gateway to relaxation, focus, and honing your golfing skills.
 
@@ -613,11 +611,11 @@ The realistic design with markings helps you improve your aim and accuracy. The 
 
 ✔️ Portable and easy to set up, perfect for indoor and outdoor use
 
-[Buy from Amazon](https://www.amazon.com/PUTT-Foot-Putting-Green-Sports/dp/B09X7H9MRX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PUTT-Foot-Putting-Green-Sports/dp/B09X7H9MRX/?ie=UTF8&tag=giftable02-20)
 
-### [34\. WeatherSof Golf Gloves](https://www.amazon.com/FootJoy-WeatherSof-2-Pack-Gloves-Regular/dp/B0755NVKL9/?th=1?ie=UTF8&tag=avadalove-20)
+### [34\. WeatherSof Golf Gloves](https://www.amazon.com/FootJoy-WeatherSof-2-Pack-Gloves-Regular/dp/B0755NVKL9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FootJoy-WeatherSof-2-Pack-Gloves-Regular/dp/B0755NVKL9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FootJoy-WeatherSof-2-Pack-Gloves-Regular/dp/B0755NVKL9/?th=1?ie=UTF8&tag=giftable02-20)
 
 Enhance your golf game with the FootJoy WeatherSof Gloves. These gloves are not just about grip and comfort; they offer a deeper connection between you and the game you love.
 
@@ -633,7 +631,7 @@ With a blend of advanced materials and innovative design, these gloves provide s
 
 ✔️ Flexible and ergonomic design for a natural and unrestricted feel
 
-[Buy from Amazon](https://www.amazon.com/FootJoy-WeatherSof-2-Pack-Gloves-Regular/dp/B0755NVKL9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FootJoy-WeatherSof-2-Pack-Gloves-Regular/dp/B0755NVKL9/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Congratulations On Quitting Your Job Bar Glass](https://loveable.us/products/congratulations-on-quitting-your-job-bar-glass-farewell-gift-for-coworkers-307ihpbnmu889?variant=44663615521000?utm_source=avada&ranking=&utm_source=&utm_campaign=35-meaningful-going-away-gifts-for-coworker-in-2023)
 
@@ -695,9 +693,9 @@ The candle is made from soy contributing to cleaner burning with less soot. The 
 
 [Buy from Loveable](https://loveable.us/products/id-burn-this-place-down-if-you-didnt-work-here-scented-soy-candle-coworker-farewell-gift-307ihpbnsc888?variant=44673755480296?utm_source=avada&ranking=&utm_source=&utm_campaign=35-meaningful-going-away-gifts-for-coworker-in-2023)
 
-### [38\. Thank You Gift Wooden Plaque](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [38\. Thank You Gift Wooden Plaque](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Express your gratitude with more than just words with the Thank You Gift Wooden Plaque. It's the perfect keepsake for any coworker.
 
@@ -713,11 +711,11 @@ The plaque exhibits exceptional craftsmanship and durability, ensuring that this
 
 ✔️ Recognizes effort
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [39\. Never Forget the Difference You Make Wooden Block](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [39\. Never Forget the Difference You Make Wooden Block](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Surprise your co-workers with a touch of recognition in the form of the Never Forget the Difference You Make Wooden Block. An outstanding reminder of their valuable contributions to the team.
 
@@ -733,11 +731,11 @@ This wooden block boasts integrity and dedication, qualities that are mirrored i
 
 ✔️ Encourages positivity
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [40\. Thank You Gift for Coworker](https://www.amazon.com/dp/B0CFFCBMKM?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [40\. Thank You Gift for Coworker](https://www.amazon.com/dp/B0CFFCBMKM?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CFFCBMKM?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CFFCBMKM?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 If you’re seeking to express gratitude to your colleague, consider the "Thank You Gift for Coworker." This unique item will undoubtedly bring a smile to any co-worker's face.
 
@@ -753,7 +751,7 @@ Made with durable material and an aesthetically pleasing design, it can comforta
 
 ✔️ Expresses Appreciation
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CFFCBMKM?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CFFCBMKM?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [41\. Fuck You Leaving Me Candle](https://loveable.us/products/fuck-you-leaving-me-personalized-scented-soy-candle-9oz-farewell-gift-308ihpnpsc76?variant=44695940301032?utm_source=avada&ranking=&utm_source=&utm_campaign=35-meaningful-going-away-gifts-for-coworker-in-2023)
 

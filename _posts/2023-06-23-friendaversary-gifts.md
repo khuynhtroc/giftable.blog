@@ -17,8 +17,6 @@ Imagine the smile that will light up your friend's face as they unwrap a persona
 
 Shop our extensive range of several friendaversary gifts and tell your friend how much they mean to your life. Ranging from sentimental keepsakes to fun experiences, we have created a collection of 35 exceptional friendaversary gifts that will make your friend's heart swell with joy. Now, just feel free to immerse into our gift list paradise to honor your bestie!
 
-**You and your friend will love**: **[Best Thank You Gifts for Friends](/loveable/thank-you-gifts-for-friends/)**
-
 ### [1\. Personalized Acrylic Plaque](https://loveable.ai/products/because-of-you-i-laugh-a-little-harder-personalized-acrylic-plaque-best-gift-for-bestie-friends-sisters-brothers-303ihpnpca312?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
 [](https://loveable.ai/products/because-of-you-i-laugh-a-little-harder-personalized-acrylic-plaque-best-gift-for-bestie-friends-sisters-brothers-303ihpnpca312?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
@@ -109,9 +107,9 @@ Measuring approximately 12 x 12 inches, this square canvas poster is the perfect
 
 [Buy from Loveable](https://loveable.ai/products/side-by-side-or-miles-apart-personalized-square-canvas-poster-wall-art-home-decor-best-gift-for-sisters-friends-302ihplnca177?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
-### [6\. Bottle Friendship Gift](https://www.amazon.com/Messages-Friendship-Bestfriend-Pre-Written-Valentines/dp/B08R1962CQ/?ie=UTF8&tag=avadalove-20)
+### [6\. Bottle Friendship Gift](https://www.amazon.com/Messages-Friendship-Bestfriend-Pre-Written-Valentines/dp/B08R1962CQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Messages-Friendship-Bestfriend-Pre-Written-Valentines/dp/B08R1962CQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Messages-Friendship-Bestfriend-Pre-Written-Valentines/dp/B08R1962CQ/?ie=UTF8&tag=giftable02-20)
 
 Celebrate the incredible bond of friendship with our Messages of Friendship Bottle Gift.
 
@@ -125,7 +123,7 @@ The bottle contains 31 beautifully designed messages, one for each day of the mo
 
 ✔️ Thoughtful collection of pre-written messages
 
-[Buy from Amazon](https://www.amazon.com/Messages-Friendship-Bestfriend-Pre-Written-Valentines/dp/B08R1962CQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Messages-Friendship-Bestfriend-Pre-Written-Valentines/dp/B08R1962CQ/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Good Luck Candle](https://loveable.ai/products/friend-going-away-gift-good-luck-finding-better-bitches-to-bitch-about-bitches-with-long-distance-friendship-gift-scented-candle-soy-candle-9oz-goodbye-gift-for-bestie-for-bff-302icnvssc134?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
@@ -199,9 +197,9 @@ Let your friend enjoy their favorite beverage in this special mug, filled with m
 
 [Buy from Loveable](https://loveable.ai/products/best-friend-description-with-favorite-song-personalized-white-mug-best-gift-for-friends-bestie-on-birthdays-303ihptlmu395?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
-### [11\. Best Friend Keychain](https://www.amazon.com/Keychain-Companion-Christmas-Valentine-Graduation/dp/B081TYM5BM/?ie=UTF8&tag=avadalove-20)
+### [11\. Best Friend Keychain](https://www.amazon.com/Keychain-Companion-Christmas-Valentine-Graduation/dp/B081TYM5BM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Companion-Christmas-Valentine-Graduation/dp/B081TYM5BM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Companion-Christmas-Valentine-Graduation/dp/B081TYM5BM/?ie=UTF8&tag=giftable02-20)
 
 The keychain features a beautiful design that symbolizes the connection between two souls, making it a heartfelt gift for friendaversaries, birthdays, Christmas, or any other occasion.
 
@@ -215,7 +213,7 @@ With its durable construction, this keychain is built to withstand the test of t
 
 ✔️ Symbolic representation of friendship
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Companion-Christmas-Valentine-Graduation/dp/B081TYM5BM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Companion-Christmas-Valentine-Graduation/dp/B081TYM5BM/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Led Light Plaque](https://loveable.ai/products/best-friend-forever-i-will-always-have-you-personalized-upload-photo-led-light-best-gift-for-best-friends-for-besties-brothersister-anniversary-gift-305ihpnpll563?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
@@ -253,9 +251,9 @@ Its delicate design and timeless elegance make it the perfect accessory to wear 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/648227465/)
 
-### [14\. Unique Gift Set](https://www.amazon.com/Friend-Birthday-Friends-Distance-Friendship/dp/B09J5XD74N/?ie=UTF8&tag=avadalove-20)
+### [14\. Unique Gift Set](https://www.amazon.com/Friend-Birthday-Friends-Distance-Friendship/dp/B09J5XD74N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Friend-Birthday-Friends-Distance-Friendship/dp/B09J5XD74N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Friend-Birthday-Friends-Distance-Friendship/dp/B09J5XD74N/?ie=UTF8&tag=giftable02-20)
 
 Embark on a journey of heartfelt surprises and meaningful connections with Unique Gift Set, a carefully curated collection designed to celebrate friendship and create lasting memories. This extraordinary gift set is a thoughtful items that will leave your friend in awe.
 
@@ -269,7 +267,7 @@ From delightful treats to personalized keepsakes, each component of this set has
 
 ✔️ Thoughtfully curated surprises
 
-[Buy from Amazon](https://www.amazon.com/Friend-Birthday-Friends-Distance-Friendship/dp/B09J5XD74N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Friend-Birthday-Friends-Distance-Friendship/dp/B09J5XD74N/?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Photo Ceramic Ornament](https://loveable.ai/products/good-friends-are-like-stars-personalized-upload-photo-ceramic-ornament-best-gift-friends-for-besties-on-anniversary-for-christmas-211icnnpor201?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
@@ -325,9 +323,9 @@ The sign features the charming phrase "This is us, a little bit crazy," adding a
 
 [Buy from Loveable](https://loveable.ai/products/this-is-us-a-little-bit-crazay-upload-image-rectangle-wooden-sign-best-gift-for-besties-friends-305ihpnpre565?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
-### [18\. Notes Glass Bottle](https://www.amazon.com/Infmetry-Boyfriend-Girlfriend-Birthday-Anniversary/dp/B0136A7PLM/?ie=UTF8&tag=avadalove-20)
+### [18\. Notes Glass Bottle](https://www.amazon.com/Infmetry-Boyfriend-Girlfriend-Birthday-Anniversary/dp/B0136A7PLM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Infmetry-Boyfriend-Girlfriend-Birthday-Anniversary/dp/B0136A7PLM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Infmetry-Boyfriend-Girlfriend-Birthday-Anniversary/dp/B0136A7PLM/?ie=UTF8&tag=giftable02-20)
 
 Unlock the magic of surprises with our whimsical Notes Glass Bottle! This adorable gift is packed with love and laughter, perfect for memorably celebrating your friendaversary.
 
@@ -341,7 +339,7 @@ Inside the bottle, you'll find a collection of handwritten notes, each filled wi
 
 ✔️ Surprise-filled bottle of joy
 
-[Buy from Amazon](https://www.amazon.com/Infmetry-Boyfriend-Girlfriend-Birthday-Anniversary/dp/B0136A7PLM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Infmetry-Boyfriend-Girlfriend-Birthday-Anniversary/dp/B0136A7PLM/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Keeping Memory Sign](https://loveable.ai/products/best-friend-are-hard-to-find-custom-photo-and-name-best-gift-for-friend-keeping-memory-together-209ihnunpt693?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
@@ -361,9 +359,9 @@ Hang it on the wall and let it serve as a daily reminder of the adventures, laug
 
 [Buy from Loveable](https://loveable.ai/products/best-friend-are-hard-to-find-custom-photo-and-name-best-gift-for-friend-keeping-memory-together-209ihnunpt693?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-friendaversary-gifts-to-celebrate-friendship)
 
-### [20\. Inspirational Bracelets](https://www.amazon.com/Joycuff-Bracelets-Inspirational-Bracelet-Fighter/dp/B08KD53HS9/?ie=UTF8&tag=avadalove-20)
+### [20\. Inspirational Bracelets](https://www.amazon.com/Joycuff-Bracelets-Inspirational-Bracelet-Fighter/dp/B08KD53HS9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Joycuff-Bracelets-Inspirational-Bracelet-Fighter/dp/B08KD53HS9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Joycuff-Bracelets-Inspirational-Bracelet-Fighter/dp/B08KD53HS9/?ie=UTF8&tag=giftable02-20)
 
 Get ready to accessorize with this pretty Inspirational Bracelets from Joycuff!
 
@@ -377,7 +375,7 @@ With uplifting and funny messages engraved on each bracelet, they serve as daily
 
 ✔️ Inspiring and funny messages
 
-[Buy from Amazon](https://www.amazon.com/Joycuff-Bracelets-Inspirational-Bracelet-Fighter/dp/B08KD53HS9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Joycuff-Bracelets-Inspirational-Bracelet-Fighter/dp/B08KD53HS9/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Best Friend Preserved Roses](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/920921548/)
 
@@ -397,9 +395,9 @@ Forget about watering or wilting, these roses will stay perfect for years to com
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/920921548/)
 
-### [22\. Pendant Chain Necklace](https://www.amazon.com/QXFQJT-Necklace-Friendship-Christmas-Pendant/dp/B07L8GTQD4/?ie=UTF8&tag=avadalove-20)
+### [22\. Pendant Chain Necklace](https://www.amazon.com/QXFQJT-Necklace-Friendship-Christmas-Pendant/dp/B07L8GTQD4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/QXFQJT-Necklace-Friendship-Christmas-Pendant/dp/B07L8GTQD4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/QXFQJT-Necklace-Friendship-Christmas-Pendant/dp/B07L8GTQD4/?ie=UTF8&tag=giftable02-20)
 
 Get ready to sparkle and shine with Pendant Chain Necklace! This dazzling piece is more than just a necklace - it symbolizes your unbreakable friendship.
 
@@ -413,11 +411,11 @@ Let your friend know how big your love is by gifting them this beautiful pendant
 
 ✔️ Symbol of unbreakable friendship
 
-[Buy from Amazon](https://www.amazon.com/QXFQJT-Necklace-Friendship-Christmas-Pendant/dp/B07L8GTQD4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/QXFQJT-Necklace-Friendship-Christmas-Pendant/dp/B07L8GTQD4/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Ceramic Soy Candle](https://www.amazon.com/Pavilion-Gift-Company-Dandelion-Serenity/dp/B01N40YANE/?ie=UTF8&tag=avadalove-20)
+### [23\. Ceramic Soy Candle](https://www.amazon.com/Pavilion-Gift-Company-Dandelion-Serenity/dp/B01N40YANE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pavilion-Gift-Company-Dandelion-Serenity/dp/B01N40YANE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pavilion-Gift-Company-Dandelion-Serenity/dp/B01N40YANE/?ie=UTF8&tag=giftable02-20)
 
 This little jar of joy is more than just a candle - it's a cozy companion that brings relaxation and peace to your friendaversary.
 
@@ -431,7 +429,7 @@ Light it up and let the calming aroma of dandelion drift through the air, creati
 
 ✔️ Serenity in a jar
 
-[Buy from Amazon](https://www.amazon.com/Pavilion-Gift-Company-Dandelion-Serenity/dp/B01N40YANE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pavilion-Gift-Company-Dandelion-Serenity/dp/B01N40YANE/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Memory Film Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/)
 
@@ -451,9 +449,9 @@ This little treasure is not just any ordinary keychain - it's a magical keepsake
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/)
 
-### [25\. Sculpted Keepsake Box](https://www.amazon.com/Willow-Tree-Friendship-sculpted-hand-painted/dp/B000CQX62G/?ie=UTF8&tag=avadalove-20)
+### [25\. Sculpted Keepsake Box](https://www.amazon.com/Willow-Tree-Friendship-sculpted-hand-painted/dp/B000CQX62G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Willow-Tree-Friendship-sculpted-hand-painted/dp/B000CQX62G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Willow-Tree-Friendship-sculpted-hand-painted/dp/B000CQX62G/?ie=UTF8&tag=giftable02-20)
 
 Feast your eyes on this enchanting Sculpted Keepsake Box ready to safeguard your precious bonds.
 
@@ -467,7 +465,7 @@ It's like having a little treasure chest filled with memories, waiting to be ope
 
 ✔️ Friendship in a box
 
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-Friendship-sculpted-hand-painted/dp/B000CQX62G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Willow-Tree-Friendship-sculpted-hand-painted/dp/B000CQX62G/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Promise Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1204728709/)
 
@@ -487,9 +485,9 @@ This keychain will keep your keys organized and add a touch of charm to your eve
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1204728709/)
 
-### [27\. Trinket Dish](https://www.amazon.com/PUDDING-CABIN-Friendship-Trinket-Birthday/dp/B085XX9B7B/?ie=UTF8&tag=avadalove-20)
+### [27\. Trinket Dish](https://www.amazon.com/PUDDING-CABIN-Friendship-Trinket-Birthday/dp/B085XX9B7B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PUDDING-CABIN-Friendship-Trinket-Birthday/dp/B085XX9B7B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PUDDING-CABIN-Friendship-Trinket-Birthday/dp/B085XX9B7B/?ie=UTF8&tag=giftable02-20)
 
 Get ready to add a sprinkle of friendship magic to your life with this adorable Trinket Dish! It's like a tiny stage where your precious trinkets can take center stage and bask in the glory of friendship.
 
@@ -503,11 +501,11 @@ Every time you place your favorite earrings or delicate jewelry on this dish, it
 
 ✔️ Friendship magic in every dish
 
-[Buy from Amazon](https://www.amazon.com/PUDDING-CABIN-Friendship-Trinket-Birthday/dp/B085XX9B7B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PUDDING-CABIN-Friendship-Trinket-Birthday/dp/B085XX9B7B/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Leather Keychain](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09VKWC8TP/?ie=UTF8&tag=avadalove-20)
+### [28\. Leather Keychain](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09VKWC8TP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09VKWC8TP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09VKWC8TP/?ie=UTF8&tag=giftable02-20)
 
 Look no further than this Leather Keychain, the ultimate symbol of friendship and connection! Made with love and a touch of humor, this keychain is a constant reminder that even if you're miles apart, your bond remains unbreakable.
 
@@ -521,7 +519,7 @@ Crafted with high-quality leather and a sturdy stainless steel ring, it's design
 
 ✔️ Unbreakable bond in every keychain
 
-[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09VKWC8TP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09VKWC8TP/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Heart Keychain Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1253740824/)
 
@@ -541,9 +539,9 @@ Made from high-quality materials, these heart-shaped keychains are the perfect s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1253740824/)
 
-### [30\. Coworker Friend Tumbler](https://www.amazon.com/TEEZWONDER-Coworkers-Thoughtful-Appreciation-Stainless/dp/B0BP7GRLK7/?ie=UTF8&tag=avadalove-20)
+### [30\. Coworker Friend Tumbler](https://www.amazon.com/TEEZWONDER-Coworkers-Thoughtful-Appreciation-Stainless/dp/B0BP7GRLK7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TEEZWONDER-Coworkers-Thoughtful-Appreciation-Stainless/dp/B0BP7GRLK7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TEEZWONDER-Coworkers-Thoughtful-Appreciation-Stainless/dp/B0BP7GRLK7/?ie=UTF8&tag=giftable02-20)
 
 Looking for a stainless steel tumbler that's not just for sipping coffee, but also for celebrating friendship? Well, you're in luck! This Stainless Steel Tumbler is the perfect way to show your appreciation to your friend on your friendaversary.
 
@@ -557,11 +555,11 @@ With its hilarious and heartwarming design, every sip from this tumbler will bri
 
 ✔️ Pretty and personal design on tumbler body
 
-[Buy from Amazon](https://www.amazon.com/TEEZWONDER-Coworkers-Thoughtful-Appreciation-Stainless/dp/B0BP7GRLK7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TEEZWONDER-Coworkers-Thoughtful-Appreciation-Stainless/dp/B0BP7GRLK7/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Cookbook Stand](https://www.amazon.com/Birthday-Friends-Friendship-Housewarming-Cookbook/dp/B0B2LKRJ31/?ie=UTF8&tag=avadalove-20)
+### [31\. Cookbook Stand](https://www.amazon.com/Birthday-Friends-Friendship-Housewarming-Cookbook/dp/B0B2LKRJ31/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Friends-Friendship-Housewarming-Cookbook/dp/B0B2LKRJ31/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Friends-Friendship-Housewarming-Cookbook/dp/B0B2LKRJ31/?ie=UTF8&tag=giftable02-20)
 
 This Cookbook Stand is here to add a dash of love and laughter to your friend's kitchen! It's not your ordinary stand; it's a culinary companion that celebrates the joy of cooking and the bond of friendship.
 
@@ -575,11 +573,11 @@ With its charming design and witty quotes, it'll turn any kitchen into a laughte
 
 ✔️ Cooking with a side of humor
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Friends-Friendship-Housewarming-Cookbook/dp/B0B2LKRJ31/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Friends-Friendship-Housewarming-Cookbook/dp/B0B2LKRJ31/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Matching Puzzle Keychain](https://www.amazon.com/Top-Plaza-Friendship-Keychains-Matching/dp/B07RY7DD8M/?ie=UTF8&tag=avadalove-20)
+### [32\. Matching Puzzle Keychain](https://www.amazon.com/Top-Plaza-Friendship-Keychains-Matching/dp/B07RY7DD8M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Top-Plaza-Friendship-Keychains-Matching/dp/B07RY7DD8M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Top-Plaza-Friendship-Keychains-Matching/dp/B07RY7DD8M/?ie=UTF8&tag=giftable02-20)
 
 These little gems are not just ordinary keychains; they're a symbol of the unbreakable bond between friends. Each keychain features a unique puzzle piece design, and when combined, they form a complete puzzle, representing the inseparable connection between you and your bestie.
 
@@ -593,11 +591,11 @@ They also come in vibrant colors and are made with high-quality materials, ensur
 
 ✔️ Friendship in puzzle form
 
-[Buy from Amazon](https://www.amazon.com/Top-Plaza-Friendship-Keychains-Matching/dp/B07RY7DD8M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Top-Plaza-Friendship-Keychains-Matching/dp/B07RY7DD8M/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Thanks Greeting Card](https://www.amazon.com/Pretty-Fucking-Awesome-Encourage-Greeting/dp/B08TM4B3GZ/?ie=UTF8&tag=avadalove-20)
+### [33\. Thanks Greeting Card](https://www.amazon.com/Pretty-Fucking-Awesome-Encourage-Greeting/dp/B08TM4B3GZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pretty-Fucking-Awesome-Encourage-Greeting/dp/B08TM4B3GZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pretty-Fucking-Awesome-Encourage-Greeting/dp/B08TM4B3GZ/?ie=UTF8&tag=giftable02-20)
 
 Need a greeting card that truly speaks your language? Look no further than this Thanks Greeting Card. It's not your average card—it's pretty freaking awesome!
 
@@ -611,11 +609,11 @@ It's the perfect way to express your gratitude to your friend in a way that refl
 
 ✔️ Hilariously honest expressions
 
-[Buy from Amazon](https://www.amazon.com/Pretty-Fucking-Awesome-Encourage-Greeting/dp/B08TM4B3GZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pretty-Fucking-Awesome-Encourage-Greeting/dp/B08TM4B3GZ/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Morse Code Bracelet](https://www.amazon.com/Bracelets-Friendship-Birthday-Handmade-Adjustable/dp/B0928RJR8Z/?ie=UTF8&tag=avadalove-20)
+### [34\. Morse Code Bracelet](https://www.amazon.com/Bracelets-Friendship-Birthday-Handmade-Adjustable/dp/B0928RJR8Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bracelets-Friendship-Birthday-Handmade-Adjustable/dp/B0928RJR8Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bracelets-Friendship-Birthday-Handmade-Adjustable/dp/B0928RJR8Z/?ie=UTF8&tag=giftable02-20)
 
 Crack the code of friendship with this Morse Code Bracelet! Hidden within the dainty beads are secret messages only you and your friend can decipher.
 
@@ -629,7 +627,7 @@ It's like having your secret language on your wrist! This handmade bracelet is a
 
 ✔️ Secret messages in style
 
-[Buy from Amazon](https://www.amazon.com/Bracelets-Friendship-Birthday-Handmade-Adjustable/dp/B0928RJR8Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bracelets-Friendship-Birthday-Handmade-Adjustable/dp/B0928RJR8Z/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Engraved Wooden Coasters](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1494960631/)
 

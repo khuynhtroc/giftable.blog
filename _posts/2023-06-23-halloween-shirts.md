@@ -125,9 +125,9 @@ The enchanting birthday greeting is brought to life by the vivid colors and supe
 
 [Buy from Loveable](https://loveable.ai/products/its-my-birthday-witches-best-t-shirt-gift-for-halloween-208ihnthts544?&variant=43774851449064?utm_source=avada&ranking=&utm_source=&utm_campaign=best-halloween-shirts-to-spook-up-your-style)
 
-### [7\. Halloween Shirt Women](https://www.amazon.com/VKEGNIO-Sanderson-Sisters-Halloween-Breakfast/dp/B09FL35VLB/?ie=UTF8&tag=avadalove-20)
+### [7\. Halloween Shirt Women](https://www.amazon.com/VKEGNIO-Sanderson-Sisters-Halloween-Breakfast/dp/B09FL35VLB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VKEGNIO-Sanderson-Sisters-Halloween-Breakfast/dp/B09FL35VLB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VKEGNIO-Sanderson-Sisters-Halloween-Breakfast/dp/B09FL35VLB/?ie=UTF8&tag=giftable02-20)
 
 Make your Halloween celebrations more exciting with the Sanderson Sisters Halloween Shirt for Women.
 
@@ -141,11 +141,11 @@ It's the ideal way to flaunt your admiration for this classic movie thanks to it
 
 ✔️ Classic crew neckline and short sleeves
 
-[Buy from Amazon](https://www.amazon.com/VKEGNIO-Sanderson-Sisters-Halloween-Breakfast/dp/B09FL35VLB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VKEGNIO-Sanderson-Sisters-Halloween-Breakfast/dp/B09FL35VLB/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Shirt for Women Horror Scary Movies](https://www.amazon.com/Halloween-Horror-Bleached-Novelty-Graphic/dp/B0BCQG1T89/?ie=UTF8&tag=avadalove-20) 
+### [8\. Shirt for Women Horror Scary Movies](https://www.amazon.com/Halloween-Horror-Bleached-Novelty-Graphic/dp/B0BCQG1T89/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Halloween-Horror-Bleached-Novelty-Graphic/dp/B0BCQG1T89/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Horror-Bleached-Novelty-Graphic/dp/B0BCQG1T89/?ie=UTF8&tag=giftable02-20)
 
 Stand out from the crowd this Halloween with the eye-catching and unforgettable Horror Scary Movies Shirt for Women - the perfect blend of style and spookiness!
 
@@ -159,11 +159,11 @@ It has a distinct, one-of-a-kind appearance that is both edgy and fashionable th
 
 ✔️ Soft and comfortable cotton material
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Horror-Bleached-Novelty-Graphic/dp/B0BCQG1T89/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Horror-Bleached-Novelty-Graphic/dp/B0BCQG1T89/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Costume Unisex T-Shirt](https://www.amazon.com/Lantern-Halloween-Pumpkin-Costume-T-Shirt/dp/B01KVYXDP8/?ie=UTF8&tag=avadalove-20)
+### [9\. Costume Unisex T-Shirt](https://www.amazon.com/Lantern-Halloween-Pumpkin-Costume-T-Shirt/dp/B01KVYXDP8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lantern-Halloween-Pumpkin-Costume-T-Shirt/dp/B01KVYXDP8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lantern-Halloween-Pumpkin-Costume-T-Shirt/dp/B01KVYXDP8/?ie=UTF8&tag=giftable02-20)
 
 Unleash your Halloween spirit with the Costume Unisex T-Shirt, the ultimate choice that guarantees both comfort and style for your Halloween adventures.
 
@@ -177,11 +177,11 @@ This t-shirt perfectly captures the spirit of Halloween and gives any costume a 
 
 ✔️ Unisex design and range of sizes cater to both men and women
 
-[Buy from Amazon](https://www.amazon.com/Lantern-Halloween-Pumpkin-Costume-T-Shirt/dp/B01KVYXDP8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lantern-Halloween-Pumpkin-Costume-T-Shirt/dp/B01KVYXDP8/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Women Fall Tee Shirt Classic](https://www.amazon.com/Womens-Halloween-Classic-T-Shirt-Purple3/dp/B0992HBYTS/?ie=UTF8&tag=avadalove-20)
+### [10\. Women Fall Tee Shirt Classic](https://www.amazon.com/Womens-Halloween-Classic-T-Shirt-Purple3/dp/B0992HBYTS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Womens-Halloween-Classic-T-Shirt-Purple3/dp/B0992HBYTS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Womens-Halloween-Classic-T-Shirt-Purple3/dp/B0992HBYTS/?ie=UTF8&tag=giftable02-20)
 
 Want to add a touch of elegance and coziness to your fall outfits? Discover the Women Fall Tee Shirt Classic, the ideal choice for fashion-forward individuals.
 
@@ -195,7 +195,7 @@ The striking purple hue lends a touch of elegance, while the traditional style h
 
 ✔️ Vibrant purple color adds an elegant touch to your fall outfits
 
-[Buy from Amazon](https://www.amazon.com/Womens-Halloween-Classic-T-Shirt-Purple3/dp/B0992HBYTS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Womens-Halloween-Classic-T-Shirt-Purple3/dp/B0992HBYTS/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Floral Ghost Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1277953237/halloween-shirt-halloween-t-shirt-floral)
 
@@ -215,9 +215,9 @@ This outstanding shirt was made using top-notch materials. It combines both styl
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1277953237/halloween-shirt-halloween-t-shirt-floral)
 
-### [12\. Short Sleeve Fall Shirt](https://www.amazon.com/Bibbidi-Bobbidi-Halloween-Pumpkin-Vacation/dp/B07VBTVBWF/?ie=UTF8&tag=avadalove-20)
+### [12\. Short Sleeve Fall Shirt](https://www.amazon.com/Bibbidi-Bobbidi-Halloween-Pumpkin-Vacation/dp/B07VBTVBWF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bibbidi-Bobbidi-Halloween-Pumpkin-Vacation/dp/B07VBTVBWF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bibbidi-Bobbidi-Halloween-Pumpkin-Vacation/dp/B07VBTVBWF/?ie=UTF8&tag=giftable02-20)
 
 Stay ahead of the fashion curve this Halloween season with the trendy and stylish Bibbidi Bobbidi Halloween Pumpkin Short Sleeve Fall Shirt.
 
@@ -231,11 +231,11 @@ This top-notch shirt has all-cotton construction providing comfort and breathabi
 
 ✔️ Eye-catching Halloween-themed design
 
-[Buy from Amazon](https://www.amazon.com/Bibbidi-Bobbidi-Halloween-Pumpkin-Vacation/dp/B07VBTVBWF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bibbidi-Bobbidi-Halloween-Pumpkin-Vacation/dp/B07VBTVBWF/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Short Sleeve T Shirts](https://www.amazon.com/JINTING-Halloween-Costume-Graphic-Letter/dp/B07G4DH7FQ/?ie=UTF8&tag=avadalove-20)
+### [13\. Short Sleeve T Shirts](https://www.amazon.com/JINTING-Halloween-Costume-Graphic-Letter/dp/B07G4DH7FQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JINTING-Halloween-Costume-Graphic-Letter/dp/B07G4DH7FQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JINTING-Halloween-Costume-Graphic-Letter/dp/B07G4DH7FQ/?ie=UTF8&tag=giftable02-20)
 
 Unlock a world of comfort and style with the Short Sleeve T-Shirt, a versatile and meticulously designed piece that guarantees a fashionable look all day.
 
@@ -249,7 +249,7 @@ It belongs in every closet because of its timeless style and ideal fit. The shor
 
 ✔️ Perfect fit that flatters all body types
 
-[Buy from Amazon](https://www.amazon.com/JINTING-Halloween-Costume-Graphic-Letter/dp/B07G4DH7FQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JINTING-Halloween-Costume-Graphic-Letter/dp/B07G4DH7FQ/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Spooky Season T-Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1489254233/comfort-colors-woodsboro-horror-club)
 
@@ -269,9 +269,9 @@ This Spooky Season T-Shirt, which was made with the finest care, delivers not on
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1489254233/comfort-colors-woodsboro-horror-club)
 
-### [15\. Halloween 1978 Tees](https://www.amazon.com/Yimoya-Pumpkin-Halloween-Vintage-Michael/dp/B09CKGVQG1/?ie=UTF8&tag=avadalove-20)
+### [15\. Halloween 1978 Tees](https://www.amazon.com/Yimoya-Pumpkin-Halloween-Vintage-Michael/dp/B09CKGVQG1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Yimoya-Pumpkin-Halloween-Vintage-Michael/dp/B09CKGVQG1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Yimoya-Pumpkin-Halloween-Vintage-Michael/dp/B09CKGVQG1/?ie=UTF8&tag=giftable02-20)
 
 Check out these Graphic Tees from Yimoya if you're looking for a unique and stylish way to showcase your love for Halloween.
 
@@ -285,11 +285,11 @@ In addition to being stylish, these Graphic Tees are also wonderfully cozy to we
 
 ✔️ Versatility in styling options
 
-[Buy from Amazon](https://www.amazon.com/Yimoya-Pumpkin-Halloween-Vintage-Michael/dp/B09CKGVQG1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Yimoya-Pumpkin-Halloween-Vintage-Michael/dp/B09CKGVQG1/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Halloween Matching TShirts](https://www.amazon.com/magical-Halloween-vacation-matching-tshirts/dp/B0BCF1PRDG/?ie=UTF8&tag=avadalove-20)
+### [16\. Halloween Matching TShirts](https://www.amazon.com/magical-Halloween-vacation-matching-tshirts/dp/B0BCF1PRDG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/magical-Halloween-vacation-matching-tshirts/dp/B0BCF1PRDG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/magical-Halloween-vacation-matching-tshirts/dp/B0BCF1PRDG/?ie=UTF8&tag=giftable02-20)
 
 Celebrate Halloween in an eerie and unforgettable way with these Halloween Matching TShirts - ideal for families looking for a spooky twist.
 
@@ -303,11 +303,11 @@ They are simple to maintain and may be machine washed without fading in either c
 
 ✔️ High-quality materials
 
-[Buy from Amazon](https://www.amazon.com/magical-Halloween-vacation-matching-tshirts/dp/B0BCF1PRDG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/magical-Halloween-vacation-matching-tshirts/dp/B0BCF1PRDG/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Disney Mickey’s Halloween T-Shirt](https://www.amazon.com/Disney-Mickeys-Halloween-Trick-T-Shirt/dp/B0B3275MY9/?ie=UTF8&tag=avadalove-20)
+### [17\. Disney Mickey’s Halloween T-Shirt](https://www.amazon.com/Disney-Mickeys-Halloween-Trick-T-Shirt/dp/B0B3275MY9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Disney-Mickeys-Halloween-Trick-T-Shirt/dp/B0B3275MY9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Disney-Mickeys-Halloween-Trick-T-Shirt/dp/B0B3275MY9/?ie=UTF8&tag=giftable02-20)
 
 Get ready to celebrate Halloween in true Disney style with the Disney Mickey’s Halloween T-Shirt. Featuring the iconic Mickey Mouse adorned in a spooky Halloween costume, this t-shirt adds a touch of magic and excitement to your festive attire!
 
@@ -319,11 +319,11 @@ Get ready to celebrate Halloween in true Disney style with the Disney Mickey’s
 
 ✔️ Relaxed fit suitable for all-day wear
 
-[Buy from Amazon](https://www.amazon.com/Disney-Mickeys-Halloween-Trick-T-Shirt/dp/B0B3275MY9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Disney-Mickeys-Halloween-Trick-T-Shirt/dp/B0B3275MY9/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Halloween Pumpkin Leopard Heart T-Shirt](https://www.amazon.com/Peace-Halloween-Pumpkin-Leopard-T-Shirt/dp/B0B8XKV396/?ie=UTF8&tag=avadalove-20)
+### [18\. Halloween Pumpkin Leopard Heart T-Shirt](https://www.amazon.com/Peace-Halloween-Pumpkin-Leopard-T-Shirt/dp/B0B8XKV396/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Peace-Halloween-Pumpkin-Leopard-T-Shirt/dp/B0B8XKV396/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Peace-Halloween-Pumpkin-Leopard-T-Shirt/dp/B0B8XKV396/?ie=UTF8&tag=giftable02-20)
 
 This Halloween Pumpkin Leopard Heart T-Shirt, which was painstakingly made with attention to detail, not only has a chic appearance but also provides outstanding comfort. Because it is made of high-quality materials, it will feel snug and soft on your skin.
 
@@ -335,7 +335,7 @@ This Halloween Pumpkin Leopard Heart T-Shirt, which was painstakingly made with 
 
 ✔️ Relaxed fit suitable for all-day wear
 
-[Buy from Amazon](https://www.amazon.com/Peace-Halloween-Pumpkin-Leopard-T-Shirt/dp/B0B8XKV396/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Peace-Halloween-Pumpkin-Leopard-T-Shirt/dp/B0B8XKV396/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Vintage Scooby Doo T-Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1492740253/vintage-scooby-doo-comfort-colors-tshirt)
 
@@ -355,9 +355,9 @@ The shirt is adaptable for people of different body types because it comes in a 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1492740253/vintage-scooby-doo-comfort-colors-tshirt)
 
-### [20\. Halloween Bleached Shirt](https://www.amazon.com/Halloween-Bleached-Michael-Graphic-X-Large/dp/B09DXNMXMZ/?ie=UTF8&tag=avadalove-20)
+### [20\. Halloween Bleached Shirt](https://www.amazon.com/Halloween-Bleached-Michael-Graphic-X-Large/dp/B09DXNMXMZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Bleached-Michael-Graphic-X-Large/dp/B09DXNMXMZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Bleached-Michael-Graphic-X-Large/dp/B09DXNMXMZ/?ie=UTF8&tag=giftable02-20)
 
 Dare to be different this Halloween with the Halloween Bleached Shirt - a one-of-a-kind garment that's both creepy and cool.
 
@@ -371,11 +371,11 @@ The image of Michael Myers, which is featured in the design, is printed with ext
 
 ✔️ Accurate graphic print
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Bleached-Michael-Graphic-X-Large/dp/B09DXNMXMZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Bleached-Michael-Graphic-X-Large/dp/B09DXNMXMZ/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Graphic T-Shirt](https://www.amazon.com/Halloween-Sanderson-Letter-Graphic-T-Shirt/dp/B097MD4JVC/?ie=UTF8&tag=avadalove-20) 
+### [21\. Graphic T-Shirt](https://www.amazon.com/Halloween-Sanderson-Letter-Graphic-T-Shirt/dp/B097MD4JVC/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Halloween-Sanderson-Letter-Graphic-T-Shirt/dp/B097MD4JVC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Sanderson-Letter-Graphic-T-Shirt/dp/B097MD4JVC/?ie=UTF8&tag=giftable02-20)
 
 Step up your Halloween game with the captivating Graphic T-Shirt, a fashion-forward choice that guarantees to spark curiosity!
 
@@ -389,11 +389,11 @@ The Graphic T-Shirt offers not only a beautiful design but also outstanding comf
 
 ✔️ Perfect fit and various size options available
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Sanderson-Letter-Graphic-T-Shirt/dp/B097MD4JVC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Sanderson-Letter-Graphic-T-Shirt/dp/B097MD4JVC/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Women V-Neck Short Sleeve](https://www.amazon.com/VKEGNIO-Halloween-Sanderson-Sisters-Graphic/dp/B0B6CW5WMY/?ie=UTF8&tag=avadalove-20)
+### [22\. Women V-Neck Short Sleeve](https://www.amazon.com/VKEGNIO-Halloween-Sanderson-Sisters-Graphic/dp/B0B6CW5WMY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VKEGNIO-Halloween-Sanderson-Sisters-Graphic/dp/B0B6CW5WMY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VKEGNIO-Halloween-Sanderson-Sisters-Graphic/dp/B0B6CW5WMY/?ie=UTF8&tag=giftable02-20)
 
 Stand out at your Halloween gathering with the Women V-Neck Short Sleeve shirt, a stylish and comfortable choice that will surely catch everyone's attention.
 
@@ -407,11 +407,11 @@ This sexy shirt, which was meticulously made, not only has a beautiful style but
 
 ✔️ High-quality materials for exceptional comfort and durability
 
-[Buy from Amazon](https://www.amazon.com/VKEGNIO-Halloween-Sanderson-Sisters-Graphic/dp/B0B6CW5WMY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VKEGNIO-Halloween-Sanderson-Sisters-Graphic/dp/B0B6CW5WMY/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Skeleton Crop Top](https://www.amazon.com/WYNNQUE-Halloween-Shirts-Skeleton-Fitted/dp/B0BCQL1GV5/?ie=UTF8&tag=avadalove-20) 
+### [23\. Skeleton Crop Top](https://www.amazon.com/WYNNQUE-Halloween-Shirts-Skeleton-Fitted/dp/B0BCQL1GV5/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/WYNNQUE-Halloween-Shirts-Skeleton-Fitted/dp/B0BCQL1GV5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WYNNQUE-Halloween-Shirts-Skeleton-Fitted/dp/B0BCQL1GV5/?ie=UTF8&tag=giftable02-20)
 
 If you want to elevate your summer wardrobe, check out the WYNNQUE Halloween Shirts Skeleton Fitted Crop Top.
 
@@ -425,11 +425,11 @@ Its whimsical but edgy skeleton pattern gives your summer outfit a spooky edge. 
 
 ✔️ Soft and stretchy material
 
-[Buy from Amazon](https://www.amazon.com/WYNNQUE-Halloween-Shirts-Skeleton-Fitted/dp/B0BCQL1GV5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WYNNQUE-Halloween-Shirts-Skeleton-Fitted/dp/B0BCQL1GV5/?ie=UTF8&tag=giftable02-20)
 
-### [24\. This Is Boo Sheet T-Shirt](https://www.amazon.com/Sheet-Ghost-Halloween-2020-T-Shirt/dp/B08HP36JL2/?ie=UTF8&tag=avadalove-20)
+### [24\. This Is Boo Sheet T-Shirt](https://www.amazon.com/Sheet-Ghost-Halloween-2020-T-Shirt/dp/B08HP36JL2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sheet-Ghost-Halloween-2020-T-Shirt/dp/B08HP36JL2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sheet-Ghost-Halloween-2020-T-Shirt/dp/B08HP36JL2/?ie=UTF8&tag=giftable02-20)
 
 Make a statement at your next Halloween party with this funny Boo shirt!
 
@@ -443,7 +443,7 @@ This shirt is available in a range of sizes, from small to 3XL, guaranteeing a g
 
 ✔️ Unisex fit for all
 
-[Buy from Amazon](https://www.amazon.com/Sheet-Ghost-Halloween-2020-T-Shirt/dp/B08HP36JL2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sheet-Ghost-Halloween-2020-T-Shirt/dp/B08HP36JL2/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Witch TShirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1259792160/comfort-colors-its-the-most-wondrful)
 
@@ -461,9 +461,9 @@ Eager to make a spellbinding impression this Halloween? Embrace the Comfort Colo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1259792160/comfort-colors-its-the-most-wondrful)
 
-### [26\. Graphic Short Sleeve T-Shirts](https://www.amazon.com/Gymboree-Toddler-Embroidered-T-Shirts-Halloween/dp/B09VM9X38F/?ie=UTF8&tag=avadalove-20)
+### [26\. Graphic Short Sleeve T-Shirts](https://www.amazon.com/Gymboree-Toddler-Embroidered-T-Shirts-Halloween/dp/B09VM9X38F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gymboree-Toddler-Embroidered-T-Shirts-Halloween/dp/B09VM9X38F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gymboree-Toddler-Embroidered-T-Shirts-Halloween/dp/B09VM9X38F/?ie=UTF8&tag=giftable02-20)
 
 Dreaming of adding a touch of enchantment to your little one's wardrobe? Look no further than the Gymboree Toddler Graphic Short Sleeve T-Shirts!
 
@@ -477,11 +477,11 @@ The fabric is soft on your child's skin, it is perfect for all-day use. It is al
 
 ✔️ Available in various sizes for your growing toddler
 
-[Buy from Amazon](https://www.amazon.com/Gymboree-Toddler-Embroidered-T-Shirts-Halloween/dp/B09VM9X38F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gymboree-Toddler-Embroidered-T-Shirts-Halloween/dp/B09VM9X38F/?ie=UTF8&tag=giftable02-20)
 
-### [27\.  Hawaiian Shirt Short](https://www.amazon.com/ZHPUAT-Halloween-Hawaiian-Sleeve-Holiday/dp/B0B49ZX3HQ/?ie=UTF8&tag=avadalove-20)
+### [27\.  Hawaiian Shirt Short](https://www.amazon.com/ZHPUAT-Halloween-Hawaiian-Sleeve-Holiday/dp/B0B49ZX3HQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZHPUAT-Halloween-Hawaiian-Sleeve-Holiday/dp/B0B49ZX3HQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZHPUAT-Halloween-Hawaiian-Sleeve-Holiday/dp/B0B49ZX3HQ/?ie=UTF8&tag=giftable02-20)
 
 Make a splash at your next beach vacation or summer party with the Hawaiian Shirt Short - an outfit that's both bold and stylish.
 
@@ -495,11 +495,11 @@ It is comprised of premium components, including 100% polyester, which guarantee
 
 ✔️ Affordable and accessible to everyone
 
-[Buy from Amazon](https://www.amazon.com/ZHPUAT-Halloween-Hawaiian-Sleeve-Holiday/dp/B0B49ZX3HQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZHPUAT-Halloween-Hawaiian-Sleeve-Holiday/dp/B0B49ZX3HQ/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Halloween Costume T-Shirt](https://www.amazon.com/LANTERN-PUMPKIN-Halloween-Costume-T-Shirt-S/dp/B00NR6Y44W/?ie=UTF8&tag=avadalove-20)
+### [28\. Halloween Costume T-Shirt](https://www.amazon.com/LANTERN-PUMPKIN-Halloween-Costume-T-Shirt-S/dp/B00NR6Y44W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LANTERN-PUMPKIN-Halloween-Costume-T-Shirt-S/dp/B00NR6Y44W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LANTERN-PUMPKIN-Halloween-Costume-T-Shirt-S/dp/B00NR6Y44W/?ie=UTF8&tag=giftable02-20)
 
 For individuals looking for a Halloween costume that's fashionable and unforgettable, this Halloween Costume T-Shirt is an excellent choice.
 
@@ -513,7 +513,7 @@ It provides comfort all day long because of the soft and breathable fabric used 
 
 ✔️ Versatile design that can be dressed up or down
 
-[Buy from Amazon](https://www.amazon.com/LANTERN-PUMPKIN-Halloween-Costume-T-Shirt-S/dp/B00NR6Y44W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LANTERN-PUMPKIN-Halloween-Costume-T-Shirt-S/dp/B00NR6Y44W/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Funny Ghost T-shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1281086767/halloween-shirt-comfort-colors-retro)
 
@@ -533,9 +533,9 @@ It offers a timeless and adaptable design with its traditional crew neck and sho
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1281086767/halloween-shirt-comfort-colors-retro)
 
-### [30\. Halloween T Rex Dinosaur Ghost Shirt](https://www.amazon.com/Trick-Treat-Halloween-Dinosaur-Ghost/dp/B07G7FG6G7/?ie=UTF8&tag=avadalove-20)
+### [30\. Halloween T Rex Dinosaur Ghost Shirt](https://www.amazon.com/Trick-Treat-Halloween-Dinosaur-Ghost/dp/B07G7FG6G7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Trick-Treat-Halloween-Dinosaur-Ghost/dp/B07G7FG6G7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Trick-Treat-Halloween-Dinosaur-Ghost/dp/B07G7FG6G7/?ie=UTF8&tag=giftable02-20)
 
 Ready to make a prehistoric statement this Halloween? Explore the Halloween T Rex Dinosaur Ghost Shirt!
 
@@ -549,7 +549,7 @@ This shirt is made from premium fabrics and has a pleasant, loose fit that is id
 
 ✔️ Unique and eye-catching design that merges T Rex and Halloween elements
 
-[Buy from Amazon](https://www.amazon.com/Trick-Treat-Halloween-Dinosaur-Ghost/dp/B07G7FG6G7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Trick-Treat-Halloween-Dinosaur-Ghost/dp/B07G7FG6G7/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Horror Black Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1314240279/people-give-me-the-creeps-t-shirt-horror)
 
@@ -569,9 +569,9 @@ The shirt's eye-catching design makes a statement about your passion for the hor
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1314240279/people-give-me-the-creeps-t-shirt-horror)
 
-### [32\. Grogu Trick or Treat T-Shirt](https://www.amazon.com/Mandalorian-Grogu-Trick-Halloween-T-Shirt/dp/B09BBS7N2W/?ie=UTF8&tag=avadalove-20)
+### [32\. Grogu Trick or Treat T-Shirt](https://www.amazon.com/Mandalorian-Grogu-Trick-Halloween-T-Shirt/dp/B09BBS7N2W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mandalorian-Grogu-Trick-Halloween-T-Shirt/dp/B09BBS7N2W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mandalorian-Grogu-Trick-Halloween-T-Shirt/dp/B09BBS7N2W/?ie=UTF8&tag=giftable02-20)
 
 This Grogu Trick or Treat Halloween T-Shirt is a must-have addition to any fan's wardrobe who loves The Mandalorian and wants to show it off this Halloween.
 
@@ -585,11 +585,11 @@ High-quality materials were used in the shirt's construction to ensure its comfo
 
 ✔️ Machine washable for easy maintenance
 
-[Buy from Amazon](https://www.amazon.com/Mandalorian-Grogu-Trick-Halloween-T-Shirt/dp/B09BBS7N2W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mandalorian-Grogu-Trick-Halloween-T-Shirt/dp/B09BBS7N2W/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Costume Youth T-Shirt](https://www.amazon.com/Skeleton-Novelty-Halloween-Costume-T-shirt-Youth/dp/B00NUDHS7C/?ie=UTF8&tag=avadalove-20)
+### [33\. Costume Youth T-Shirt](https://www.amazon.com/Skeleton-Novelty-Halloween-Costume-T-shirt-Youth/dp/B00NUDHS7C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Skeleton-Novelty-Halloween-Costume-T-shirt-Youth/dp/B00NUDHS7C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Skeleton-Novelty-Halloween-Costume-T-shirt-Youth/dp/B00NUDHS7C/?ie=UTF8&tag=giftable02-20)
 
 Looking for a Halloween costume that will ignite your child's imagination? Discover the Skeleton Novelty Halloween Costume Youth T-Shirt!
 
@@ -603,7 +603,7 @@ This shirt is made from premium fabrics and is lightweight and comfy, making it 
 
 ✔️ Range of youth sizes available for an ideal fit
 
-[Buy from Amazon](https://www.amazon.com/Skeleton-Novelty-Halloween-Costume-T-shirt-Youth/dp/B00NUDHS7C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Skeleton-Novelty-Halloween-Costume-T-shirt-Youth/dp/B00NUDHS7C/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Halloween Town Fall](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1310476163/halloween-town-and-chill-shirt-halloween)
 
@@ -623,9 +623,9 @@ This cool shirt, which comes in a variety of sizes, is the ideal complement to a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1310476163/halloween-town-and-chill-shirt-halloween)
 
-### [35\. Hawaiian Skull Shirt](https://www.amazon.com/WDIRARA-Beachwear-Striped-Hawaiian-Halloween/dp/B09YTY9VC8/?ie=UTF8&tag=avadalove-20)
+### [35\. Hawaiian Skull Shirt](https://www.amazon.com/WDIRARA-Beachwear-Striped-Hawaiian-Halloween/dp/B09YTY9VC8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WDIRARA-Beachwear-Striped-Hawaiian-Halloween/dp/B09YTY9VC8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WDIRARA-Beachwear-Striped-Hawaiian-Halloween/dp/B09YTY9VC8/?ie=UTF8&tag=giftable02-20)
 
 Those in search of a cool and trendy Hawaiian shirt for relaxed events need look no further than the Beachwear Striped Hawaiian Shirt.
 
@@ -639,4 +639,4 @@ This shirt, which is made of high-quality fabrics, has a striking striped design
 
 ✔️ Comfortable fit
 
-[Buy from Amazon](https://www.amazon.com/WDIRARA-Beachwear-Striped-Hawaiian-Halloween/dp/B09YTY9VC8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WDIRARA-Beachwear-Striped-Hawaiian-Halloween/dp/B09YTY9VC8/?ie=UTF8&tag=giftable02-20)

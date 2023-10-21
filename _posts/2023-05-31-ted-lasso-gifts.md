@@ -17,11 +17,9 @@ From **[hilarious t-shirts](/personalized-t-shirts/)** featuring Coach Beard's h
 
 But our Ted Lasso gifts aren't just about the show's comedy gold - they also embody its message of positivity and kindness. After all, what better way to channel Ted's "be a goldfish" philosophy than by sporting a snazzy T-shirt with his face on it? So let's go ahead and treat someone special to you to a bit of Ted Lasso magic. You won't regret it when seeing a gift from our list!
 
-**You may also like:[35 Perfect Harry Styles Gifts for Fans](/harry-styles-gifts/)**
+### [1\. Believe Metal Sign](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=giftable02-20)
 
-### [1\. Believe Metal Sign](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=giftable02-20)
 
 Elevate your surroundings and embrace the magic of belief with the Believe Metal Sign by Open Road Brands.
 
@@ -35,11 +33,11 @@ This metal sign is an adaptable item that works wonderfully in various contexts.
 
 ✔️ Durable construction for long-lasting enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Party Game](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=avadalove-20)
+### [2\. Party Game](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=giftable02-20)
 
 Make your guests blast at your next party with the Open Road Brands Lasso Believe Party Game - the ultimate party game experience!
 
@@ -53,11 +51,11 @@ This party game is made to be played both indoors and outside, making sure that 
 
 ✔️ Encourages friendly competition and laughter-filled moments
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Lasso-Believe/dp/B0BS1Q8XCS/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Style Coffee Mug](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Camper-Style/dp/B09WC9WB13/?ie=UTF8&tag=avadalove-20)
+### [3\. Style Coffee Mug](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Camper-Style/dp/B09WC9WB13/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Camper-Style/dp/B09WC9WB13/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Camper-Style/dp/B09WC9WB13/?ie=UTF8&tag=giftable02-20)
 
 For a coffee mug that seamlessly blends style and usefulness, the Silver Buffalo Believe Camper-Style Coffee Mug is the ultimate choice.
 
@@ -71,7 +69,7 @@ This mug has a 14.oz capacity and measures 3.75 inches tall by 3.25 inches in di
 
 ✔️ Generous size and sturdy handle make it easy to use
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Camper-Style/dp/B09WC9WB13/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Camper-Style/dp/B09WC9WB13/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Beverage Holder](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1422271907/believe-cozie-ted-lasso-futbol-soccer)
 
@@ -91,9 +89,9 @@ The Believe Cozie, which is 4 inches tall and 3.5 inches broad, is designed to f
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1422271907/believe-cozie-ted-lasso-futbol-soccer)
 
-### [5\. Team Lasso Notebook](https://www.amazon.com/Lasso-Journal-Notebook-Spiral-inches/dp/B09WC5XBBB/?ie=UTF8&tag=avadalove-20)
+### [5\. Team Lasso Notebook](https://www.amazon.com/Lasso-Journal-Notebook-Spiral-inches/dp/B09WC5XBBB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lasso-Journal-Notebook-Spiral-inches/dp/B09WC5XBBB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lasso-Journal-Notebook-Spiral-inches/dp/B09WC5XBBB/?ie=UTF8&tag=giftable02-20)
 
 Experience the joy of writing with the Journal Notebook by Lasso - a versatile companion for all your creative endeavors.
 
@@ -107,11 +105,11 @@ This diary notebook has a width and height of around 6 and 8 inches, respectivel
 
 ✔️ Sleek and compact design, perfect for on-the-go use
 
-[Buy from Amazon](https://www.amazon.com/Lasso-Journal-Notebook-Spiral-inches/dp/B09WC5XBBB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lasso-Journal-Notebook-Spiral-inches/dp/B09WC5XBBB/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Prayer Candle](https://www.amazon.com/Lasso-Way-Celebrity-Prayer-Candle/dp/B09JZY93V4/?ie=UTF8&tag=avadalove-20)
+### [6\. Prayer Candle](https://www.amazon.com/Lasso-Way-Celebrity-Prayer-Candle/dp/B09JZY93V4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lasso-Way-Celebrity-Prayer-Candle/dp/B09JZY93V4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lasso-Way-Celebrity-Prayer-Candle/dp/B09JZY93V4/?ie=UTF8&tag=giftable02-20)
 
 Enhance your home decor with the unique and mesmerizing Prayer Candle by Lasso Your Way Celebrity.
 
@@ -125,11 +123,11 @@ This Prayer Candle, roughly 8 inches tall, was made carefully. Its top-notch des
 
 ✔️ Unique and captivating design featuring a celebrity figure
 
-[Buy from Amazon](https://www.amazon.com/Lasso-Way-Celebrity-Prayer-Candle/dp/B09JZY93V4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lasso-Way-Celebrity-Prayer-Candle/dp/B09JZY93V4/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Display Gift Box](https://www.amazon.com/Fisher-Price-Little-Collector-special-character/dp/B09SJY7S9S/?ie=UTF8&tag=avadalove-20) 
+### [7\. Display Gift Box](https://www.amazon.com/Fisher-Price-Little-Collector-special-character/dp/B09SJY7S9S/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Fisher-Price-Little-Collector-special-character/dp/B09SJY7S9S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Little-Collector-special-character/dp/B09SJY7S9S/?ie=UTF8&tag=giftable02-20)
 
 Give the gift of uniqueness and specialness with the Ted Lasso Display box for a fan like your loved one.
 
@@ -143,11 +141,11 @@ A gorgeous display box that highlights the selected character is provided with t
 
 ✔️ Includes a special character for added charm
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Little-Collector-special-character/dp/B09SJY7S9S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Little-Collector-special-character/dp/B09SJY7S9S/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Deluxe Stickers Variety Pack](https://www.amazon.com/Lasso-Sticker-Deluxe-Stickers-Variety/dp/B0BZCT41SB/?ie=UTF8&tag=avadalove-20)
+### [8\. Deluxe Stickers Variety Pack](https://www.amazon.com/Lasso-Sticker-Deluxe-Stickers-Variety/dp/B0BZCT41SB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lasso-Sticker-Deluxe-Stickers-Variety/dp/B0BZCT41SB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lasso-Sticker-Deluxe-Stickers-Variety/dp/B0BZCT41SB/?ie=UTF8&tag=giftable02-20)
 
 Add some pizzazz and fun to your crafting projects with the Lasso Sticker Deluxe Stickers Variety Pack.
 
@@ -161,7 +159,7 @@ Because they are constructed of high-quality materials, each sticker will surviv
 
 ✔️ Comes in a convenient pack that can be easily stored
 
-[Buy from Amazon](https://www.amazon.com/Lasso-Sticker-Deluxe-Stickers-Variety/dp/B0BZCT41SB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lasso-Sticker-Deluxe-Stickers-Variety/dp/B0BZCT41SB/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Phone Case](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1440929804/believe-ted-lasso-afc-richmond-phone)
 
@@ -181,9 +179,9 @@ The AFC Richmond emblem and the show's signature Believe symbol are both include
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1440929804/believe-ted-lasso-afc-richmond-phone)
 
-### [10\. Believe Notebook](https://www.amazon.com/TED-LASSO-RULES-LIVING-Mitivational/dp/B0BK9G7L82/?ie=UTF8&tag=avadalove-20)
+### [10\. Believe Notebook](https://www.amazon.com/TED-LASSO-RULES-LIVING-Mitivational/dp/B0BK9G7L82/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TED-LASSO-RULES-LIVING-Mitivational/dp/B0BK9G7L82/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TED-LASSO-RULES-LIVING-Mitivational/dp/B0BK9G7L82/?ie=UTF8&tag=giftable02-20)
 
 Keep your dreams alive with the Believe Notebook - the perfect tool for anyone looking to stay inspired and positive on their journey to success.
 
@@ -197,7 +195,7 @@ This notebook's 100 lined pages make it the perfect size for writing down object
 
 ✔️ 100 lined pages for plenty of note-taking space
 
-[Buy from Amazon](https://www.amazon.com/TED-LASSO-RULES-LIVING-Mitivational/dp/B0BK9G7L82/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TED-LASSO-RULES-LIVING-Mitivational/dp/B0BK9G7L82/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Believe Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1456723955/believe-sign-lasso-believe-sign-ted-laso)
 
@@ -217,9 +215,9 @@ This sign is made by hand from premium wood and is around 16 inches by 5.5 inche
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1456723955/believe-sign-lasso-believe-sign-ted-laso)
 
-### [12\. Hot Brown Water Mug](https://www.amazon.com/MT-Gifts-Ted-Lasso-MUG-MIWWSDNLQI-11oz/dp/B09H8NYJHJ/?ie=UTF8&tag=avadalove-20)
+### [12\. Hot Brown Water Mug](https://www.amazon.com/MT-Gifts-Ted-Lasso-MUG-MIWWSDNLQI-11oz/dp/B09H8NYJHJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MT-Gifts-Ted-Lasso-MUG-MIWWSDNLQI-11oz/dp/B09H8NYJHJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MT-Gifts-Ted-Lasso-MUG-MIWWSDNLQI-11oz/dp/B09H8NYJHJ/?ie=UTF8&tag=giftable02-20)
 
 For those seeking a mug that can keep their beverage hot and fresh for longer, the Hot Brown Water Mug answers all your problems!
 
@@ -233,11 +231,11 @@ This 11oz ceramic mug has a fashionable black and gold color scheme with a moder
 
 ✔️ Wide handle for comfortable grip
 
-[Buy from Amazon](https://www.amazon.com/MT-Gifts-Ted-Lasso-MUG-MIWWSDNLQI-11oz/dp/B09H8NYJHJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MT-Gifts-Ted-Lasso-MUG-MIWWSDNLQI-11oz/dp/B09H8NYJHJ/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Coach Makeup Bag](https://www.amazon.com/Coach-Makeup-Soccer-Motivational-Travel/dp/B09WHPVBKL/?ie=UTF8&tag=avadalove-20) 
+### [13\. Coach Makeup Bag](https://www.amazon.com/Coach-Makeup-Soccer-Motivational-Travel/dp/B09WHPVBKL/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Coach-Makeup-Soccer-Motivational-Travel/dp/B09WHPVBKL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coach-Makeup-Soccer-Motivational-Travel/dp/B09WHPVBKL/?ie=UTF8&tag=giftable02-20)
 
 Upgrade your everyday routine with the Coach Makeup Bag - a must-have accessory for any makeup lover.
 
@@ -251,11 +249,11 @@ This bag is ideal for holding your cosmetics or other tiny needs, measuring 9 in
 
 ✔️ Motivational message adds a personal touch
 
-[Buy from Amazon](https://www.amazon.com/Coach-Makeup-Soccer-Motivational-Travel/dp/B09WHPVBKL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coach-Makeup-Soccer-Motivational-Travel/dp/B09WHPVBKL/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Watching Ted Lasso Socks](https://www.amazon.com/LEVLO-Pairs-Lasso-Socks-Watching/dp/B09H776778/?ie=UTF8&tag=avadalove-20)
+### [14\. Watching Ted Lasso Socks](https://www.amazon.com/LEVLO-Pairs-Lasso-Socks-Watching/dp/B09H776778/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEVLO-Pairs-Lasso-Socks-Watching/dp/B09H776778/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEVLO-Pairs-Lasso-Socks-Watching/dp/B09H776778/?ie=UTF8&tag=giftable02-20)
 
 These Novelty Socks are a must-have for any true fan of Ted Lasso who wants to showcase their devotion in a unique way.
 
@@ -269,11 +267,11 @@ These socks, which come in sizes for men and women ranging from 6 to 13, fit mos
 
 ✔️ Available in a wide range of sizes
 
-[Buy from Amazon](https://www.amazon.com/LEVLO-Pairs-Lasso-Socks-Watching/dp/B09H776778/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEVLO-Pairs-Lasso-Socks-Watching/dp/B09H776778/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Believe Light Room Decor](https://www.amazon.com/Paladone-Believe-Officially-Licensed-Netflix/dp/B0B3L6NYDV/?ie=UTF8&tag=avadalove-20)
+### [15\. Believe Light Room Decor](https://www.amazon.com/Paladone-Believe-Officially-Licensed-Netflix/dp/B0B3L6NYDV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Paladone-Believe-Officially-Licensed-Netflix/dp/B0B3L6NYDV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Paladone-Believe-Officially-Licensed-Netflix/dp/B0B3L6NYDV/?ie=UTF8&tag=giftable02-20)
 
 Elevate your home decor game with the unique and fashionable Believe Light Room Decor.
 
@@ -287,7 +285,7 @@ This artwork is large enough to make a statement without taking up too much room
 
 ✔️ Versatile design can be hung or displayed on a shelf
 
-[Buy from Amazon](https://www.amazon.com/Paladone-Believe-Officially-Licensed-Netflix/dp/B0B3L6NYDV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Paladone-Believe-Officially-Licensed-Netflix/dp/B0B3L6NYDV/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Believe Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1490825895/believe-keychain-ted-lasso-gift-ted)
 
@@ -307,9 +305,9 @@ This keychain is small enough to put in your pocket or purse but huge enough to 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1490825895/believe-keychain-ted-lasso-gift-ted)
 
-### [17\. Team Lasso Glass Set](https://www.amazon.com/Silver-Buffalo-Quotes-4-Pack-Multicolor/dp/B09WCJW9PL/?ie=UTF8&tag=avadalove-20)
+### [17\. Team Lasso Glass Set](https://www.amazon.com/Silver-Buffalo-Quotes-4-Pack-Multicolor/dp/B09WCJW9PL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silver-Buffalo-Quotes-4-Pack-Multicolor/dp/B09WCJW9PL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Quotes-4-Pack-Multicolor/dp/B09WCJW9PL/?ie=UTF8&tag=giftable02-20)
 
 Infuse your home with charm and elegance by adding this Mini Glass Set to your drinkware collection, a delightful choice to impress your guests.
 
@@ -323,11 +321,11 @@ This set of four miniature glasses is exquisitely made, each with a different st
 
 ✔️ Each glass features a unique etched quote
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Quotes-4-Pack-Multicolor/dp/B09WCJW9PL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Quotes-4-Pack-Multicolor/dp/B09WCJW9PL/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Men’s Lasso T-Shirt](https://www.amazon.com/Ted-Lasso-T-Shirt-Graphic-Apparel/dp/B0BTCDNCPW/?ie=UTF8&tag=avadalove-20)
+### [18\. Men’s Lasso T-Shirt](https://www.amazon.com/Ted-Lasso-T-Shirt-Graphic-Apparel/dp/B0BTCDNCPW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ted-Lasso-T-Shirt-Graphic-Apparel/dp/B0BTCDNCPW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ted-Lasso-T-Shirt-Graphic-Apparel/dp/B0BTCDNCPW/?ie=UTF8&tag=giftable02-20)
 
 Elevate your Ted Lasso fandom with this Adult Men's T-Shirt, an absolute must-have for true fans who want to make a stylish impression.
 
@@ -341,7 +339,7 @@ You may proudly display your fandom because the dimensions are precisely calcula
 
 ✔️ Durable construction for long-lasting wear
 
-[Buy from Amazon](https://www.amazon.com/Ted-Lasso-T-Shirt-Graphic-Apparel/dp/B0BTCDNCPW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ted-Lasso-T-Shirt-Graphic-Apparel/dp/B0BTCDNCPW/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Soy Wax Scented Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1463048773/ted-lasso-candle-my-life-coaches-100)
 
@@ -361,9 +359,9 @@ This candle is ideal for any area in your house at 4" tall and 3" broad. Fresh h
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1463048773/ted-lasso-candle-my-life-coaches-100)
 
-### [20\. Ted Lasso Bookmark](https://www.amazon.com/Ata-Boy-Ted-Lasso-Believe-Button/dp/B0B3SDC81W/?ie=UTF8&tag=avadalove-20)
+### [20\. Ted Lasso Bookmark](https://www.amazon.com/Ata-Boy-Ted-Lasso-Believe-Button/dp/B0B3SDC81W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ata-Boy-Ted-Lasso-Believe-Button/dp/B0B3SDC81W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ata-Boy-Ted-Lasso-Believe-Button/dp/B0B3SDC81W/?ie=UTF8&tag=giftable02-20)
 
 For fans of the hit TV show Ted Lasso, the Ted Lasso Bookmark is an absolute must-have.
 
@@ -377,11 +375,11 @@ The Ted Lasso Bookmark is crafted with premium components and is long-lasting. E
 
 ✔️ A perfect gift for any Ted Lasso fan
 
-[Buy from Amazon](https://www.amazon.com/Ata-Boy-Ted-Lasso-Believe-Button/dp/B0B3SDC81W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ata-Boy-Ted-Lasso-Believe-Button/dp/B0B3SDC81W/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Grocery Shopping Bag](https://www.amazon.com/ZJXHPO-Biscuits-Reusable-Shopping-Shoulder/dp/B0C3MK6TRV/?ie=UTF8&tag=avadalove-20) 
+### [21\. Grocery Shopping Bag](https://www.amazon.com/ZJXHPO-Biscuits-Reusable-Shopping-Shoulder/dp/B0C3MK6TRV/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/ZJXHPO-Biscuits-Reusable-Shopping-Shoulder/dp/B0C3MK6TRV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZJXHPO-Biscuits-Reusable-Shopping-Shoulder/dp/B0C3MK6TRV/?ie=UTF8&tag=giftable02-20)
 
 Ready to break free from flimsy and harmful bags? Opt for this reusable Grocery Shopping Bag and experience a new level of convenience and sustainability.
 
@@ -395,11 +393,11 @@ Its roomy dimensions give you plenty of room for your goods, and the supportive 
 
 ✔️ Stylish and functional design that turns heads
 
-[Buy from Amazon](https://www.amazon.com/ZJXHPO-Biscuits-Reusable-Shopping-Shoulder/dp/B0C3MK6TRV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZJXHPO-Biscuits-Reusable-Shopping-Shoulder/dp/B0C3MK6TRV/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Potential Birthday Card](https://www.amazon.com/Inspired-Birthday-Another-Potential-Envelope/dp/B09VDWHHQY/?ie=UTF8&tag=avadalove-20)
+### [22\. Potential Birthday Card](https://www.amazon.com/Inspired-Birthday-Another-Potential-Envelope/dp/B09VDWHHQY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspired-Birthday-Another-Potential-Envelope/dp/B09VDWHHQY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspired-Birthday-Another-Potential-Envelope/dp/B09VDWHHQY/?ie=UTF8&tag=giftable02-20)
 
 Create an unforgettable birthday experience by surprising your loved one with this captivating Birthday Card, a stylish and heartfelt expression of your wishes.
 
@@ -413,7 +411,7 @@ This Birthday Card was skillfully created with great attention to detail. It wil
 
 ✔️ Heartfelt sentiment to make the recipient feel cherished
 
-[Buy from Amazon](https://www.amazon.com/Inspired-Birthday-Another-Potential-Envelope/dp/B09VDWHHQY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspired-Birthday-Another-Potential-Envelope/dp/B09VDWHHQY/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Notepad & Pencil Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1340616046/believe-notepad-pencil-gift-bundle-4x6)
 
@@ -433,9 +431,9 @@ A notebook with 50 lined pages and a matching pencil with a motivating message a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1340616046/believe-notepad-pencil-gift-bundle-4x6)
 
-### [24\. UNO Card Game](https://www.amazon.com/Collectibles-Inspired-Family-Travel-Camping/dp/B0BBSVXRN2/?ie=UTF8&tag=avadalove-20)
+### [24\. UNO Card Game](https://www.amazon.com/Collectibles-Inspired-Family-Travel-Camping/dp/B0BBSVXRN2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Collectibles-Inspired-Family-Travel-Camping/dp/B0BBSVXRN2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Collectibles-Inspired-Family-Travel-Camping/dp/B0BBSVXRN2/?ie=UTF8&tag=giftable02-20)
 
 Do you find a game that is fun to play with others at a party? Check out the Family Camping Card Game!
 
@@ -449,11 +447,11 @@ Because of its small size, the Family Camping Card Game is simple to travel and 
 
 ✔️ Helps build teamwork and problem-solving skills
 
-[Buy from Amazon](https://www.amazon.com/Collectibles-Inspired-Family-Travel-Camping/dp/B0BBSVXRN2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Collectibles-Inspired-Family-Travel-Camping/dp/B0BBSVXRN2/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Ted Lasso Funko Pop](https://www.amazon.com/Funko-Pop-Puzzle-Ted-Lasso/dp/B0BCXG6XN8/?ie=UTF8&tag=avadalove-20)
+### [25\. Ted Lasso Funko Pop](https://www.amazon.com/Funko-Pop-Puzzle-Ted-Lasso/dp/B0BCXG6XN8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funko-Pop-Puzzle-Ted-Lasso/dp/B0BCXG6XN8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funko-Pop-Puzzle-Ted-Lasso/dp/B0BCXG6XN8/?ie=UTF8&tag=giftable02-20)
 
 Eager to explore the world of Ted Lasso in an entertaining way? Embrace the Funko Pop Puzzle, a delightful collectible that guarantees hours of enjoyment.
 
@@ -467,7 +465,7 @@ Each piece of this figure is painstakingly made to fit together perfectly. When 
 
 ✔️ Engaging and entertaining way to immerse in the Ted Lasso world
 
-[Buy from Amazon](https://www.amazon.com/Funko-Pop-Puzzle-Ted-Lasso/dp/B0BCXG6XN8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funko-Pop-Puzzle-Ted-Lasso/dp/B0BCXG6XN8/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Believe Hardcover Journal](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1321777828/ted-lasso-believe-hardcover-journal-ted) 
 
@@ -487,9 +485,9 @@ The dimensions are perfect, giving you plenty of room to think and express yours
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1321777828/ted-lasso-believe-hardcover-journal-ted)
 
-### [27\. Funny Kitchen Towels](https://www.amazon.com/Moonlight-Makers-Housewarming-Farmhouse-Biscuits/dp/B09L8NFV57/?ie=UTF8&tag=avadalove-20)
+### [27\. Funny Kitchen Towels](https://www.amazon.com/Moonlight-Makers-Housewarming-Farmhouse-Biscuits/dp/B09L8NFV57/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Moonlight-Makers-Housewarming-Farmhouse-Biscuits/dp/B09L8NFV57/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Moonlight-Makers-Housewarming-Farmhouse-Biscuits/dp/B09L8NFV57/?ie=UTF8&tag=giftable02-20)
 
 If you need a burst of laughter in your life, the Moonlight Makers Funny Kitchen Towels will provide just that in your kitchen.
 
@@ -503,11 +501,11 @@ These towels are strong and absorbent since they are made of just cotton. Additi
 
 ✔️ Made from 100% cotton
 
-[Buy from Amazon](https://www.amazon.com/Moonlight-Makers-Housewarming-Farmhouse-Biscuits/dp/B09L8NFV57/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Moonlight-Makers-Housewarming-Farmhouse-Biscuits/dp/B09L8NFV57/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Birthday Cake Decoration](https://www.amazon.com/Decorations-Birthday-Supplies-Cupcake-Balloons/dp/B0C23M9JSS/?ie=UTF8&tag=avadalove-20)
+### [28\. Birthday Cake Decoration](https://www.amazon.com/Decorations-Birthday-Supplies-Cupcake-Balloons/dp/B0C23M9JSS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decorations-Birthday-Supplies-Cupcake-Balloons/dp/B0C23M9JSS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decorations-Birthday-Supplies-Cupcake-Balloons/dp/B0C23M9JSS/?ie=UTF8&tag=giftable02-20)
 
 To highlight your loved one's birthday party, get this Ted Lasso decoration set to decorate.
 
@@ -521,11 +519,11 @@ When fully inflated, the balloons are 12 inches in diameter and are constructed 
 
 ✔️ Perfect set to make your loved one's birthday extra special
 
-[Buy from Amazon](https://www.amazon.com/Decorations-Birthday-Supplies-Cupcake-Balloons/dp/B0C23M9JSS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decorations-Birthday-Supplies-Cupcake-Balloons/dp/B0C23M9JSS/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Team Coach Cap](https://www.amazon.com/Arched-Adjustable-Embroidered-Travel-Outdoor/dp/B0C1Z3539P/r?ie=UTF8&tag=avadalove-20)
+### [29\. Team Coach Cap](https://www.amazon.com/Arched-Adjustable-Embroidered-Travel-Outdoor/dp/B0C1Z3539P/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Arched-Adjustable-Embroidered-Travel-Outdoor/dp/B0C1Z3539P/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Arched-Adjustable-Embroidered-Travel-Outdoor/dp/B0C1Z3539P/r?ie=UTF8&tag=giftable02-20)
 
 Elevate your game day outfit with the stylish and adjustable Arched Team Coach Cap - perfect for coaches, fans, and players.
 
@@ -539,7 +537,7 @@ The front cap has an embroidered letter "Team," while the curved bill offers sun
 
 ✔️ Ideal for both indoor and outdoor activities
 
-[Buy from Amazon](https://www.amazon.com/Arched-Adjustable-Embroidered-Travel-Outdoor/dp/B0C1Z3539P/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Arched-Adjustable-Embroidered-Travel-Outdoor/dp/B0C1Z3539P/r?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Believe Patch](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470923040/ted-lasso-believe-patch)
 
@@ -559,9 +557,9 @@ Because of the meticulous attention to detail, this patch's vivid colors and exq
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470923040/ted-lasso-believe-patch)
 
-### [31\. Soccer Ball Ceramic 3D](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Sculpted/dp/B0BB4RTRJ1/?ie=UTF8&tag=avadalove-20) 
+### [31\. Soccer Ball Ceramic 3D](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Sculpted/dp/B0BB4RTRJ1/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Sculpted/dp/B0BB4RTRJ1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Sculpted/dp/B0BB4RTRJ1/?ie=UTF8&tag=giftable02-20)
 
 Craving a touch of sporty elegance in your home? Discover the Soccer Ball Ceramic 3D, a captivating sculpture that will capture the attention of any soccer lover.
 
@@ -575,7 +573,7 @@ The measurements are ideal, making this ceramic sculpture a stunning decor for y
 
 ✔️ Authentic and meticulously crafted details
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Sculpted/dp/B0BB4RTRJ1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Believe-Ceramic-Sculpted/dp/B0BB4RTRJ1/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Believe Card](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1433052790/ted-lasso-fathers-day-card-believe-card)
 
@@ -595,9 +593,9 @@ This handcrafted card is 5 x 7 inches and is constructed of premium cardboard. T
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1433052790/ted-lasso-fathers-day-card-believe-card)
 
-### [33\. Believe Ankle Socks](https://www.amazon.com/Lasso-Unisex-5-Pack-Assorted-Ankle/dp/B09W6BVKNL/?ie=UTF8&tag=avadalove-20)
+### [33\. Believe Ankle Socks](https://www.amazon.com/Lasso-Unisex-5-Pack-Assorted-Ankle/dp/B09W6BVKNL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lasso-Unisex-5-Pack-Assorted-Ankle/dp/B09W6BVKNL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lasso-Unisex-5-Pack-Assorted-Ankle/dp/B09W6BVKNL/?ie=UTF8&tag=giftable02-20)
 
 Want to revamp your sock collection with trendy and comfortable options? Embrace the Ankle Socks 5-Pack, an essential addition for individuals who appreciate both style and functionality.
 
@@ -611,7 +609,7 @@ Due to their thorough construction and attention to detail, these socks offer a 
 
 ✔️ Vibrant and assorted colors for a stylish touch
 
-[Buy from Amazon](https://www.amazon.com/Lasso-Unisex-5-Pack-Assorted-Ankle/dp/B09W6BVKNL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lasso-Unisex-5-Pack-Assorted-Ankle/dp/B09W6BVKNL/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Golf Ball Marker](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1413162076/be-a-goldfish-golf-ball-marker-golf-gift)
 

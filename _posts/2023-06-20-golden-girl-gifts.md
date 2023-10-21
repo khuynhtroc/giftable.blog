@@ -17,9 +17,9 @@ At Golden Girl Gifts, we understand that the perfect gift should be beautiful an
 
 We believe a gift should be more than just a mere object; it should reflect your deep affection towards your beloved recipient. Whether it's a family member or you want to **[show your appreciation to a doctor](/thank-you-gifts-doctors/)** or lawyer, these gold items will definitely not disappoint you. Whether you're looking for a timeless keepsake or a quirky conversation starter, Golden Girl Gifts has covered you with our proved quality, good customer service, and highly recommended versatile products that are as witty and charming as you are!
 
-### [1\. Canvas Tote Bag](https://www.amazon.com/dp/B0BTRH57LB/?ie=UTF8&tag=avadalove-20)
+### [1\. Canvas Tote Bag](https://www.amazon.com/dp/B0BTRH57LB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0BTRH57LB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0BTRH57LB/?ie=UTF8&tag=giftable02-20)
 
 Ditch the ordinary and opt for extraordinary with this fantastic canvas tote bag!
 
@@ -33,11 +33,11 @@ This tote bag is ideal for carrying groceries, books, or any other necessities, 
 
 ✔️ Comfortable and sturdy handles for easy carrying
 
-[Buy from Amazon](https://www.amazon.com/dp/B0BTRH57LB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0BTRH57LB/?ie=UTF8&tag=giftable02-20)
 
-### [2\.  One Year Closer Card](https://www.amazon.com/Golden-Birthday-Friend-Grandma-Getting/dp/B09B12R77M/?ie=UTF8&tag=avadalove-20)
+### [2\.  One Year Closer Card](https://www.amazon.com/Golden-Birthday-Friend-Grandma-Getting/dp/B09B12R77M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Golden-Birthday-Friend-Grandma-Getting/dp/B09B12R77M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-Birthday-Friend-Grandma-Getting/dp/B09B12R77M/?ie=UTF8&tag=giftable02-20)
 
 Impress your loved ones with this amazing golden birthday card that beautifully combines style, sentiment, and the perfect touch of elegance.
 
@@ -51,11 +51,11 @@ This card's dimensions of 5 x 7 are ideal for adding a unique message inside. An
 
 ✔️ Sincere and touching message inside
 
-[Buy from Amazon](https://www.amazon.com/Golden-Birthday-Friend-Grandma-Getting/dp/B09B12R77M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-Birthday-Friend-Grandma-Getting/dp/B09B12R77M/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Lunch Bags Cooler](https://www.amazon.com/Lunch-Cooler-Reusable-Adjustable-Shoulder/dp/B09Z1R2YY2/?ie=UTF8&tag=avadalove-20)
+### [3\. Lunch Bags Cooler](https://www.amazon.com/Lunch-Cooler-Reusable-Adjustable-Shoulder/dp/B09Z1R2YY2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lunch-Cooler-Reusable-Adjustable-Shoulder/dp/B09Z1R2YY2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lunch-Cooler-Reusable-Adjustable-Shoulder/dp/B09Z1R2YY2/?ie=UTF8&tag=giftable02-20)
 
 Upgrade your lunch game with this sleek and stylish lunch bag cooler - the perfect solution for anyone who packs lunch for work or school.
 
@@ -69,11 +69,11 @@ This lunch bag cooler is 10 inches by 7 inches by 9.5 inches, making it the idea
 
 ✔️ Versatile use for multiple occasions
 
-[Buy from Amazon](https://www.amazon.com/Lunch-Cooler-Reusable-Adjustable-Shoulder/dp/B09Z1R2YY2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lunch-Cooler-Reusable-Adjustable-Shoulder/dp/B09Z1R2YY2/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Stickers for Laptop](https://www.amazon.com/Waterproof-Combination-Skateboards-Suitcases-Motorcycles/dp/B0BCJGL84V/?ie=UTF8&tag=avadalove-20)
+### [4\. Stickers for Laptop](https://www.amazon.com/Waterproof-Combination-Skateboards-Suitcases-Motorcycles/dp/B0BCJGL84V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Waterproof-Combination-Skateboards-Suitcases-Motorcycles/dp/B0BCJGL84V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Waterproof-Combination-Skateboards-Suitcases-Motorcycles/dp/B0BCJGL84V/?ie=UTF8&tag=giftable02-20)
 
 Let's decorate your laptop to a new look with these cute stickers that are sure to impress.
 
@@ -87,7 +87,7 @@ These stickers are the ideal size for computers, skateboards, bags, motorbikes, 
 
 ✔️ Versatile use on multiple surfaces
 
-[Buy from Amazon](https://www.amazon.com/Waterproof-Combination-Skateboards-Suitcases-Motorcycles/dp/B0BCJGL84V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Waterproof-Combination-Skateboards-Suitcases-Motorcycles/dp/B0BCJGL84V/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Acrylic Painting](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/990205799/rose-rose-nylund-acrylic-painting-betty) 
 
@@ -107,9 +107,9 @@ Its 16x20-inch size makes it the ideal accent piece for your home or business. Y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/990205799/rose-rose-nylund-acrylic-painting-betty)
 
-### [6\. Being A Friend Bag](https://www.amazon.com/Golden-Cosmetic-Friend-Merchandise-Birthday/dp/B0BPH1L93N/?ie=UTF8&tag=avadalove-20) 
+### [6\. Being A Friend Bag](https://www.amazon.com/Golden-Cosmetic-Friend-Merchandise-Birthday/dp/B0BPH1L93N/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Golden-Cosmetic-Friend-Merchandise-Birthday/dp/B0BPH1L93N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-Cosmetic-Friend-Merchandise-Birthday/dp/B0BPH1L93N/?ie=UTF8&tag=giftable02-20)
 
 Arrange your makeup and beauty products well-organized with the help of this Golden Cosmetic Friend Makeup Bag.
 
@@ -123,11 +123,11 @@ This cosmetics bag's dimensions are 9" L x 6" H x 3" W, which gives you lots of 
 
 ✔️ Easy-to-clean material ensures products stay fresh
 
-[Buy from Amazon](https://www.amazon.com/Golden-Cosmetic-Friend-Merchandise-Birthday/dp/B0BPH1L93N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-Cosmetic-Friend-Merchandise-Birthday/dp/B0BPH1L93N/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Character Ankle Socks](https://www.amazon.com/Golden-Girls-Character-Ankle-Socks/dp/B07DVQNQQH/?ie=UTF8&tag=avadalove-20)
+### [7\. Character Ankle Socks](https://www.amazon.com/Golden-Girls-Character-Ankle-Socks/dp/B07DVQNQQH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Golden-Girls-Character-Ankle-Socks/dp/B07DVQNQQH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-Girls-Character-Ankle-Socks/dp/B07DVQNQQH/?ie=UTF8&tag=giftable02-20)
 
 For fans of the iconic sitcom 'The Golden Girls,' these Character Ankle Socks offer a fun and fashionable way to display your love for the show.
 
@@ -141,11 +141,11 @@ These ankle socks are made from premium cotton that guarantees durability and a 
 
 ✔️ Soft and breathable material ensures maximum comfort
 
-[Buy from Amazon](https://www.amazon.com/Golden-Girls-Character-Ankle-Socks/dp/B07DVQNQQH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-Girls-Character-Ankle-Socks/dp/B07DVQNQQH/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Art Wall Decor Metal Sign Poster](https://www.amazon.com/SIGNCHAT-Golden-Strong-Humble-Badass/dp/B08SJ3H2V8/?ie=UTF8&tag=avadalove-20)
+### [8\. Art Wall Decor Metal Sign Poster](https://www.amazon.com/SIGNCHAT-Golden-Strong-Humble-Badass/dp/B08SJ3H2V8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SIGNCHAT-Golden-Strong-Humble-Badass/dp/B08SJ3H2V8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SIGNCHAT-Golden-Strong-Humble-Badass/dp/B08SJ3H2V8/?ie=UTF8&tag=giftable02-20)
 
 For any fan of the Golden Girl series, you cannot miss out on this pretty vintage metal sign poster.
 
@@ -159,7 +159,7 @@ This poster is the perfect size to decorate your walls, measuring 12x16 inches. 
 
 ✔️ Eye-catching and captivating artwork that inspires
 
-[Buy from Amazon](https://www.amazon.com/SIGNCHAT-Golden-Strong-Humble-Badass/dp/B08SJ3H2V8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SIGNCHAT-Golden-Strong-Humble-Badass/dp/B08SJ3H2V8/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Acrylic Drink Coasters](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1450055244/acrylic-drink-coasters-golden-gals)
 
@@ -179,9 +179,9 @@ There are four coasters in the package, which gives your beverages plenty of pro
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1450055244/acrylic-drink-coasters-golden-gals)
 
-### [10\. Golden Being A Friend Girls Keychain](https://www.amazon.com/Keychain-Merchandise-Holiday-Ornament-Christmas/dp/B09SXTZ2MP/?ie=UTF8&tag=avadalove-20) 
+### [10\. Golden Being A Friend Girls Keychain](https://www.amazon.com/Keychain-Merchandise-Holiday-Ornament-Christmas/dp/B09SXTZ2MP/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Keychain-Merchandise-Holiday-Ornament-Christmas/dp/B09SXTZ2MP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Merchandise-Holiday-Ornament-Christmas/dp/B09SXTZ2MP/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of friendship and elegance to your accessories with the Golden Being A Friend Girls Keychain.
 
@@ -195,11 +195,11 @@ The keychain has a lovely pattern with a golden finish that gives your keys or l
 
 ✔️ Sturdy construction for durability
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Merchandise-Holiday-Ornament-Christmas/dp/B09SXTZ2MP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Merchandise-Holiday-Ornament-Christmas/dp/B09SXTZ2MP/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Squad T-Shirt](https://www.amazon.com/Golden-T-Shirt-Shirts-Friends-X-Large/dp/B0B8SQ31TZ/?ie=UTF8&tag=avadalove-20) 
+### [11\. Squad T-Shirt](https://www.amazon.com/Golden-T-Shirt-Shirts-Friends-X-Large/dp/B0B8SQ31TZ/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Golden-T-Shirt-Shirts-Friends-X-Large/dp/B0B8SQ31TZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-T-Shirt-Shirts-Friends-X-Large/dp/B0B8SQ31TZ/?ie=UTF8&tag=giftable02-20)
 
 Friends enthusiasts who love staying ahead of the fashion game rejoice! The Squad T-Shirt has made its debut, and it's a statement-making shirt that will elevate any outfit.
 
@@ -213,7 +213,7 @@ This pretty shirt is the ultimate must-have for every Friends fan, measuring 9 i
 
 ✔️ Bold and stylish design
 
-[Buy from Amazon](https://www.amazon.com/Golden-T-Shirt-Shirts-Friends-X-Large/dp/B0B8SQ31TZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-T-Shirt-Shirts-Friends-X-Large/dp/B0B8SQ31TZ/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Stay Golden Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1402979297/stay-golden-sweatshirt-golden-girls)
 
@@ -233,9 +233,9 @@ The Stay Golden Sweatshirt will quickly become one of your favorite items since 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1402979297/stay-golden-sweatshirt-golden-girls)
 
-### [13\. Board Game](https://www.amazon.com/Monopoly-Golden-Officially-Licensed-Merchandise/dp/B06Y3PG8F2/?ie=UTF8&tag=avadalove-20)
+### [13\. Board Game](https://www.amazon.com/Monopoly-Golden-Officially-Licensed-Merchandise/dp/B06Y3PG8F2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monopoly-Golden-Officially-Licensed-Merchandise/dp/B06Y3PG8F2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monopoly-Golden-Officially-Licensed-Merchandise/dp/B06Y3PG8F2/?ie=UTF8&tag=giftable02-20)
 
 Inject fun and excitement into your social gatherings with this incredible Board Game, designed to engage players of all ages and create a vibrant and interactive atmosphere.
 
@@ -249,11 +249,11 @@ Every element of this game is intended to immerse you in Monopoly, thanks to its
 
 ✔️ Officially licensed merchandise ensures an authentic Monopoly experience
 
-[Buy from Amazon](https://www.amazon.com/Monopoly-Golden-Officially-Licensed-Merchandise/dp/B06Y3PG8F2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monopoly-Golden-Officially-Licensed-Merchandise/dp/B06Y3PG8F2/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Golden Girls Dice Set](https://www.amazon.com/USAOPOLY-Collectible-Featuring-Characters-References/dp/B08HG48W1Z/?ie=UTF8&tag=avadalove-20)
+### [14\. Golden Girls Dice Set](https://www.amazon.com/USAOPOLY-Collectible-Featuring-Characters-References/dp/B08HG48W1Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/USAOPOLY-Collectible-Featuring-Characters-References/dp/B08HG48W1Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/USAOPOLY-Collectible-Featuring-Characters-References/dp/B08HG48W1Z/?ie=UTF8&tag=giftable02-20)
 
 Level up a gaming adventure like never before with this extraordinary Dice Set, guaranteed to add excitement. Get ready to roll!
 
@@ -267,11 +267,11 @@ You will be filled with anticipation and excitement as you watch the exquisitely
 
 ✔️ The vibrant colors and intricate symbols add a touch of elegance
 
-[Buy from Amazon](https://www.amazon.com/USAOPOLY-Collectible-Featuring-Characters-References/dp/B08HG48W1Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/USAOPOLY-Collectible-Featuring-Characters-References/dp/B08HG48W1Z/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Funny Kitchen Towels](https://www.amazon.com/Homento-Towels-Golden-Inspired-Merchandise-Night-Unique/dp/B09S5HL26Y/?ie=UTF8&tag=avadalove-20)
+### [15\. Funny Kitchen Towels](https://www.amazon.com/Homento-Towels-Golden-Inspired-Merchandise-Night-Unique/dp/B09S5HL26Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homento-Towels-Golden-Inspired-Merchandise-Night-Unique/dp/B09S5HL26Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homento-Towels-Golden-Inspired-Merchandise-Night-Unique/dp/B09S5HL26Y/?ie=UTF8&tag=giftable02-20)
 
 Bring a smile to your face every time you enter your kitchen with Homento's Funny Kitchen Towels.
 
@@ -285,11 +285,11 @@ These towels stand out because to their clever and distinctive pop culture refer
 
 ✔️ Witty and unique designs
 
-[Buy from Amazon](https://www.amazon.com/Homento-Towels-Golden-Inspired-Merchandise-Night-Unique/dp/B09S5HL26Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homento-Towels-Golden-Inspired-Merchandise-Night-Unique/dp/B09S5HL26Y/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Golden Girl Bag](https://www.amazon.com/Cosmetic-MRSP-multifunctional-waterproof-Organizer/dp/B09TYMCGLR/?ie=UTF8&tag=avadalove-20)
+### [16\. Golden Girl Bag](https://www.amazon.com/Cosmetic-MRSP-multifunctional-waterproof-Organizer/dp/B09TYMCGLR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cosmetic-MRSP-multifunctional-waterproof-Organizer/dp/B09TYMCGLR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cosmetic-MRSP-multifunctional-waterproof-Organizer/dp/B09TYMCGLR/?ie=UTF8&tag=giftable02-20)
 
 Make your life easier with the Cosmetic Bag - the perfect solution for keeping your beauty products organized, accessible, and protected from water damage.
 
@@ -303,7 +303,7 @@ The Cosmetic Bag is roomy enough to hold all necessary cosmetics without taking 
 
 ✔️ Waterproof material
 
-[Buy from Amazon](https://www.amazon.com/Cosmetic-MRSP-multifunctional-waterproof-Organizer/dp/B09TYMCGLR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cosmetic-MRSP-multifunctional-waterproof-Organizer/dp/B09TYMCGLR/?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Tarot Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1421640815/70-off-today-the-golden-girls-tarot)
 
@@ -323,9 +323,9 @@ Each card is carefully created, with vivid colors and minute details that vividl
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1421640815/70-off-today-the-golden-girls-tarot)
 
-### [18\.  Tin Sign Art](https://www.amazon.com/Autographed-Signatured-Vintage-Decoration-8x12inch/dp/B09QMD4R2Z/?ie=UTF8&tag=avadalove-20)
+### [18\.  Tin Sign Art](https://www.amazon.com/Autographed-Signatured-Vintage-Decoration-8x12inch/dp/B09QMD4R2Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Autographed-Signatured-Vintage-Decoration-8x12inch/dp/B09QMD4R2Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Autographed-Signatured-Vintage-Decoration-8x12inch/dp/B09QMD4R2Z/?ie=UTF8&tag=giftable02-20)
 
 Yearning to give your home decor a vintage twist? Discover the allure of this exquisite Tin Sign Art!
 
@@ -339,11 +339,11 @@ It emanates a timeless charm and was made with extreme care. Its adaptable 8x12-
 
 ✔️ Versatile dimensions for easy display
 
-[Buy from Amazon](https://www.amazon.com/Autographed-Signatured-Vintage-Decoration-8x12inch/dp/B09QMD4R2Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Autographed-Signatured-Vintage-Decoration-8x12inch/dp/B09QMD4R2Z/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Kitchen Oven Mitt Gloves](https://www.amazon.com/HappyDaddy-Holders-Kitchen-Cooking-Grilling/dp/B08J721T21/?ie=UTF8&tag=avadalove-20)
+### [19\. Kitchen Oven Mitt Gloves](https://www.amazon.com/HappyDaddy-Holders-Kitchen-Cooking-Grilling/dp/B08J721T21/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HappyDaddy-Holders-Kitchen-Cooking-Grilling/dp/B08J721T21/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HappyDaddy-Holders-Kitchen-Cooking-Grilling/dp/B08J721T21/?ie=UTF8&tag=giftable02-20)
 
 Keep your hands safe from burns while cooking or grilling with the high-quality HappyDaddy Kitchen Oven Mitt Gloves.
 
@@ -357,11 +357,11 @@ High-quality materials used in constructing these gloves provide them with great
 
 ✔️ Non-slip design for easy handling of pots and pans
 
-[Buy from Amazon](https://www.amazon.com/HappyDaddy-Holders-Kitchen-Cooking-Grilling/dp/B08J721T21/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HappyDaddy-Holders-Kitchen-Cooking-Grilling/dp/B08J721T21/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Trivia Game](https://www.amazon.com/Trivial-Pursuit-Questions-GameTest-knowledge/dp/B07BPCMWYF/?ie=UTF8&tag=avadalove-20)
+### [20\. Trivia Game](https://www.amazon.com/Trivial-Pursuit-Questions-GameTest-knowledge/dp/B07BPCMWYF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Trivial-Pursuit-Questions-GameTest-knowledge/dp/B07BPCMWYF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Trivial-Pursuit-Questions-GameTest-knowledge/dp/B07BPCMWYF/?ie=UTF8&tag=giftable02-20)
 
 Want to put your intellect to the test? Then, the Trivial Pursuit Questions Game is just what you need to make any gathering or party more exciting.
 
@@ -375,11 +375,11 @@ Even the most knowledgeable players will be tested by this game's nearly 600 que
 
 ✔️ Compact size for storage and transport
 
-[Buy from Amazon](https://www.amazon.com/Trivial-Pursuit-Questions-GameTest-knowledge/dp/B07BPCMWYF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Trivial-Pursuit-Questions-GameTest-knowledge/dp/B07BPCMWYF/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Lapel Pin Set](https://www.amazon.com/Golden-Girls-Lapel-Pin-Set/dp/B07XRZHT15/?ie=UTF8&tag=avadalove-20)
+### [21\. Lapel Pin Set](https://www.amazon.com/Golden-Girls-Lapel-Pin-Set/dp/B07XRZHT15/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Golden-Girls-Lapel-Pin-Set/dp/B07XRZHT15/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-Girls-Lapel-Pin-Set/dp/B07XRZHT15/?ie=UTF8&tag=giftable02-20)
 
 Show off your undying love for the Golden Girls with this trendy and flair-filled Lapel Pin Set.
 
@@ -393,7 +393,7 @@ These enamel pins are expertly crafted and feature vivid colors and fine details
 
 ✔️ Vibrant colors and intricate details
 
-[Buy from Amazon](https://www.amazon.com/Golden-Girls-Lapel-Pin-Set/dp/B07XRZHT15/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-Girls-Lapel-Pin-Set/dp/B07XRZHT15/?ie=UTF8&tag=giftable02-20)
 
 ### [22\.  Charm Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1275488936/golden-girls-charm-bracelet-60th)
 
@@ -413,9 +413,9 @@ The Golden Girls Charm Bracelet is a true collector's item, perfect for fans of 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1275488936/golden-girls-charm-bracelet-60th)
 
-### [23\. Clean Dirty Magnet Sign](https://www.amazon.com/Dishwasher-Indicator-Universal-Kitchen-Refrigerator/dp/B0B5QGVH3Y/?ie=UTF8&tag=avadalove-20)
+### [23\. Clean Dirty Magnet Sign](https://www.amazon.com/Dishwasher-Indicator-Universal-Kitchen-Refrigerator/dp/B0B5QGVH3Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dishwasher-Indicator-Universal-Kitchen-Refrigerator/dp/B0B5QGVH3Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dishwasher-Indicator-Universal-Kitchen-Refrigerator/dp/B0B5QGVH3Y/?ie=UTF8&tag=giftable02-20)
 
 Upgrade your dishwasher experience and get the reliable Clean Dirty Magnet Sign to track your dishes' status easily.
 
@@ -429,11 +429,11 @@ This Clean Dirty Magnet Sign is 3.5 by 2 inches and will fit most dishwasher mod
 
 ✔️ Easy-to-read letters and graphics
 
-[Buy from Amazon](https://www.amazon.com/Dishwasher-Indicator-Universal-Kitchen-Refrigerator/dp/B0B5QGVH3Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dishwasher-Indicator-Universal-Kitchen-Refrigerator/dp/B0B5QGVH3Y/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Stay Golden Girls Keychain](https://www.amazon.com/XYZONE-Keychain-Merchandise-Holiday-Ornament/dp/B0B1CQK7KT/?ie=UTF8&tag=avadalove-20)
+### [24\. Stay Golden Girls Keychain](https://www.amazon.com/XYZONE-Keychain-Merchandise-Holiday-Ornament/dp/B0B1CQK7KT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/XYZONE-Keychain-Merchandise-Holiday-Ornament/dp/B0B1CQK7KT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/XYZONE-Keychain-Merchandise-Holiday-Ornament/dp/B0B1CQK7KT/?ie=UTF8&tag=giftable02-20)
 
 Bring some Golden Girls charm to your daily routine with the gorgeous Stay Golden Girls Keychain.
 
@@ -447,7 +447,7 @@ With a safe key ring connection, this Stay Golden Girls keychain is 2 inches lon
 
 ✔️ Comes with a secure key ring attachment
 
-[Buy from Amazon](https://www.amazon.com/XYZONE-Keychain-Merchandise-Holiday-Ornament/dp/B0B1CQK7KT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/XYZONE-Keychain-Merchandise-Holiday-Ornament/dp/B0B1CQK7KT/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Golden Girls Key Chain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/888883728/golden-girls-stay-golden-key-chain-bag)
 
@@ -467,9 +467,9 @@ Its ideal size allows it to easily connect to your backpack or keys or sit comfo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/888883728/golden-girls-stay-golden-key-chain-bag)
 
-### [26\. Casual Ankle Socks](https://www.amazon.com/Golden-Girls-Ankle-Socks-5-Pack/dp/B07YNZ16JP/?ie=UTF8&tag=avadalove-20) 
+### [26\. Casual Ankle Socks](https://www.amazon.com/Golden-Girls-Ankle-Socks-5-Pack/dp/B07YNZ16JP/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Golden-Girls-Ankle-Socks-5-Pack/dp/B07YNZ16JP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-Girls-Ankle-Socks-5-Pack/dp/B07YNZ16JP/?ie=UTF8&tag=giftable02-20)
 
 Step into the world of the Golden Girls with these perfect Casual Ankle Socks that combine style and comfort.
 
@@ -483,11 +483,11 @@ They are warm feel that keeps your feet at ease all day. The adjustable ankle le
 
 ✔️ 5-pack for a variety of style choices.
 
-[Buy from Amazon](https://www.amazon.com/Golden-Girls-Ankle-Socks-5-Pack/dp/B07YNZ16JP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-Girls-Ankle-Socks-5-Pack/dp/B07YNZ16JP/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Iced Coffee Tumbler Cup](https://www.amazon.com/Thank-You-Being-Friend-Mug/dp/B09STXLPMY/?ie=UTF8&tag=avadalove-20)
+### [27\. Iced Coffee Tumbler Cup](https://www.amazon.com/Thank-You-Being-Friend-Mug/dp/B09STXLPMY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thank-You-Being-Friend-Mug/dp/B09STXLPMY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thank-You-Being-Friend-Mug/dp/B09STXLPMY/?ie=UTF8&tag=giftable02-20)
 
 Revolutionize your mornings with the Iced Coffee Tumbler Cup. This sleek and stylish cup is perfect for your daily caffeine fix.
 
@@ -501,7 +501,7 @@ This tumbler is the ideal size to put in your car's cup holder or to carry with 
 
 ✔️ Portable size fits in car cup holders
 
-[Buy from Amazon](https://www.amazon.com/Thank-You-Being-Friend-Mug/dp/B09STXLPMY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thank-You-Being-Friend-Mug/dp/B09STXLPMY/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Golden Girlz Shoe Buttons](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1257813190/golden-girlz-shoe-buttons)
 
@@ -521,9 +521,9 @@ These shoe buttons are 1.25 inches long and have a stunning, detailed, golden pa
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1257813190/golden-girlz-shoe-buttons)
 
-### [29\. Party Crown](https://www.amazon.com/Golden-Girl-Party-Tiara-Birthday/dp/B09C5CWZN5/r?ie=UTF8&tag=avadalove-20)
+### [29\. Party Crown](https://www.amazon.com/Golden-Girl-Party-Tiara-Birthday/dp/B09C5CWZN5/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Golden-Girl-Party-Tiara-Birthday/dp/B09C5CWZN5/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Golden-Girl-Party-Tiara-Birthday/dp/B09C5CWZN5/r?ie=UTF8&tag=giftable02-20)
 
 With the Golden Girl Party Crown, you can effortlessly become the queen of any party, exuding elegance and fun with every step.
 
@@ -537,11 +537,11 @@ The Golden Girl Party Crown is around 5 inches tall and perfectly blends opulent
 
 ✔️ Lightweight and comfortable for extended wear
 
-[Buy from Amazon](https://www.amazon.com/Golden-Girl-Party-Tiara-Birthday/dp/B09C5CWZN5/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Golden-Girl-Party-Tiara-Birthday/dp/B09C5CWZN5/r?ie=UTF8&tag=giftable02-20)
 
-### [30\. Golden Girls Bag Makeup](https://www.amazon.com/BAD-BANANAS-Golden-Girls-Merchandise/dp/B09TQYN4L1/?ie=UTF8&tag=avadalove-20)
+### [30\. Golden Girls Bag Makeup](https://www.amazon.com/BAD-BANANAS-Golden-Girls-Merchandise/dp/B09TQYN4L1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BAD-BANANAS-Golden-Girls-Merchandise/dp/B09TQYN4L1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BAD-BANANAS-Golden-Girls-Merchandise/dp/B09TQYN4L1/?ie=UTF8&tag=giftable02-20)
 
 Don't waste time searching for lipstick in your purse anymore – the Golden Girls Makeup Bag is the solution!
 
@@ -555,7 +555,7 @@ It's not just a gorgeous face on this cosmetic bag. It has enough room for all y
 
 ✔️ Spacious interior for all your makeup needs
 
-[Buy from Amazon](https://www.amazon.com/BAD-BANANAS-Golden-Girls-Merchandise/dp/B09TQYN4L1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BAD-BANANAS-Golden-Girls-Merchandise/dp/B09TQYN4L1/?ie=UTF8&tag=giftable02-20)
 
 ### [31\.  Crossing Road T-Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1351374437/golden-girls-crossing-road-t-shirt-the)
 
@@ -575,9 +575,9 @@ Any show lover should own this shirt because of the vivid colors and eye-catchin
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1351374437/golden-girls-crossing-road-t-shirt-the)
 
-### [32\. Quiet You Trash Ceramic Mug](https://www.amazon.com/Silver-Buffalo-Golden-Ceramic-Ounces/dp/B0992TC8P2/?ie=UTF8&tag=avadalove-20)
+### [32\. Quiet You Trash Ceramic Mug](https://www.amazon.com/Silver-Buffalo-Golden-Ceramic-Ounces/dp/B0992TC8P2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silver-Buffalo-Golden-Ceramic-Ounces/dp/B0992TC8P2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Golden-Ceramic-Ounces/dp/B0992TC8P2/?ie=UTF8&tag=giftable02-20)
 
 If you're fed up with the clamor of your colleagues and want some tranquility in your morning routine, then the Quiet You Trash Ceramic Mug is the perfect solution for you.
 
@@ -591,11 +591,11 @@ The 4 inch tall Quiet You Trash Ceramic Mug has a capacity of 14 ounces for your
 
 ✔️ Microwave and dishwasher safe
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Golden-Ceramic-Ounces/dp/B0992TC8P2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Golden-Ceramic-Ounces/dp/B0992TC8P2/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Grid Double Wall Travel Tumbler](https://www.amazon.com/Silver-Buffalo-Golden-Character-Tumbler/dp/B09ZPZLDK6/?ie=UTF8&tag=avadalove-20) 
+### [33\. Grid Double Wall Travel Tumbler](https://www.amazon.com/Silver-Buffalo-Golden-Character-Tumbler/dp/B09ZPZLDK6/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Silver-Buffalo-Golden-Character-Tumbler/dp/B09ZPZLDK6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Golden-Character-Tumbler/dp/B09ZPZLDK6/?ie=UTF8&tag=giftable02-20)
 
 Keep your beverages hot or cold for longer with the Silver Buffalo Golden Girls Grid Double Wall Travel Tumbler, and never be disappointed again.
 
@@ -609,7 +609,7 @@ This portable tumbler, which is 20 ounces in capacity and 7.3 inches in height, 
 
 ✔️ Eye-catching grid pattern featuring the Golden Girls' characters
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Golden-Character-Tumbler/dp/B09ZPZLDK6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Golden-Character-Tumbler/dp/B09ZPZLDK6/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Epoxy InkJoy Pens](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1301522838/stay-golden-epoxy-inkjoy-pens)
 
@@ -629,9 +629,9 @@ The writing, however, is where these pens shine. Because of their pleasant grip 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1301522838/stay-golden-epoxy-inkjoy-pens)
 
-### [35\. Golden Girls Pottery Planter](https://www.amazon.com/Chia-Golden-Girls-Sophia-Pottery-Planter/dp/B07JZP9KJ8/?ie=UTF8&tag=avadalove-20)
+### [35\. Golden Girls Pottery Planter](https://www.amazon.com/Chia-Golden-Girls-Sophia-Pottery-Planter/dp/B07JZP9KJ8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chia-Golden-Girls-Sophia-Pottery-Planter/dp/B07JZP9KJ8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chia-Golden-Girls-Sophia-Pottery-Planter/dp/B07JZP9KJ8/?ie=UTF8&tag=giftable02-20)
 
 Looking for a whimsical planter that sparks joy? Meet the Chia Golden Girls Sophia Pottery Planter.
 
@@ -645,4 +645,4 @@ Additionally, the Chia Golden Girls Sophia Pottery Planter has many fascinating 
 
 ✔️ Vibrant colors and unique design
 
-[Buy from Amazon](https://www.amazon.com/Chia-Golden-Girls-Sophia-Pottery-Planter/dp/B07JZP9KJ8/?ie=UTF8&tag=avadalove-20) 
+[Buy from Amazon](https://www.amazon.com/Chia-Golden-Girls-Sophia-Pottery-Planter/dp/B07JZP9KJ8/?ie=UTF8&tag=giftable02-20) 

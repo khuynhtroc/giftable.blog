@@ -17,9 +17,9 @@ Our Juneteenth gifts are painstakingly made with passion and effort to make a pr
 
 Be a party animal instead of a square by shopping our Juneteenth gifts selection right now. Grab these presents while they're hot because you won't find them anyplace else! You'll be envied by all your friends with Loveable's distinctive and meaningful items. By making purchases from us, you may not only support Juneteenth but also significantly alter the world.
 
-### [1\. Paper Bags](https://www.amazon.com/Sherr-Juneteenth-American-Independence-Decoration/dp/B0BYR8HT6H/?ie=UTF8&tag=avadalove-20)
+### [1\. Paper Bags](https://www.amazon.com/Sherr-Juneteenth-American-Independence-Decoration/dp/B0BYR8HT6H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sherr-Juneteenth-American-Independence-Decoration/dp/B0BYR8HT6H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sherr-Juneteenth-American-Independence-Decoration/dp/B0BYR8HT6H/?ie=UTF8&tag=giftable02-20)
 
 Ready to celebrate Juneteenth in style? The Sherr Juneteenth American Paper Bags are your go-to choice for a memorable celebration.
 
@@ -33,11 +33,11 @@ These paper bags have a width of about 8 inches, a height of about 10 inches, an
 
 ✔️ High-quality materials for durability
 
-[Buy from Amazon](https://www.amazon.com/Sherr-Juneteenth-American-Independence-Decoration/dp/B0BYR8HT6H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sherr-Juneteenth-American-Independence-Decoration/dp/B0BYR8HT6H/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Ribbon Pins](https://www.amazon.com/Unittype-Juneteenth-African-Accessories-Decoration/dp/B0BZ49KKQZ/?ie=UTF8&tag=avadalove-20) 
+### [2\. Ribbon Pins](https://www.amazon.com/Unittype-Juneteenth-African-Accessories-Decoration/dp/B0BZ49KKQZ/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Unittype-Juneteenth-African-Accessories-Decoration/dp/B0BZ49KKQZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Unittype-Juneteenth-African-Accessories-Decoration/dp/B0BZ49KKQZ/?ie=UTF8&tag=giftable02-20)
 
 Enhance the cultural depth and grace of your Juneteenth celebrations by adorning yourself with the Unittype Juneteenth African Ribbon Pins.
 
@@ -51,7 +51,7 @@ These Ribbon Pins have a ton of functions and are made with premium materials. T
 
 ✔️ Impeccable attention to detail with vibrant African-inspired patterns
 
-[Buy from Amazon](https://www.amazon.com/Unittype-Juneteenth-African-Accessories-Decoration/dp/B0BZ49KKQZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Unittype-Juneteenth-African-Accessories-Decoration/dp/B0BZ49KKQZ/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Juneteenth Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1439265264/celebrate-juneteenth-tumbler-black)
 
@@ -71,9 +71,9 @@ This tumbler's dimensions are 7 inches tall by 3.5 inches broad, making it the i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1439265264/celebrate-juneteenth-tumbler-black)
 
-### [4\. Bookmarks Religious Black History](https://www.amazon.com/Haooryx-Juneteenth-Celebration-Independence-Inspirational/dp/B0BVR1T37N/?ie=UTF8&tag=avadalove-20) 
+### [4\. Bookmarks Religious Black History](https://www.amazon.com/Haooryx-Juneteenth-Celebration-Independence-Inspirational/dp/B0BVR1T37N/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Haooryx-Juneteenth-Celebration-Independence-Inspirational/dp/B0BVR1T37N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Haooryx-Juneteenth-Celebration-Independence-Inspirational/dp/B0BVR1T37N/?ie=UTF8&tag=giftable02-20)
 
 Add a special touch to satisfy your enthusiasm for history with the "Bookmarks Religious Black History" set - a remarkable set of bookmarks!
 
@@ -87,11 +87,11 @@ The dimensions of each bookmark are 2 x 6 inches, making them ideal for whatever
 
 ✔️ Perfect size for all types of books
 
-[Buy from Amazon](https://www.amazon.com/Haooryx-Juneteenth-Celebration-Independence-Inspirational/dp/B0BVR1T37N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Haooryx-Juneteenth-Celebration-Independence-Inspirational/dp/B0BVR1T37N/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Crew Socks](https://www.amazon.com/Uniwneds-Juneteenth-Freedom-Stocking-Teenager/dp/B0C172TWZH/?ie=UTF8&tag=avadalove-20) 
+### [5\. Crew Socks](https://www.amazon.com/Uniwneds-Juneteenth-Freedom-Stocking-Teenager/dp/B0C172TWZH/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Uniwneds-Juneteenth-Freedom-Stocking-Teenager/dp/B0C172TWZH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Uniwneds-Juneteenth-Freedom-Stocking-Teenager/dp/B0C172TWZH/?ie=UTF8&tag=giftable02-20)
 
 Step up your Juneteenth festivities with the Uniwneds Juneteenth Crew Socks - the epitome of style and comfort.
 
@@ -105,11 +105,11 @@ They are made to fit most sizes with a length of around 10 inches and a flexible
 
 ✔️ Bold Juneteenth-themed patterns for a stylish flair
 
-[Buy from Amazon](https://www.amazon.com/Uniwneds-Juneteenth-Freedom-Stocking-Teenager/dp/B0C172TWZH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Uniwneds-Juneteenth-Freedom-Stocking-Teenager/dp/B0C172TWZH/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Silicone Bracelet](https://www.amazon.com/Juneteenth-Silicone-Bracelet-Wristbands-Independence/dp/B0C1CRWT4T/?ie=UTF8&tag=avadalove-20)
+### [6\. Silicone Bracelet](https://www.amazon.com/Juneteenth-Silicone-Bracelet-Wristbands-Independence/dp/B0C1CRWT4T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Silicone-Bracelet-Wristbands-Independence/dp/B0C1CRWT4T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Silicone-Bracelet-Wristbands-Independence/dp/B0C1CRWT4T/?ie=UTF8&tag=giftable02-20)
 
 This bracelet is a striking and fashionable way to show your support for African American history and the **[celebration of independence](/independence-day-gifts/)** thanks to its vivid colors and engraved Juneteenth patterns.
 
@@ -121,11 +121,11 @@ This bracelet is a striking and fashionable way to show your support for African
 
 ✔️ Symbolic of unity, strength, and resilience.
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Silicone-Bracelet-Wristbands-Independence/dp/B0C1CRWT4T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Silicone-Bracelet-Wristbands-Independence/dp/B0C1CRWT4T/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Freedom Bucket Hat](https://www.amazon.com/Juneteenth-Bucket-Travel-Fisherman-Women/dp/B0C16BQ5PQ/?ie=UTF8&tag=avadalove-20)
+### [7\. Freedom Bucket Hat](https://www.amazon.com/Juneteenth-Bucket-Travel-Fisherman-Women/dp/B0C16BQ5PQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Bucket-Travel-Fisherman-Women/dp/B0C16BQ5PQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Bucket-Travel-Fisherman-Women/dp/B0C16BQ5PQ/?ie=UTF8&tag=giftable02-20)
 
 Upgrade your outdoor gear with this Bucket Hat - the perfect accessory for style and functionality.
 
@@ -139,7 +139,7 @@ The hat has a 22-inch diameter and a broad brim that provides plenty of covering
 
 ✔️ Perfect for protecting your face
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Bucket-Travel-Fisherman-Women/dp/B0C16BQ5PQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Bucket-Travel-Fisherman-Women/dp/B0C16BQ5PQ/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Juneteenth Bracelets](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1199590856/beautiful-juneteenth-bracelets)
 
@@ -159,9 +159,9 @@ The flexible rope used to make the bracelets, which have a length of around 7 in
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1199590856/beautiful-juneteenth-bracelets)
 
-### [9\. Beaded Necklaces Plastic](https://www.amazon.com/Sasylvia-Juneteenth-Necklaces-Decorations-Accessories/dp/B0C1G1ZYT2/?ie=UTF8&tag=avadalove-20)
+### [9\. Beaded Necklaces Plastic](https://www.amazon.com/Sasylvia-Juneteenth-Necklaces-Decorations-Accessories/dp/B0C1G1ZYT2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sasylvia-Juneteenth-Necklaces-Decorations-Accessories/dp/B0C1G1ZYT2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sasylvia-Juneteenth-Necklaces-Decorations-Accessories/dp/B0C1G1ZYT2/?ie=UTF8&tag=giftable02-20)
 
 Complete your Juneteenth look with the exquisite Sasylvia Juneteenth Beaded Necklaces Plastic.
 
@@ -175,11 +175,11 @@ Each necklace is around 33 inches long, making it simple to wear many necklacesa
 
 ✔️ Variety of bead sizes and colors for a stunning visual display
 
-[Buy from Amazon](https://www.amazon.com/Sasylvia-Juneteenth-Necklaces-Decorations-Accessories/dp/B0C1G1ZYT2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sasylvia-Juneteenth-Necklaces-Decorations-Accessories/dp/B0C1G1ZYT2/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Juneteenth Buttons](https://www.amazon.com/AMFEOV-Juneteenth-Decorations-Supplies-Emancipation/dp/B0BZTSP8QP/?ie=UTF8&tag=avadalove-20)
+### [10\. Juneteenth Buttons](https://www.amazon.com/AMFEOV-Juneteenth-Decorations-Supplies-Emancipation/dp/B0BZTSP8QP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AMFEOV-Juneteenth-Decorations-Supplies-Emancipation/dp/B0BZTSP8QP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AMFEOV-Juneteenth-Decorations-Supplies-Emancipation/dp/B0BZTSP8QP/?ie=UTF8&tag=giftable02-20)
 
 Spark conversations and inspire change with the AMFEOV Juneteenth Buttons at your Juneteenth event.
 
@@ -193,11 +193,11 @@ Each button features vibrant Juneteenth-themed designs and is made of high-quali
 
 ✔️ Symbols of unity, education, and progress
 
-[Buy from Amazon](https://www.amazon.com/AMFEOV-Juneteenth-Decorations-Supplies-Emancipation/dp/B0BZTSP8QP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AMFEOV-Juneteenth-Decorations-Supplies-Emancipation/dp/B0BZTSP8QP/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Party Boxes](https://www.amazon.com/Fainne-Juneteenth-Cardboard-American-Independence/dp/B0BXK8N6HD/?ie=UTF8&tag=avadalove-20)
+### [11\. Party Boxes](https://www.amazon.com/Fainne-Juneteenth-Cardboard-American-Independence/dp/B0BXK8N6HD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fainne-Juneteenth-Cardboard-American-Independence/dp/B0BXK8N6HD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fainne-Juneteenth-Cardboard-American-Independence/dp/B0BXK8N6HD/?ie=UTF8&tag=giftable02-20)
 
 Make your Juneteenth celebration unforgettable with these Party Boxes!
 
@@ -211,7 +211,7 @@ The bright and colorful design has strong visuals and an attention-grabbing stat
 
 ✔️ Signifies unity and community
 
-[Buy from Amazon](https://www.amazon.com/Fainne-Juneteenth-Cardboard-American-Independence/dp/B0BXK8N6HD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fainne-Juneteenth-Cardboard-American-Independence/dp/B0BXK8N6HD/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Black Freedom Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1432367482/black-history-shirt-juneteenth-1865)
 
@@ -231,9 +231,9 @@ The design is striking and bold, and the front proudly displays its essential me
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1432367482/black-history-shirt-juneteenth-1865)
 
-### [13\. Juneteenth T-Shirt](https://www.amazon.com/Juneteenth-History-American-African-T-Shirt/dp/B09X5ZWCV4/?ie=UTF8&tag=avadalove-20)
+### [13\. Juneteenth T-Shirt](https://www.amazon.com/Juneteenth-History-American-African-T-Shirt/dp/B09X5ZWCV4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-History-American-African-T-Shirt/dp/B09X5ZWCV4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-History-American-African-T-Shirt/dp/B09X5ZWCV4/?ie=UTF8&tag=giftable02-20)
 
 Complete your Juneteenth ensemble with the symbolic Juneteenth History American African T-Shirt.
 
@@ -247,11 +247,11 @@ This shirt has a distinctive and alluring style that draws attention to the sign
 
 ✔️ Sparks curiosity and invites conversations about Juneteenth
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-History-American-African-T-Shirt/dp/B09X5ZWCV4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-History-American-African-T-Shirt/dp/B09X5ZWCV4/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Earrings Crystal Beaded](https://www.amazon.com/ARATLENCH-African-Earrings-Crystal-Beaded-Afro-Dangle-Earrings-for-Black-Women-Head-Africa-Map-Heart-Dangle-Earrings-for-Women-Girls-Ethic-Juneteenth-Inspired-Earrings-Jewelry-Gift/dp/B0B371SFCT/?ie=UTF8&tag=avadalove-20)
+### [14\. Earrings Crystal Beaded](https://www.amazon.com/ARATLENCH-African-Earrings-Crystal-Beaded-Afro-Dangle-Earrings-for-Black-Women-Head-Africa-Map-Heart-Dangle-Earrings-for-Women-Girls-Ethic-Juneteenth-Inspired-Earrings-Jewelry-Gift/dp/B0B371SFCT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ARATLENCH-African-Earrings-Crystal-Beaded-Afro-Dangle-Earrings-for-Black-Women-Head-Africa-Map-Heart-Dangle-Earrings-for-Women-Girls-Ethic-Juneteenth-Inspired-Earrings-Jewelry-Gift/dp/B0B371SFCT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ARATLENCH-African-Earrings-Crystal-Beaded-Afro-Dangle-Earrings-for-Black-Women-Head-Africa-Map-Heart-Dangle-Earrings-for-Women-Girls-Ethic-Juneteenth-Inspired-Earrings-Jewelry-Gift/dp/B0B371SFCT/?ie=UTF8&tag=giftable02-20)
 
 Show your appreciation for African craftsmanship and beauty with the African Earrings Crystal Beaded.
 
@@ -265,11 +265,11 @@ Easy to wear all day long or on special occasions because they are light and com
 
 ✔️ Lightweight and comfortable for all-day wear
 
-[Buy from Amazon](https://www.amazon.com/ARATLENCH-African-Earrings-Crystal-Beaded-Afro-Dangle-Earrings-for-Black-Women-Head-Africa-Map-Heart-Dangle-Earrings-for-Women-Girls-Ethic-Juneteenth-Inspired-Earrings-Jewelry-Gift/dp/B0B371SFCT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ARATLENCH-African-Earrings-Crystal-Beaded-Afro-Dangle-Earrings-for-Black-Women-Head-Africa-Map-Heart-Dangle-Earrings-for-Women-Girls-Ethic-Juneteenth-Inspired-Earrings-Jewelry-Gift/dp/B0B371SFCT/?ie=UTF8&tag=giftable02-20)
 
-### [15\.  Goodie Treat Bags](https://www.amazon.com/Juneteenth-Cellophane-Treat-Bags-American/dp/B0BV6211YD/r?ie=UTF8&tag=avadalove-20)
+### [15\.  Goodie Treat Bags](https://www.amazon.com/Juneteenth-Cellophane-Treat-Bags-American/dp/B0BV6211YD/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Cellophane-Treat-Bags-American/dp/B0BV6211YD/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Cellophane-Treat-Bags-American/dp/B0BV6211YD/r?ie=UTF8&tag=giftable02-20)
 
 Planning a Juneteenth celebration and looking for the perfect way to package your treats and party favors? These Goodie Treat Bags from Amazon are just what you need!
 
@@ -283,7 +283,7 @@ You will have enough bags for all of your visitors thanks to the 50 that are inc
 
 ✔️ Set of 50 bags for many people
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Cellophane-Treat-Bags-American/dp/B0BV6211YD/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Cellophane-Treat-Bags-American/dp/B0BV6211YD/r?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Juneteenth Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1461521824/juneteenth-shelf-sitterjuneteenth)
 
@@ -303,9 +303,9 @@ This sign is made to survive through many future Juneteenth celebrations due to 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1461521824/juneteenth-shelf-sitterjuneteenth)
 
-### [17\. Party Banner](https://www.amazon.com/Juneteenth-Decorations-Patriotic-Supplies-Celebration/dp/B0C3D1XJQK/?ie=UTF8&tag=avadalove-20)
+### [17\. Party Banner](https://www.amazon.com/Juneteenth-Decorations-Patriotic-Supplies-Celebration/dp/B0C3D1XJQK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Decorations-Patriotic-Supplies-Celebration/dp/B0C3D1XJQK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Decorations-Patriotic-Supplies-Celebration/dp/B0C3D1XJQK/?ie=UTF8&tag=giftable02-20)
 
 Ignite the party spirit and honor Juneteenth with the captivating Juneteenth Party Banner.
 
@@ -319,11 +319,11 @@ The Juneteenth Party Banner is a significant and striking decoration that is app
 
 ✔️ Long length for impactful decoration
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Decorations-Patriotic-Supplies-Celebration/dp/B0C3D1XJQK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Decorations-Patriotic-Supplies-Celebration/dp/B0C3D1XJQK/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Yard Fence Banner](https://www.amazon.com/durony-Juneteenth-Decoration-American-Celebration/dp/B0BY8QHQSX/?ie=UTF8&tag=avadalove-20) 
+### [18\. Yard Fence Banner](https://www.amazon.com/durony-Juneteenth-Decoration-American-Celebration/dp/B0BY8QHQSX/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/durony-Juneteenth-Decoration-American-Celebration/dp/B0BY8QHQSX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/durony-Juneteenth-Decoration-American-Celebration/dp/B0BY8QHQSX/?ie=UTF8&tag=giftable02-20)
 
 Showcase your commitment to Juneteenth and inspire conversations with the durony Juneteenth Yard Fence Banner.
 
@@ -337,7 +337,7 @@ It is constructed with top-notch, weather-resistant, and long-lasting materials 
 
 ✔️ Weather-resistant and durable materials
 
-[Buy from Amazon](https://www.amazon.com/durony-Juneteenth-Decoration-American-Celebration/dp/B0BY8QHQSX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/durony-Juneteenth-Decoration-American-Celebration/dp/B0BY8QHQSX/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Juneteenth Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1472643904/juneteenth-1865-woman-tank-top)
 
@@ -357,9 +357,9 @@ This tank top is comfortable and long-lasting since it is made of soft and breat
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1472643904/juneteenth-1865-woman-tank-top)
 
-### [20\. Black Freedom Bag](https://www.amazon.com/JNIAP-History-Juneteenth-Cosmetic-Celebrate/dp/B09W5BJ998/?ie=UTF8&tag=avadalove-20)
+### [20\. Black Freedom Bag](https://www.amazon.com/JNIAP-History-Juneteenth-Cosmetic-Celebrate/dp/B09W5BJ998/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JNIAP-History-Juneteenth-Cosmetic-Celebrate/dp/B09W5BJ998/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JNIAP-History-Juneteenth-Cosmetic-Celebrate/dp/B09W5BJ998/?ie=UTF8&tag=giftable02-20)
 
 Choose this History Juneteenth Cosmetic Bag for a celebration of Juneteenth that is both stylish and significant.
 
@@ -373,7 +373,7 @@ This cosmetic bag, which measures 8.5" x 5", is the ideal size for **[organizing
 
 ✔️ Generous size to fit all of your daily essentials
 
-[Buy from Amazon](https://www.amazon.com/JNIAP-History-Juneteenth-Cosmetic-Celebrate/dp/B09W5BJ998/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JNIAP-History-Juneteenth-Cosmetic-Celebrate/dp/B09W5BJ998/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Juneteenth Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1050971499/juneteenth-earrings)
 
@@ -393,9 +393,9 @@ The Juneteenth Earrings have a distinctive and fashionable design that incorpora
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1050971499/juneteenth-earrings)
 
-### [22\. Backpack Bag](https://www.amazon.com/Jetec-Juneteenth-Drawstring-Backpack-Freedom/dp/B0C2PYT4QB/?ie=UTF8&tag=avadalove-20)
+### [22\. Backpack Bag](https://www.amazon.com/Jetec-Juneteenth-Drawstring-Backpack-Freedom/dp/B0C2PYT4QB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jetec-Juneteenth-Drawstring-Backpack-Freedom/dp/B0C2PYT4QB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jetec-Juneteenth-Drawstring-Backpack-Freedom/dp/B0C2PYT4QB/?ie=UTF8&tag=giftable02-20)
 
 Step up your Juneteenth game with the Jetec Juneteenth Drawstring Backpack Bag, the ideal blend of fashion and functionality.
 
@@ -409,11 +409,11 @@ This backpack bag is ideal for regular usage and outdoor activities because it i
 
 ✔️ Adjustable drawstring closure for a secure fit
 
-[Buy from Amazon](https://www.amazon.com/Jetec-Juneteenth-Drawstring-Backpack-Freedom/dp/B0C2PYT4QB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jetec-Juneteenth-Drawstring-Backpack-Freedom/dp/B0C2PYT4QB/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Kitchen Towels](https://www.amazon.com/Oudain-Juneteenth-Kitchen-Absorbent-Accessories/dp/B0BYJJ984D/?ie=UTF8&tag=avadalove-20)
+### [23\. Kitchen Towels](https://www.amazon.com/Oudain-Juneteenth-Kitchen-Absorbent-Accessories/dp/B0BYJJ984D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Oudain-Juneteenth-Kitchen-Absorbent-Accessories/dp/B0BYJJ984D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Oudain-Juneteenth-Kitchen-Absorbent-Accessories/dp/B0BYJJ984D/?ie=UTF8&tag=giftable02-20)
 
 Don't let your Juneteenth celebration be incomplete - get these Kitchen Towels!
 
@@ -427,11 +427,11 @@ Four towels, each measuring 28 by 16, are included in each set. The towels are s
 
 ✔️ Versatile use in any room of the house
 
-[Buy from Amazon](https://www.amazon.com/Oudain-Juneteenth-Kitchen-Absorbent-Accessories/dp/B0BYJJ984D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Oudain-Juneteenth-Kitchen-Absorbent-Accessories/dp/B0BYJJ984D/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Party Decoration Set](https://www.amazon.com/Meooeck-Juneteenth-Decoration-Backdrop-Disposable/dp/B0BYJ44NBV/?ie=UTF8&tag=avadalove-20) 
+### [24\. Party Decoration Set](https://www.amazon.com/Meooeck-Juneteenth-Decoration-Backdrop-Disposable/dp/B0BYJ44NBV/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Meooeck-Juneteenth-Decoration-Backdrop-Disposable/dp/B0BYJ44NBV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Meooeck-Juneteenth-Decoration-Backdrop-Disposable/dp/B0BYJ44NBV/?ie=UTF8&tag=giftable02-20)
 
 Transform your space into a festive paradise with the Juneteenth Party Decoration Set! This set has everything you need to transform your space into a fun and festive environment.
 
@@ -445,7 +445,7 @@ The balloons are 12 inches in diameter, and the banner is 78 by 18 inches. The b
 
 ✔️ Colorful and eye-catching designs
 
-[Buy from Amazon](https://www.amazon.com/Meooeck-Juneteenth-Decoration-Backdrop-Disposable/dp/B0BYJ44NBV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Meooeck-Juneteenth-Decoration-Backdrop-Disposable/dp/B0BYJ44NBV/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Juneteenth Glass Cup](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1482714167/juneteenth-glass-cup-black-history-blm)
 
@@ -483,9 +483,9 @@ The striking design will undoubtedly stand out and fully celebrate the event. Th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1475436056/juneteenth-party-house-flag-juneteenth)
 
-### [27\. Tote Bag Canvas](https://www.amazon.com/Silkfly-Juneteenth-Shopping-American-Handbags/dp/B0C1B93SWQ/?ie=UTF8&tag=avadalove-20)
+### [27\. Tote Bag Canvas](https://www.amazon.com/Silkfly-Juneteenth-Shopping-American-Handbags/dp/B0C1B93SWQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silkfly-Juneteenth-Shopping-American-Handbags/dp/B0C1B93SWQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silkfly-Juneteenth-Shopping-American-Handbags/dp/B0C1B93SWQ/?ie=UTF8&tag=giftable02-20)
 
 Silkfly's Juneteenth Shopping Tote Bag Canvas is both stylish and supportive of American handcrafts - the perfect addition to any wardrobe.
 
@@ -499,11 +499,11 @@ This canvas tote bag is durable enough to hold more than just your necessities. 
 
 ✔️ Large size fits all your needs
 
-[Buy from Amazon](https://www.amazon.com/Silkfly-Juneteenth-Shopping-American-Handbags/dp/B0C1B93SWQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silkfly-Juneteenth-Shopping-American-Handbags/dp/B0C1B93SWQ/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Goodie Candy Favor Bags](https://www.amazon.com/Juneteenth-Cellophane-American-Festival-Celebration/dp/B0C1YKXQFT/?ie=UTF8&tag=avadalove-20)
+### [28\. Goodie Candy Favor Bags](https://www.amazon.com/Juneteenth-Cellophane-American-Festival-Celebration/dp/B0C1YKXQFT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Cellophane-American-Festival-Celebration/dp/B0C1YKXQFT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Cellophane-American-Festival-Celebration/dp/B0C1YKXQFT/?ie=UTF8&tag=giftable02-20)
 
 Discover the magic of the Goodie Candy Favor Bags and indulge in the sweetness they bring.
 
@@ -517,7 +517,7 @@ These bags, which are around 5 by 7 inches in size, offer enough room for treats
 
 ✔️ Durable cellophane material ensures long-lasting use
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Cellophane-American-Festival-Celebration/dp/B0C1YKXQFT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Cellophane-American-Festival-Celebration/dp/B0C1YKXQFT/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Back Button Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1223512224/juneteenth-black-history-15-pin-back)
 
@@ -537,9 +537,9 @@ With the high-quality pin-back design, your clothing or accessories will be atta
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1223512224/juneteenth-black-history-15-pin-back)
 
-### [30\. Headwear Skull Cap](https://www.amazon.com/Juneteenth-Freedom-Baseball-Adjustable-Sandwich/dp/B0BXGB4RXG/?ie=UTF8&tag=avadalove-20) 
+### [30\. Headwear Skull Cap](https://www.amazon.com/Juneteenth-Freedom-Baseball-Adjustable-Sandwich/dp/B0BXGB4RXG/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Juneteenth-Freedom-Baseball-Adjustable-Sandwich/dp/B0BXGB4RXG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Freedom-Baseball-Adjustable-Sandwich/dp/B0BXGB4RXG/?ie=UTF8&tag=giftable02-20)
 
 Check out this Headwear Skull Cap to show your support for Juneteenth in both style and comfort.
 
@@ -553,7 +553,7 @@ This cap will grab attention thanks to its striking "Juneteenth Freedom" design.
 
 ✔️ Adjustable strap for perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Freedom-Baseball-Adjustable-Sandwich/dp/B0BXGB4RXG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Freedom-Baseball-Adjustable-Sandwich/dp/B0BXGB4RXG/?ie=UTF8&tag=giftable02-20)
 
 ### [31\.  Freedom Posters](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1493317291/set-of-8-juneteenth-history-posters)
 
@@ -573,9 +573,9 @@ These 11x17-inch posters convey the narrative of Juneteenth and its significance
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1493317291/set-of-8-juneteenth-history-posters)
 
-### [32\. Artificial Marigold Flower](https://www.amazon.com/Juneteenth-Decorations-Artificial-Marigold-Independence/dp/B0BXS2FDKW/?ie=UTF8&tag=avadalove-20)
+### [32\. Artificial Marigold Flower](https://www.amazon.com/Juneteenth-Decorations-Artificial-Marigold-Independence/dp/B0BXS2FDKW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Decorations-Artificial-Marigold-Independence/dp/B0BXS2FDKW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Decorations-Artificial-Marigold-Independence/dp/B0BXS2FDKW/?ie=UTF8&tag=giftable02-20)
 
 Capture the essence of Juneteenth with a burst of vibrant beauty using the Artificial Marigold Flower set.
 
@@ -589,7 +589,7 @@ These blossoms, which are around 13 inches long, have a striking visual effect. 
 
 ✔️ Realistic design with meticulous attention to detail
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Decorations-Artificial-Marigold-Independence/dp/B0BXS2FDKW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Decorations-Artificial-Marigold-Independence/dp/B0BXS2FDKW/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Juneteenth Vibes Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1481754695/juneteenth-vibes-shirt-juneteenth-shirt)
 
@@ -609,9 +609,9 @@ This shirt will stand out among the crowd thanks to its striking design and bril
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1481754695/juneteenth-vibes-shirt-juneteenth-shirt)
 
-### [34\. Juneteenth Day Face Mask](https://www.amazon.com/Juneteenth-Breathable-Adjustable-Anti-Dust-Sun-Proof/dp/B094J5TJPW/?ie=UTF8&tag=avadalove-20)
+### [34\. Juneteenth Day Face Mask](https://www.amazon.com/Juneteenth-Breathable-Adjustable-Anti-Dust-Sun-Proof/dp/B094J5TJPW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Juneteenth-Breathable-Adjustable-Anti-Dust-Sun-Proof/dp/B094J5TJPW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Juneteenth-Breathable-Adjustable-Anti-Dust-Sun-Proof/dp/B094J5TJPW/?ie=UTF8&tag=giftable02-20)
 
 For those in need of a face mask that not only guards against dust and the sun but also demonstrates solidarity with Juneteenth, the Juneteenth Day Face Mask is the perfect choice.
 
@@ -625,4 +625,4 @@ You may wear it with confidence knowing that you're making a strong statement th
 
 ✔️ Elegant and meaningful design
 
-[Buy from Amazon](https://www.amazon.com/Juneteenth-Breathable-Adjustable-Anti-Dust-Sun-Proof/dp/B094J5TJPW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Juneteenth-Breathable-Adjustable-Anti-Dust-Sun-Proof/dp/B094J5TJPW/?ie=UTF8&tag=giftable02-20)
