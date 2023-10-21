@@ -17,9 +17,9 @@ Mexican culture is steeped in meaningful traditions that have been passed down t
 
 With a kaleidoscope of colors and the allure of authentic craftsmanship, our Mexican gifts add a touch of magic to every occasion. Whether it's a birthday, **[anniversary](/anniversary/)**, or any special moment, our collection speaks the language of love. Step into the world of Mexicana, where each item holds a treasure trove of emotions, waiting to be cherished by you and your loved ones. Come, explore this captivating assortment, and let the spirit of Mexico infuse your life with joy and warmth.
 
-### [1\. Skinny Tumbler with Straw](https://www.amazon.com/Onebttl-Mexican-Souvenirs-Hispanic-Seamless/dp/B09G66CM4C/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Skinny Tumbler with Straw](https://www.amazon.com/Onebttl-Mexican-Souvenirs-Hispanic-Seamless/dp/B09G66CM4C/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Onebttl-Mexican-Souvenirs-Hispanic-Seamless/dp/B09G66CM4C/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Onebttl-Mexican-Souvenirs-Hispanic-Seamless/dp/B09G66CM4C/?th=1?ie=UTF8&tag=giftable02-20)
 
 Indulge in the vibrant charm of Mexico with the Onebttl Mexican Souvenirs Tumbler with Straw!
 
@@ -33,11 +33,11 @@ With a seamless design and a convenient straw, it ensures a spill-free and enjoy
 
 ✔️ Insulated design keeps beverages at the perfect temperature
 
-[Buy from Amazon](https://www.amazon.com/Onebttl-Mexican-Souvenirs-Hispanic-Seamless/dp/B09G66CM4C/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Onebttl-Mexican-Souvenirs-Hispanic-Seamless/dp/B09G66CM4C/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. Mexican Candy Mix Assortment Snack](https://www.amazon.com/Assortment-Pulparindo-Rellerindo-JVR-TRADE/dp/B08JPGMK2H/?ie=UTF8&tag=avadalove-20)
+### [2\. Mexican Candy Mix Assortment Snack](https://www.amazon.com/Assortment-Pulparindo-Rellerindo-JVR-TRADE/dp/B08JPGMK2H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Assortment-Pulparindo-Rellerindo-JVR-TRADE/dp/B08JPGMK2H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Assortment-Pulparindo-Rellerindo-JVR-TRADE/dp/B08JPGMK2H/?ie=UTF8&tag=giftable02-20)
 
 Embark on a flavorful journey to Mexico with the Assortment of Pulparindo and Rellerindo snacks - a delightful Mexican gift that will tickle your taste buds and warm your heart.
 
@@ -51,11 +51,11 @@ From the tangy and spicy Pulparindo tamarind candy to the lip-smacking Rellerind
 
 ✔️ Variety of flavors to satisfy your cravings
 
-[Buy from Amazon](https://www.amazon.com/Assortment-Pulparindo-Rellerindo-JVR-TRADE/dp/B08JPGMK2H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Assortment-Pulparindo-Rellerindo-JVR-TRADE/dp/B08JPGMK2H/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Mini Mexican Tote Favor Bags](https://www.amazon.com/Aytai-Mexican-Colorful-Decorations-Supplies/dp/B07N3RZWYQ?ie=UTF8&tag=avadalove-20)
+### [3\. Mini Mexican Tote Favor Bags](https://www.amazon.com/Aytai-Mexican-Colorful-Decorations-Supplies/dp/B07N3RZWYQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Aytai-Mexican-Colorful-Decorations-Supplies/dp/B07N3RZWYQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Aytai-Mexican-Colorful-Decorations-Supplies/dp/B07N3RZWYQ?ie=UTF8&tag=giftable02-20)
 
 Unleash the fiesta spirit with the Aytai Mexican Favor Bags - a kaleidoscope of colors and emotions that will turn any event into an unforgettable celebration.
 
@@ -69,11 +69,11 @@ Each pack includes 10 Mexican-inspired favor bags, meticulously crafted with lov
 
 ✔️ Perfect size for holding party favors and gifts
 
-[Buy from Amazon](https://www.amazon.com/Aytai-Mexican-Colorful-Decorations-Supplies/dp/B07N3RZWYQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Aytai-Mexican-Colorful-Decorations-Supplies/dp/B07N3RZWYQ?ie=UTF8&tag=giftable02-20)
 
-### [4\. Tortilla Warmer](https://www.amazon.com/Tortilla-Insulated-Microwaveable-Occasions-ENdeas/dp/B07CPMNTN2/?ie=UTF8&tag=avadalove-20)
+### [4\. Tortilla Warmer](https://www.amazon.com/Tortilla-Insulated-Microwaveable-Occasions-ENdeas/dp/B07CPMNTN2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tortilla-Insulated-Microwaveable-Occasions-ENdeas/dp/B07CPMNTN2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tortilla-Insulated-Microwaveable-Occasions-ENdeas/dp/B07CPMNTN2/?ie=UTF8&tag=giftable02-20)
 
 Wrap your loved ones in the warm embrace of tradition with the ENdeas Tortilla Warmer - a thoughtful Mexican gift that adds a touch of nostalgia to every mealtime.
 
@@ -87,11 +87,11 @@ This insulated tortilla warmer is a must-have addition to your kitchen, designed
 
 ✔️ Microwaveable for easy and quick heating
 
-[Buy from Amazon](https://www.amazon.com/Tortilla-Insulated-Microwaveable-Occasions-ENdeas/dp/B07CPMNTN2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tortilla-Insulated-Microwaveable-Occasions-ENdeas/dp/B07CPMNTN2/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Authentic Mexican Blanket](https://www.amazon.com/Mexican-Blanket-Authentic-Yoga-Blankets/dp/B072LV1Q9X/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Authentic Mexican Blanket](https://www.amazon.com/Mexican-Blanket-Authentic-Yoga-Blankets/dp/B072LV1Q9X/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mexican-Blanket-Authentic-Yoga-Blankets/dp/B072LV1Q9X/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mexican-Blanket-Authentic-Yoga-Blankets/dp/B072LV1Q9X/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embrace the spirit of Mexico and bask in the comfort of serenity with the Authentic Mexican Blanket - a gift that wraps your loved ones in a warm hug of tranquility.
 
@@ -105,11 +105,11 @@ Made from a blend of soft acrylic, cotton, and polyester materials, it offers a 
 
 ✔️ Adds a touch of Mexican culture to your surroundings
 
-[Buy from Amazon](https://www.amazon.com/Mexican-Blanket-Authentic-Yoga-Blankets/dp/B072LV1Q9X/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mexican-Blanket-Authentic-Yoga-Blankets/dp/B072LV1Q9X/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. Women’s Traditional Scarf](https://www.amazon.com/Gudessly-Traditional-Ukrainian-Tassel-Fringes/dp/B07ZPQ7Z3T/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. Women’s Traditional Scarf](https://www.amazon.com/Gudessly-Traditional-Ukrainian-Tassel-Fringes/dp/B07ZPQ7Z3T/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gudessly-Traditional-Ukrainian-Tassel-Fringes/dp/B07ZPQ7Z3T/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gudessly-Traditional-Ukrainian-Tassel-Fringes/dp/B07ZPQ7Z3T/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embrace the artistry of cultural fusion with the Gudessly Traditional Scarf - a mesmerizing blend of Ukrainian charm and Mexican spirit that will captivate your beloved's heart.
 
@@ -123,7 +123,7 @@ Made from high-quality materials, including cotton and viscose, it offers a soft
 
 ✔️ A meaningful gift reflecting cultural diversity
 
-[Buy from Amazon](https://www.amazon.com/Gudessly-Traditional-Ukrainian-Tassel-Fringes/dp/B07ZPQ7Z3T/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gudessly-Traditional-Ukrainian-Tassel-Fringes/dp/B07ZPQ7Z3T/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Mexican Servilletas – Set of 4](https://www.uncommongoods.com/product/mexican-servilletas-set-of-4)
 
@@ -161,9 +161,9 @@ These huaraches are a true embodiment of craftsmanship, made from high-quality l
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/840589340/mexican-leather-huaraches-authentic)
 
-### [9\. Cantaritos de Barro Cocktail Kit](https://www.amazon.com/Cantaritos-Verve-CULTURE-Traditional-Artisanal/dp/B08NCZ6SGT/?ie=UTF8&tag=avadalove-20) 
+### [9\. Cantaritos de Barro Cocktail Kit](https://www.amazon.com/Cantaritos-Verve-CULTURE-Traditional-Artisanal/dp/B08NCZ6SGT/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Cantaritos-Verve-CULTURE-Traditional-Artisanal/dp/B08NCZ6SGT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cantaritos-Verve-CULTURE-Traditional-Artisanal/dp/B08NCZ6SGT/?ie=UTF8&tag=giftable02-20)
 
 Encourage your loved ones to unleash their creativity and concoct delicious cocktails with a touch of Mexican flair, spreading happiness and raising their spirits.
 
@@ -177,11 +177,11 @@ The kit also includes a hand juicer to effortlessly extract the freshest flavors
 
 ✔️ Perfect size for serving your favorite drinks
 
-[Buy from Amazon](https://www.amazon.com/Cantaritos-Verve-CULTURE-Traditional-Artisanal/dp/B08NCZ6SGT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cantaritos-Verve-CULTURE-Traditional-Artisanal/dp/B08NCZ6SGT/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Talavera Shot Glasses Set](https://www.amazon.com/ECONIA-Authentic-Artisanal-hand-painted-Tequilero/dp/B08F9Q58XG/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Talavera Shot Glasses Set](https://www.amazon.com/ECONIA-Authentic-Artisanal-hand-painted-Tequilero/dp/B08F9Q58XG/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ECONIA-Authentic-Artisanal-hand-painted-Tequilero/dp/B08F9Q58XG/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ECONIA-Authentic-Artisanal-hand-painted-Tequilero/dp/B08F9Q58XG/?th=1?ie=UTF8&tag=giftable02-20)
 
 Share the joy of laughter and camaraderie with your loved ones as you clink these exquisite glasses, making every moment a celebration of life and love.
 
@@ -195,11 +195,11 @@ Made from high-quality, lead-free glass, these tequilero-style glasses exude aut
 
 ✔️ Perfect size for serving shots of tequila
 
-[Buy from Amazon](https://www.amazon.com/ECONIA-Authentic-Artisanal-hand-painted-Tequilero/dp/B08F9Q58XG/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ECONIA-Authentic-Artisanal-hand-painted-Tequilero/dp/B08F9Q58XG/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [11\. Conchas Pan Dulce Pillow](https://www.amazon.com/SOMOMEX-Concha-Pillow-Almohada-Seashell/dp/B0BZXTNCFN/?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. Conchas Pan Dulce Pillow](https://www.amazon.com/SOMOMEX-Concha-Pillow-Almohada-Seashell/dp/B0BZXTNCFN/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SOMOMEX-Concha-Pillow-Almohada-Seashell/dp/B0BZXTNCFN/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SOMOMEX-Concha-Pillow-Almohada-Seashell/dp/B0BZXTNCFN/?th=1?ie=UTF8&tag=giftable02-20)
 
 Let the softness of the pillow and the seashell-inspired design lull your loved ones into a peaceful sleep, filling their dreams with the vibrant colors and flavors of Mexico.
 
@@ -213,7 +213,7 @@ Measuring approximately 17 x 12 inches, it's the perfect size to cradle your hea
 
 ✔️ Playful concha design adds a touch of sweetness
 
-[Buy from Amazon](https://www.amazon.com/SOMOMEX-Concha-Pillow-Almohada-Seashell/dp/B0BZXTNCFN/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SOMOMEX-Concha-Pillow-Almohada-Seashell/dp/B0BZXTNCFN/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Wedding Favor Bowls](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/672085928/wedding-favor-bowls-christening-gift)
 
@@ -233,9 +233,9 @@ Made from high-quality materials, they ensure durability and elegance. Each bowl
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/672085928/wedding-favor-bowls-christening-gift)
 
-### [13\. Frida Dangle Earrings](https://www.amazon.com/Frida-Dangle-Earrings-Handmade-Teenagers/dp/B08GK9ZST3/?ie=UTF8&tag=avadalove-20)
+### [13\. Frida Dangle Earrings](https://www.amazon.com/Frida-Dangle-Earrings-Handmade-Teenagers/dp/B08GK9ZST3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Frida-Dangle-Earrings-Handmade-Teenagers/dp/B08GK9ZST3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Frida-Dangle-Earrings-Handmade-Teenagers/dp/B08GK9ZST3/?ie=UTF8&tag=giftable02-20)
 
 Adorn your ears with the mesmerizing beauty of Frida Dangle Earrings - a gift that allows your beloved to embrace their inner artist and carry a piece of Mexican artistry with them wherever they go.
 
@@ -249,7 +249,7 @@ Made from high-quality materials, including alloy and resin, they ensure durabil
 
 ✔️ A wearable piece of art inspired by Mexican heritage
 
-[Buy from Amazon](https://www.amazon.com/Frida-Dangle-Earrings-Handmade-Teenagers/dp/B08GK9ZST3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Frida-Dangle-Earrings-Handmade-Teenagers/dp/B08GK9ZST3/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Traditional Mexican Hot Chocolate Set](https://www.uncommongoods.com/product/traditional-mexican-hot-chocolate-set)
 
@@ -269,9 +269,9 @@ The set includes Oaxacan chocolate tablets, made from premium cacao beans, and a
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/traditional-mexican-hot-chocolate-set)
 
-### [15\. Double-Sided Embroidery Totes Bag](https://www.amazon.com/Double-Sided-Embroidery-Travel-Vintage-Shoulder/dp/B07ZV32VRZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Double-Sided Embroidery Totes Bag](https://www.amazon.com/Double-Sided-Embroidery-Travel-Vintage-Shoulder/dp/B07ZV32VRZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Double-Sided-Embroidery-Travel-Vintage-Shoulder/dp/B07ZV32VRZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Double-Sided-Embroidery-Travel-Vintage-Shoulder/dp/B07ZV32VRZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embark on a stylish journey with the Double-Sided Embroidery Tote Bag - a gift that lets your beloved carry a piece of Mexican culture wherever they go, embracing the spirit of wanderlust and adventure.
 
@@ -285,11 +285,11 @@ The bag measures approximately 15.7 x 15.7 inches, providing ample space for all
 
 ✔️ Double-sided design for versatile looks
 
-[Buy from Amazon](https://www.amazon.com/Double-Sided-Embroidery-Travel-Vintage-Shoulder/dp/B07ZV32VRZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Double-Sided-Embroidery-Travel-Vintage-Shoulder/dp/B07ZV32VRZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. If You Can Read This Bring Me Tacos Socks](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07H8XMWFR/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+### [16\. If You Can Read This Bring Me Tacos Socks](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07H8XMWFR/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07H8XMWFR/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07H8XMWFR/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 Step into a world of whimsy and joy with the Zmart Elephant Socks - a gift that will tickle your beloved's toes and infuse their every step with laughter and delight.
 
@@ -303,7 +303,7 @@ The socks come in a pack of five, each featuring a unique and charming elephant 
 
 ✔️ Pack of five socks for variety
 
-[Buy from Amazon](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07H8XMWFR/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07H8XMWFR/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Set of 6 Handmade Mexico Mugs](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1131117337/set-of-6-handmade-mexico-mugs-talavera)
 
@@ -323,9 +323,9 @@ Made from high-quality ceramics, each mug measures approximately 4.3 inches in h
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1131117337/set-of-6-handmade-mexico-mugs-talavera)
 
-### [18\. Taza Chocolate Organic Mexicano Disc Stone Ground](https://www.amazon.com/Chocolate-Mexicano-Variety-Certified-Organic/dp/B0088OSAZ2/?th=1?ie=UTF8&tag=avadalove-20)
+### [18\. Taza Chocolate Organic Mexicano Disc Stone Ground](https://www.amazon.com/Chocolate-Mexicano-Variety-Certified-Organic/dp/B0088OSAZ2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chocolate-Mexicano-Variety-Certified-Organic/dp/B0088OSAZ2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chocolate-Mexicano-Variety-Certified-Organic/dp/B0088OSAZ2/?th=1?ie=UTF8&tag=giftable02-20)
 
 These certified organic chocolates are not just treats; they are a divine indulgence that brings comfort and bliss.
 
@@ -339,11 +339,11 @@ Each disk measures approximately 2.7 inches in diameter, offering the perfect si
 
 ✔️ Perfect size for a satisfying chocolate treat
 
-[Buy from Amazon](https://www.amazon.com/Chocolate-Mexicano-Variety-Certified-Organic/dp/B0088OSAZ2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Chocolate-Mexicano-Variety-Certified-Organic/dp/B0088OSAZ2/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. Absorbent Ceramic Coasters](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=avadalove-20)
+### [19\. Absorbent Ceramic Coasters](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=giftable02-20)
 
 Embrace the joy of hosting friends and family with these heat-resistant coasters that absorb condensation and spills, ensuring your table stays spotless and your guests feel at home.
 
@@ -357,7 +357,7 @@ The coasters come in a set of six, each featuring a beautiful Mexican-inspired d
 
 ✔️ Mexican-inspired designs add a touch of culture
 
-[Buy from Amazon](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Mexican Talavera Travel Mug](https://www.uncommongoods.com/product/mexican-talavera-travel-mug)
 
@@ -377,9 +377,9 @@ Made from ceramic with a silicone lid, it ensures your drinks stay hot and spill
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/mexican-talavera-travel-mug)
 
-### [21\. Mexican Placemats Set of 4](https://www.amazon.com/Placemats-Colorful-Pheasant-Resistant-Non-Slip/dp/B08T7BHNC6/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Mexican Placemats Set of 4](https://www.amazon.com/Placemats-Colorful-Pheasant-Resistant-Non-Slip/dp/B08T7BHNC6/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Placemats-Colorful-Pheasant-Resistant-Non-Slip/dp/B08T7BHNC6/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Placemats-Colorful-Pheasant-Resistant-Non-Slip/dp/B08T7BHNC6/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your dining experience with the Colorful Pheasant Placemats - a gift that transforms mealtime into a vibrant and joyful celebration of Mexican culture.
 
@@ -393,11 +393,11 @@ This set of placemats is a true gem, heat-resistant materials to protect your ta
 
 ✔️ Colorful pheasant design adds a touch of charm
 
-[Buy from Amazon](https://www.amazon.com/Placemats-Colorful-Pheasant-Resistant-Non-Slip/dp/B08T7BHNC6/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Placemats-Colorful-Pheasant-Resistant-Non-Slip/dp/B08T7BHNC6/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [22\. Hola Bitchachos Shirt](https://www.amazon.com/Bitchachos-Shirt-Funny-Mexican-T-Shirt/dp/B09WQX4X4P/?ie=UTF8&tag=avadalove-20)
+### [22\. Hola Bitchachos Shirt](https://www.amazon.com/Bitchachos-Shirt-Funny-Mexican-T-Shirt/dp/B09WQX4X4P/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bitchachos-Shirt-Funny-Mexican-T-Shirt/dp/B09WQX4X4P/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bitchachos-Shirt-Funny-Mexican-T-Shirt/dp/B09WQX4X4P/?ie=UTF8&tag=giftable02-20)
 
 Embrace the spirit of humor and camaraderie with the Bitchachos Shirt - a gift that will make your beloved burst into laughter and wear their Mexican pride with a cheeky twist.
 
@@ -411,11 +411,11 @@ It comes in various sizes, providing a perfect fit for everyone. The creative de
 
 ✔️ Ideal gift for any occasion, sparking conversations
 
-[Buy from Amazon](https://www.amazon.com/Bitchachos-Shirt-Funny-Mexican-T-Shirt/dp/B09WQX4X4P/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bitchachos-Shirt-Funny-Mexican-T-Shirt/dp/B09WQX4X4P/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Mexican Train Dominoes Set](https://www.amazon.com/Cardinal-Mexican-Train-Domino-Aluminum/dp/B000EULZDM/?ie=UTF8&tag=avadalove-20)
+### [23\. Mexican Train Dominoes Set](https://www.amazon.com/Cardinal-Mexican-Train-Domino-Aluminum/dp/B000EULZDM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cardinal-Mexican-Train-Domino-Aluminum/dp/B000EULZDM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cardinal-Mexican-Train-Domino-Aluminum/dp/B000EULZDM/?ie=UTF8&tag=giftable02-20)
 
 Unleash the thrill of competition and the joy of togetherness with the Cardinal Mexican Train Domino Set - a gift that will ignite your beloved's passion for games and create lasting memories of fun-filled Mexican gatherings.
 
@@ -429,7 +429,7 @@ The set includes 91 color-coded domino tiles, featuring vibrant dots that showca
 
 ✔️ Versatile set for multiple domino games
 
-[Buy from Amazon](https://www.amazon.com/Cardinal-Mexican-Train-Domino-Aluminum/dp/B000EULZDM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cardinal-Mexican-Train-Domino-Aluminum/dp/B000EULZDM/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Talavera Tile Art Cutting Board](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/960554998/talavera-tile-art-cutting-board-spain)
 
@@ -449,9 +449,9 @@ The board measures approximately 13.8 x 9.8 inches, providing ample space for al
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/960554998/talavera-tile-art-cutting-board-spain)
 
-### [25\. Sour Dulces Mexicanos Assortment Pack](https://www.amazon.com/Las-Posadas-Mexican-Assortment-Counts/dp/B094NQXDLH/?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Sour Dulces Mexicanos Assortment Pack](https://www.amazon.com/Las-Posadas-Mexican-Assortment-Counts/dp/B094NQXDLH/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Las-Posadas-Mexican-Assortment-Counts/dp/B094NQXDLH/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Las-Posadas-Mexican-Assortment-Counts/dp/B094NQXDLH/?th=1?ie=UTF8&tag=giftable02-20)
 
 Experience the magic of Las Posadas and delight your beloved with the Las Posadas Mexican Assortment Pack - a gift that brings the festive spirit of Mexican traditions right to your doorstep.
 
@@ -465,11 +465,11 @@ With carefully selected products, this assortment pack is a perfect way to intro
 
 ✔️ Experience the festive spirit of Las Posadas
 
-[Buy from Amazon](https://www.amazon.com/Las-Posadas-Mexican-Assortment-Counts/dp/B094NQXDLH/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Las-Posadas-Mexican-Assortment-Counts/dp/B094NQXDLH/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Global Hot Sauce Gift Set](https://www.amazon.com/Hot-Sauces-Go-Including-Habanero/dp/B07F2NNF64/r?ie=UTF8&tag=avadalove-20)
+### [26\. Global Hot Sauce Gift Set](https://www.amazon.com/Hot-Sauces-Go-Including-Habanero/dp/B07F2NNF64/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hot-Sauces-Go-Including-Habanero/dp/B07F2NNF64/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hot-Sauces-Go-Including-Habanero/dp/B07F2NNF64/r?ie=UTF8&tag=giftable02-20)
 
 Ignite the fire of flavor and spice up your loved ones' culinary journey with the Hot Sauces To Go Set - a gift that will awaken their taste buds and transport them to the heart of Mexican gastronomy.
 
@@ -483,11 +483,11 @@ Each sauce is carefully crafted with the finest ingredients to ensure a mouthwat
 
 ✔️ Unleash the bold and unforgettable taste of Mexico
 
-[Buy from Amazon](https://www.amazon.com/Hot-Sauces-Go-Including-Habanero/dp/B07F2NNF64/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hot-Sauces-Go-Including-Habanero/dp/B07F2NNF64/r?ie=UTF8&tag=giftable02-20)
 
-### [27\. Vintage Embroidered Women Backpack](https://www.amazon.com/Goodhan-Vintage-Embroidery-Backpack-Shoulder/dp/B06XRPXC1X/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Vintage Embroidered Women Backpack](https://www.amazon.com/Goodhan-Vintage-Embroidery-Backpack-Shoulder/dp/B06XRPXC1X/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Goodhan-Vintage-Embroidery-Backpack-Shoulder/dp/B06XRPXC1X/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Goodhan-Vintage-Embroidery-Backpack-Shoulder/dp/B06XRPXC1X/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embark on a journey of style and cultural vibrancy with the Goodhan Vintage Embroidery Backpack - a gift that seamlessly combines fashion and the spirit of Mexico to create a statement accessory that your beloved will cherish.
 
@@ -501,7 +501,7 @@ The backpack is crafted with high-quality canvas material, ensuring durability a
 
 ✔️ Adjustable shoulder straps for a customizable fit
 
-[Buy from Amazon](https://www.amazon.com/Goodhan-Vintage-Embroidery-Backpack-Shoulder/dp/B06XRPXC1X/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Goodhan-Vintage-Embroidery-Backpack-Shoulder/dp/B06XRPXC1X/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Mexican Embroidery Apron](https://www.uncommongoods.com/product/mexican-embroidery-apron)
 
@@ -521,9 +521,9 @@ With its adjustable neck and waist ties, it provides a comfortable fit for all c
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/mexican-embroidery-apron)
 
-### [29\. Vintage Ethnic Floral Fabric Coasters](https://www.amazon.com/Ambielly-Coasters-Drinks-Vintage-Ethnic/dp/B01CXYXUIE/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Vintage Ethnic Floral Fabric Coasters](https://www.amazon.com/Ambielly-Coasters-Drinks-Vintage-Ethnic/dp/B01CXYXUIE/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ambielly-Coasters-Drinks-Vintage-Ethnic/dp/B01CXYXUIE/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ambielly-Coasters-Drinks-Vintage-Ethnic/dp/B01CXYXUIE/?th=1?ie=UTF8&tag=giftable02-20)
 
 Gift this delightful set of Mexican-inspired coasters to your loved ones, and let them experience the joy of sharing drinks with a cultural twist.
 
@@ -537,11 +537,11 @@ Made from high-quality materials, they are both functional and decorative. Each 
 
 ✔️ Approximately 10 cm in diameter to accommodate drinkware
 
-[Buy from Amazon](https://www.amazon.com/Ambielly-Coasters-Drinks-Vintage-Ethnic/dp/B01CXYXUIE/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ambielly-Coasters-Drinks-Vintage-Ethnic/dp/B01CXYXUIE/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Servilleta Mexican Napkins](https://www.amazon.com/Verve-CULTURE-Servilletas-Traditional-Decorative/dp/B09N5DHZFR/?ie=UTF8&tag=avadalove-20)
+### [30\. Servilleta Mexican Napkins](https://www.amazon.com/Verve-CULTURE-Servilletas-Traditional-Decorative/dp/B09N5DHZFR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Verve-CULTURE-Servilletas-Traditional-Decorative/dp/B09N5DHZFR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Verve-CULTURE-Servilletas-Traditional-Decorative/dp/B09N5DHZFR/?ie=UTF8&tag=giftable02-20)
 
 Enhance your dining experience with the Verve CULTURE Servilletas - a set of traditional Mexican napskins that bring warmth and authenticity to every meal.
 
@@ -555,7 +555,7 @@ Each napskin measures approximately 18" x 18", providing ample coverage for your
 
 ✔️ Set of four, perfect for gatherings and occasions
 
-[Buy from Amazon](https://www.amazon.com/Verve-CULTURE-Servilletas-Traditional-Decorative/dp/B09N5DHZFR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Verve-CULTURE-Servilletas-Traditional-Decorative/dp/B09N5DHZFR/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Mexican Woven Table Runner](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/615101931/mexican-woven-table-runnerboho-table)
 
@@ -575,9 +575,9 @@ This Mexican-inspired table runner is made from premium-quality materials, ensur
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/615101931/mexican-woven-table-runnerboho-table)
 
-### [32\. Flannel Sherpa Throw](https://www.amazon.com/Ukeler-Flannel-Bohemian-Blanket-Camping/dp/B07GNGZCBR/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Flannel Sherpa Throw](https://www.amazon.com/Ukeler-Flannel-Bohemian-Blanket-Camping/dp/B07GNGZCBR/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ukeler-Flannel-Bohemian-Blanket-Camping/dp/B07GNGZCBR/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ukeler-Flannel-Bohemian-Blanket-Camping/dp/B07GNGZCBR/?th=1?ie=UTF8&tag=giftable02-20)
 
 Wrap yourself in the warm embrace of the Ukeler Flannel Bohemian Throw, where comfort meets culture in the coziest way possible!
 
@@ -591,11 +591,11 @@ With measurements of approximately 59" x 79", this generously-sized throw is per
 
 ✔️ Adds Mexican charm and cultural flair to any space
 
-[Buy from Amazon](https://www.amazon.com/Ukeler-Flannel-Bohemian-Blanket-Camping/dp/B07GNGZCBR/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ukeler-Flannel-Bohemian-Blanket-Camping/dp/B07GNGZCBR/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Pack Mini Drawstring Gift Bag](https://www.amazon.com/jianxun-Drawstring-3-9x5-5inch-Mexican-Decorations/dp/B097R6TH26/?ie=UTF8&tag=avadalove-20)
+### [33\. Pack Mini Drawstring Gift Bag](https://www.amazon.com/jianxun-Drawstring-3-9x5-5inch-Mexican-Decorations/dp/B097R6TH26/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/jianxun-Drawstring-3-9x5-5inch-Mexican-Decorations/dp/B097R6TH26/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/jianxun-Drawstring-3-9x5-5inch-Mexican-Decorations/dp/B097R6TH26/?ie=UTF8&tag=giftable02-20)
 
 Carry your dreams, wrapped in the colors of Mexico, with the Jianxun Mexican Drawstring Bag - a delightful gift that speaks the language of love and adventure.
 
@@ -609,11 +609,11 @@ The Jianxun Mexican Drawstring Bag boasts a compact and versatile design, measur
 
 ✔️ Crafted from premium materials for durability and comfort
 
-[Buy from Amazon](https://www.amazon.com/jianxun-Drawstring-3-9x5-5inch-Mexican-Decorations/dp/B097R6TH26/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/jianxun-Drawstring-3-9x5-5inch-Mexican-Decorations/dp/B097R6TH26/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Women’s Novelty Taco Donut Tea Socks](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07RDF4DRF/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+### [34\. Women’s Novelty Taco Donut Tea Socks](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07RDF4DRF/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07RDF4DRF/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07RDF4DRF/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 In the hustle and bustle of life, keep your dreams cozy and your feet full of charm with the Zmart Mexican Socks Bag - a delightful gift that brings joy and warmth to your loved ones.
 
@@ -627,7 +627,7 @@ Measuring approximately 8.3x4.7 inches, it is the perfect size to store and orga
 
 ✔️ High-quality materials ensure durability and protection
 
-[Buy from Amazon](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07RDF4DRF/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Zmart-Stocking-Stuffers-Elephant-Secret/dp/B07RDF4DRF/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Mexican Basket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1241515900/mexican-handwoven-market-bags-mexican)
 

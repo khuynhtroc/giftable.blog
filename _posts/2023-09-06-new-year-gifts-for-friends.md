@@ -143,9 +143,9 @@ With 52 thank you cards—one for each week of the year—they'll discover the j
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/a-year-of-gratitude/215260000001)
 
-### [8\. Women’s Ansley Slipper](https://www.amazon.com/UGG-Ansley-Slipper-Chestnut-Size/dp/B083RTXRY1/?ie=UTF8&tag=avadalove-20)
+### [8\. Women’s Ansley Slipper](https://www.amazon.com/UGG-Ansley-Slipper-Chestnut-Size/dp/B083RTXRY1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/UGG-Ansley-Slipper-Chestnut-Size/dp/B083RTXRY1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/UGG-Ansley-Slipper-Chestnut-Size/dp/B083RTXRY1/?ie=UTF8&tag=giftable02-20)
 
 Treat your friends to the Women's Ansley Slipper and bring smiles and comfort to their New Year celebrations!
 
@@ -159,11 +159,11 @@ For those in between sizes, it is recommended to order 1/2 size up for a perfect
 
 ✔️ Premium leather construction for durability
 
-[Buy from Amazon](https://www.amazon.com/UGG-Ansley-Slipper-Chestnut-Size/dp/B083RTXRY1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/UGG-Ansley-Slipper-Chestnut-Size/dp/B083RTXRY1/?ie=UTF8&tag=giftable02-20)
 
-### [9\. 8 Pack Shower Tablets](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=avadalove-20)
+### [9\. 8 Pack Shower Tablets](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=giftable02-20)
 
 This New Year, give the gift of relaxation and rejuvenation to your friends with our 8 Pack Shower Tablets. Treat your loved ones to the ultimate indulgence with these shower tablets that promise to elevate every bathing experience.
 
@@ -177,11 +177,11 @@ The tablets contain double the pure essential oils, guaranteeing long-lasting fr
 
 ✔️ No Clogging or Breakage
 
-[Buy from Amazon](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Frined Themed Trinket Dish](https://www.amazon.com/PUDDING-CABIN-Co-workers-Graduation-Friendship/dp/B09GV28X8H/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Frined Themed Trinket Dish](https://www.amazon.com/PUDDING-CABIN-Co-workers-Graduation-Friendship/dp/B09GV28X8H/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PUDDING-CABIN-Co-workers-Graduation-Friendship/dp/B09GV28X8H/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PUDDING-CABIN-Co-workers-Graduation-Friendship/dp/B09GV28X8H/?th=1?ie=UTF8&tag=giftable02-20)
 
 Celebrate the spirit of friendship on this New Year occasion with our Frined Themed Trinket Dish. It's the perfect gift for your sister, best friends, or mother, expressing your unwavering bond and love.
 
@@ -195,7 +195,7 @@ Measuring 5.51"L x 5.51"W x 0.59"H, its square shape offers ample space to store
 
 ✔️ Versatile gift option for various types of friends and occasions
 
-[Buy from Amazon](https://www.amazon.com/PUDDING-CABIN-Co-workers-Graduation-Friendship/dp/B09GV28X8H/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PUDDING-CABIN-Co-workers-Graduation-Friendship/dp/B09GV28X8H/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Habit Tracking Calendar](https://www.uncommongoods.com/product/habit-tracking-calendar)
 
@@ -215,9 +215,9 @@ With space for six intentions and a unique spiral-shaped daily progress log, thi
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/habit-tracking-calendar)
 
-### [12\. Flower Bouquet Building Kit](https://www.amazon.com/QARULUS-Botanical-Collection-Christmas-Girlfriend/dp/B09Y1P9XV4/?th=1?ie=UTF8&tag=avadalove-20) 
+### [12\. Flower Bouquet Building Kit](https://www.amazon.com/QARULUS-Botanical-Collection-Christmas-Girlfriend/dp/B09Y1P9XV4/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/QARULUS-Botanical-Collection-Christmas-Girlfriend/dp/B09Y1P9XV4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/QARULUS-Botanical-Collection-Christmas-Girlfriend/dp/B09Y1P9XV4/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Flower Bouquet Building Kit is a delightful gift that brings joy and creativity to your friends' New Year celebrations. With this kit, they can craft personalized floral arrangements.
 
@@ -231,11 +231,11 @@ Crafted from high-quality ABS plastic mini bricks, this beautifully packaged kit
 
 ✔️ Easy and enjoyable building experience
 
-[Buy from Amazon](https://www.amazon.com/QARULUS-Botanical-Collection-Christmas-Girlfriend/dp/B09Y1P9XV4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/QARULUS-Botanical-Collection-Christmas-Girlfriend/dp/B09Y1P9XV4/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Washed Insulated Active Jacket](https://www.amazon.com/Carhartt-Active-Jacket-Regular-2X-Large/dp/B07S18ZWX6/?ie=UTF8&tag=avadalove-20)
+### [13\. Washed Insulated Active Jacket](https://www.amazon.com/Carhartt-Active-Jacket-Regular-2X-Large/dp/B07S18ZWX6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Carhartt-Active-Jacket-Regular-2X-Large/dp/B07S18ZWX6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Carhartt-Active-Jacket-Regular-2X-Large/dp/B07S18ZWX6/?ie=UTF8&tag=giftable02-20)
 
 Surprise your friends with a gift that not only keeps them warm during winter but also helps them take on any tough challenges that come their way. This Washed Insulated Active Jacket is the perfect blend of comfort, functionality, and style.
 
@@ -249,7 +249,7 @@ With elbow pleats for ease of movement and multiple pockets for convenient stora
 
 ✔️ Featherless insulation offers lightweight warmth
 
-[Buy from Amazon](https://www.amazon.com/Carhartt-Active-Jacket-Regular-2X-Large/dp/B07S18ZWX6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Carhartt-Active-Jacket-Regular-2X-Large/dp/B07S18ZWX6/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Personalized Wooden Wine Trough](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1304360058/housewarming-gift-new-home-gift-closing)
 
@@ -269,9 +269,9 @@ With a generous 5-gallon capacity, it elegantly showcases a variety of wine and 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1304360058/housewarming-gift-new-home-gift-closing)
 
-### [15\. Unique Ladies Gifts Set](https://www.amazon.com/Homzing-Friend-Birthday-Unique-Daughter/dp/B0BKSM8Q9W/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Unique Ladies Gifts Set](https://www.amazon.com/Homzing-Friend-Birthday-Unique-Daughter/dp/B0BKSM8Q9W/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homzing-Friend-Birthday-Unique-Daughter/dp/B0BKSM8Q9W/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homzing-Friend-Birthday-Unique-Daughter/dp/B0BKSM8Q9W/?th=1?ie=UTF8&tag=giftable02-20)
 
 Show your affection with these carefully chosen presents, as each item stands alone as a wonderful gift. The handmade design exudes elegance and charm, making it a unique and heartwarming gesture for your special lady or friend.
 
@@ -285,7 +285,7 @@ This thoughtfully curated gift box contains a delicate jewelry plate, a 12oz sta
 
 ✔️ Thoughtfully curated selection
 
-[Buy from Amazon](https://www.amazon.com/Homzing-Friend-Birthday-Unique-Daughter/dp/B0BKSM8Q9W/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homzing-Friend-Birthday-Unique-Daughter/dp/B0BKSM8Q9W/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Quiet Courage Necklace](https://www.uncommongoods.com/product/quiet-courage-necklace)
 
@@ -323,9 +323,9 @@ The Thinking of You Bouquet stands tall at 10.25 inches and measures 7.5 inches 
 
 [Buy from Lovepop](https://www.lovepop.com/products/thinking-of-you-bouquet)
 
-### [18\. Bestie Stemless Wine Glass](https://www.amazon.com/Cheers-Beautiful-Bestie-Stemless-Glass/dp/B07MYRVBY4/?ie=UTF8&tag=avadalove-20)
+### [18\. Bestie Stemless Wine Glass](https://www.amazon.com/Cheers-Beautiful-Bestie-Stemless-Glass/dp/B07MYRVBY4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cheers-Beautiful-Bestie-Stemless-Glass/dp/B07MYRVBY4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cheers-Beautiful-Bestie-Stemless-Glass/dp/B07MYRVBY4/?ie=UTF8&tag=giftable02-20)
 
 This New Year, show your appreciation for your best friend with the perfect gift - the Bestie Stemless Wine Glass. It is more than just a heartfelt message; it's a practical and elegant solution for your best friend's wine enjoyment.
 
@@ -339,11 +339,11 @@ Celebrate your friendship with its heartfelt message, "Cheers My Beautiful Besti
 
 ✔️ Perfect for wines, cocktails, and more
 
-[Buy from Amazon](https://www.amazon.com/Cheers-Beautiful-Bestie-Stemless-Glass/dp/B07MYRVBY4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cheers-Beautiful-Bestie-Stemless-Glass/dp/B07MYRVBY4/?ie=UTF8&tag=giftable02-20)
 
-### [19\. 3D Illusion Lamp](https://www.amazon.com/Lightzz-Birthday-Friendship-Inspiration-Colleagues/dp/B0BVZ5FBD7/?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. 3D Illusion Lamp](https://www.amazon.com/Lightzz-Birthday-Friendship-Inspiration-Colleagues/dp/B0BVZ5FBD7/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lightzz-Birthday-Friendship-Inspiration-Colleagues/dp/B0BVZ5FBD7/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lightzz-Birthday-Friendship-Inspiration-Colleagues/dp/B0BVZ5FBD7/?th=1?ie=UTF8&tag=giftable02-20)
 
 This enchanting 3D Illusion Lamp holds the key to a brighter and happier day for your friend. Its inspiring message acts as a constant source of motivation, reminding her of her inherent awesomeness.
 
@@ -357,11 +357,11 @@ Engraved with the empowering message, "Sometimes you forget you are awesome, so 
 
 ✔️ Mesmerizing 3D visual illusions
 
-[Buy from Amazon](https://www.amazon.com/Lightzz-Birthday-Friendship-Inspiration-Colleagues/dp/B0BVZ5FBD7/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lightzz-Birthday-Friendship-Inspiration-Colleagues/dp/B0BVZ5FBD7/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. Jewelry Dish Friendship Gifts](https://www.amazon.com/Piudee-Friendship-Birthday-Christmas-Valentines/dp/B0B7RB9N8V/?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Jewelry Dish Friendship Gifts](https://www.amazon.com/Piudee-Friendship-Birthday-Christmas-Valentines/dp/B0B7RB9N8V/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Piudee-Friendship-Birthday-Christmas-Valentines/dp/B0B7RB9N8V/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Piudee-Friendship-Birthday-Christmas-Valentines/dp/B0B7RB9N8V/?th=1?ie=UTF8&tag=giftable02-20)
 
 Illuminate the New Year with a heartfelt token of friendship. Introducing our exquisite Jewelry Dish Friendship Gift – a radiant reminder of the bonds that transcend distance and time.
 
@@ -375,7 +375,7 @@ Delicately sized at 4.3" L x 4.3" W x 0.7" H, its dimensions belie the profound 
 
 ✔️ Handcrafted Artistry
 
-[Buy from Amazon](https://www.amazon.com/Piudee-Friendship-Birthday-Christmas-Valentines/dp/B0B7RB9N8V/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Piudee-Friendship-Birthday-Christmas-Valentines/dp/B0B7RB9N8V/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Etched Champagne Flutes](https://www.uncommongoods.com/product/etched-champagne-flutes-set-of-2)
 
@@ -413,9 +413,9 @@ This set unveils a world of organic, dried fruit, herb, and spice infusions, tra
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/flavored-water-gift-set)
 
-### [23\. Wooden Music Box](https://www.amazon.com/ukebobo-Wooden-Music-Box-Christmas/dp/B08PNZG4BS/?ie=UTF8&tag=avadalove-20)
+### [23\. Wooden Music Box](https://www.amazon.com/ukebobo-Wooden-Music-Box-Christmas/dp/B08PNZG4BS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ukebobo-Wooden-Music-Box-Christmas/dp/B08PNZG4BS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ukebobo-Wooden-Music-Box-Christmas/dp/B08PNZG4BS/?ie=UTF8&tag=giftable02-20)
 
 Wrap your dear ones in the embrace of friendship and nostalgia with the Pooh Saying Music Box – a New Year's gift that echoes sentiments of love.
 
@@ -429,11 +429,11 @@ Nestled perfectly in a child's hand, this petite marvel measures 2.51" x 2.04" x
 
 ✔️ Cherished Sentiment
 
-[Buy from Amazon](https://www.amazon.com/ukebobo-Wooden-Music-Box-Christmas/dp/B08PNZG4BS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ukebobo-Wooden-Music-Box-Christmas/dp/B08PNZG4BS/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Bamboo Charcuterie Boards](https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Bamboo Charcuterie Boards](https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/?th=1?ie=UTF8&tag=giftable02-20)
 
 Make this New Year unforgettable with the Bamboo Charcuterie Board—a timeless expression of taste, thoughtfulness, and togetherness.
 
@@ -447,7 +447,7 @@ Carved from eco-friendly Moso bamboo, this large wooden platter exudes style whi
 
 ✔️ Versatile Compartments
 
-[Buy from Amazon](https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cheese-Board-Knife-Set-Housewarming/dp/B01DTFF0Y8/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Engraved Friendship Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/270284723/best-friend-gift-friendship-keychain)
 
@@ -539,9 +539,9 @@ Each year's milestone is artistically represented, from the delicate paper of ye
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/personalized-anniversary-material-art)
 
-### [30\. Whiskey Decanter Globe Set](https://www.amazon.com/Whiskey-Decanter-Antique-Glasses-Dispenser/dp/B01LB35HPC?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Whiskey Decanter Globe Set](https://www.amazon.com/Whiskey-Decanter-Antique-Glasses-Dispenser/dp/B01LB35HPC?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whiskey-Decanter-Antique-Glasses-Dispenser/dp/B01LB35HPC?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whiskey-Decanter-Antique-Glasses-Dispenser/dp/B01LB35HPC?th=1?ie=UTF8&tag=giftable02-20)
 
 Celebrate the dawn of a new year by gifting your friends an unparalleled experience with the Whiskey Decanter Globe Set. Unveil the year's possibilities as they explore the benefits of this luxurious present.
 
@@ -555,7 +555,7 @@ This set also includes a metal pour funnel and a glass stopper, ensuring a spill
 
 ✔️ Practical Pour Funnel
 
-[Buy from Amazon](https://www.amazon.com/Whiskey-Decanter-Antique-Glasses-Dispenser/dp/B01LB35HPC?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whiskey-Decanter-Antique-Glasses-Dispenser/dp/B01LB35HPC?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Friendship Gift Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/988947481/thinking-of-you-succulent-gift-box)
 

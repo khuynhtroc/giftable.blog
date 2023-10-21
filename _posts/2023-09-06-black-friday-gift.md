@@ -17,9 +17,9 @@ Black Friday, known for its incredible deals and discounts, offers the opportuni
 
 Imagine the thrill of finding that one unique item that perfectly captures the essence of your relationship or showcases your impeccable taste. Each product promises to turn a regular day into an extraordinary one, reminding us of the joy that lies in both giving and receiving. So, why not embrace the spirit of giving and surprise your special someone with a heartfelt gesture that reflects your affection?
 
-### [1\. Mens Slim Wallet with Money Clip](https://www.amazon.com/TRAVANDO-Wallet-Blocking-Credit-Minimalist/dp/B07FPVR858/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Mens Slim Wallet with Money Clip](https://www.amazon.com/TRAVANDO-Wallet-Blocking-Credit-Minimalist/dp/B07FPVR858/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TRAVANDO-Wallet-Blocking-Credit-Minimalist/dp/B07FPVR858/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TRAVANDO-Wallet-Blocking-Credit-Minimalist/dp/B07FPVR858/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate the art of gifting this Black Friday with the TRAVANDO Wallet – a masterful blend of practicality and elegance.
 
@@ -33,11 +33,11 @@ The wallet's measurements, 4.5" x 3.1" x 0.6", offer a compact size that effortl
 
 ✔️ Premium vegan leather exudes sophistication
 
-[Buy from Amazon](https://www.amazon.com/TRAVANDO-Wallet-Blocking-Credit-Minimalist/dp/B07FPVR858/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TRAVANDO-Wallet-Blocking-Credit-Minimalist/dp/B07FPVR858/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. Handheld Electric Muscle Massager](https://www.amazon.com/Handheld-Electric-Intensity-Percussion-Attachments/dp/B08TLWYKLS/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Handheld Electric Muscle Massager](https://www.amazon.com/Handheld-Electric-Intensity-Percussion-Attachments/dp/B08TLWYKLS/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Handheld-Electric-Intensity-Percussion-Attachments/dp/B08TLWYKLS/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Handheld-Electric-Intensity-Percussion-Attachments/dp/B08TLWYKLS/?th=1?ie=UTF8&tag=giftable02-20)
 
 Treat your beloved to the soothing embrace of this massager, where the power of touch meets the art of healing.
 
@@ -51,11 +51,11 @@ With 3 interchangeable attachments, it provides a versatile experience, adapting
 
 ✔️ Three interchangeable attachments for versatile massage
 
-[Buy from Amazon](https://www.amazon.com/Handheld-Electric-Intensity-Percussion-Attachments/dp/B08TLWYKLS/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Handheld-Electric-Intensity-Percussion-Attachments/dp/B08TLWYKLS/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Amber Oud Gold Edition Eau de Parfum Spray](https://www.amazon.com/Haramain-Amber-Oud-Gold-Parfum/dp/B07CGX34B2/?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Amber Oud Gold Edition Eau de Parfum Spray](https://www.amazon.com/Haramain-Amber-Oud-Gold-Parfum/dp/B07CGX34B2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Haramain-Amber-Oud-Gold-Parfum/dp/B07CGX34B2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Haramain-Amber-Oud-Gold-Parfum/dp/B07CGX34B2/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embark on a fragrant journey this Black Friday with the Haramain Amber Oud Gold Parfum – a masterpiece that whispers tales of elegance and allure.
 
@@ -69,7 +69,7 @@ The Haramain Amber Oud Gold Parfum boasts a blend of luxurious ingredients that 
 
 ✔️ Rich blend of amber and oud for a timeless scent
 
-[Buy from Amazon](https://www.amazon.com/Haramain-Amber-Oud-Gold-Parfum/dp/B07CGX34B2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Haramain-Amber-Oud-Gold-Parfum/dp/B07CGX34B2/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Engraved Tag Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/767844007/engraved-tag-necklace-gold-filled-tag)
 
@@ -89,9 +89,9 @@ With a chain length of 18 inches, it delicately rests close to the heart, amplif
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/767844007/engraved-tag-necklace-gold-filled-tag)
 
-### [5\. Women Shoulder Handbag](https://www.amazon.com/MINTEGRA-Shoulder-Handbag-Multiple-Crossbody/dp/B085S8CPN9/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Women Shoulder Handbag](https://www.amazon.com/MINTEGRA-Shoulder-Handbag-Multiple-Crossbody/dp/B085S8CPN9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MINTEGRA-Shoulder-Handbag-Multiple-Crossbody/dp/B085S8CPN9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MINTEGRA-Shoulder-Handbag-Multiple-Crossbody/dp/B085S8CPN9/?th=1?ie=UTF8&tag=giftable02-20)
 
 As you present this exquisite piece, imagine the smile that will light up their face, a reflection of your thoughtfulness and the Black Friday spirit.
 
@@ -105,11 +105,11 @@ Measuring 13.4" x 10.2" x 5.9", it strikes a balance between spaciousness and co
 
 ✔️ High-quality faux leather exterior exudes luxury
 
-[Buy from Amazon](https://www.amazon.com/MINTEGRA-Shoulder-Handbag-Multiple-Crossbody/dp/B085S8CPN9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MINTEGRA-Shoulder-Handbag-Multiple-Crossbody/dp/B085S8CPN9/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. BBQ Caddy with Paper Towel Holder](https://www.amazon.com/dp/B09FKYTRZB/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. BBQ Caddy with Paper Towel Holder](https://www.amazon.com/dp/B09FKYTRZB/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B09FKYTRZB/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B09FKYTRZB/?th=1?ie=UTF8&tag=giftable02-20)
 
 Beyond being a caddy, it's a sanctuary of tranquility, a vessel that holds not just towels and essentials, but cherished moments of self-care and indulgence.
 
@@ -123,11 +123,11 @@ Measuring 24" x 8.5" x 3.2", it offers ample space for towels, bath accessories,
 
 ✔️ Towel holder adds functional convenience to indulgence
 
-[Buy from Amazon](https://www.amazon.com/dp/B09FKYTRZB/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B09FKYTRZB/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. Emart Backdrop Stand](https://www.amazon.com/Studio-Adjustable-Background-Backdrop-Support/dp/B00MTF6ZVC/?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Emart Backdrop Stand](https://www.amazon.com/Studio-Adjustable-Background-Backdrop-Support/dp/B00MTF6ZVC/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Studio-Adjustable-Background-Backdrop-Support/dp/B00MTF6ZVC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Studio-Adjustable-Background-Backdrop-Support/dp/B00MTF6ZVC/?th=1?ie=UTF8&tag=giftable02-20)
 
 Ignite the artistic spark within your beloved and provide them with the canvas to create their own visual masterpieces.
 
@@ -141,11 +141,11 @@ With adjustable heights ranging from 2.6 to 7 feet and a width of 6.5 feet, it a
 
 ✔️ Perfect for photography, videos, and creative projects
 
-[Buy from Amazon](https://www.amazon.com/Studio-Adjustable-Background-Backdrop-Support/dp/B00MTF6ZVC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Studio-Adjustable-Background-Backdrop-Support/dp/B00MTF6ZVC/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [8\. Running Yoga Pants](https://www.amazon.com/Leggings-No-See-Through-Waisted-Legging-Reg-Small-Medium/dp/B083LGF88Z/?th=1?ie=UTF8&tag=avadalove-20)
+### [8\. Running Yoga Pants](https://www.amazon.com/Leggings-No-See-Through-Waisted-Legging-Reg-Small-Medium/dp/B083LGF88Z/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Leggings-No-See-Through-Waisted-Legging-Reg-Small-Medium/dp/B083LGF88Z/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Leggings-No-See-Through-Waisted-Legging-Reg-Small-Medium/dp/B083LGF88Z/?th=1?ie=UTF8&tag=giftable02-20)
 
 These leggings aren't just clothing; they're an invitation to mindfulness and self-care, a gesture that nurtures both body and soul.
 
@@ -159,7 +159,7 @@ They provide a second-skin feel that moves with you during every yoga pose and b
 
 ✔️ No-see-through design for confidence in any activity
 
-[Buy from Amazon](https://www.amazon.com/Leggings-No-See-Through-Waisted-Legging-Reg-Small-Medium/dp/B083LGF88Z/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Leggings-No-See-Through-Waisted-Legging-Reg-Small-Medium/dp/B083LGF88Z/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Maya Angelou Still I Rise Scarf](https://www.uncommongoods.com/product/maya-angelou-still-i-rise-scarf)
 
@@ -179,9 +179,9 @@ It offers a generous size that allows for versatile styling, making it perfect f
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/maya-angelou-still-i-rise-scarf)
 
-### [10\. Galayou Wireless WiFi Baby Camera](https://www.amazon.com/Cameras-Security-Galayou-Wireless-G7-4PACK/dp/B0BD4XMP18/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Galayou Wireless WiFi Baby Camera](https://www.amazon.com/Cameras-Security-Galayou-Wireless-G7-4PACK/dp/B0BD4XMP18/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cameras-Security-Galayou-Wireless-G7-4PACK/dp/B0BD4XMP18/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cameras-Security-Galayou-Wireless-G7-4PACK/dp/B0BD4XMP18/?th=1?ie=UTF8&tag=giftable02-20)
 
 Empower your beloved with the gift of protection, where each camera becomes a sentinel of safety and a window to tranquility.
 
@@ -195,11 +195,11 @@ With a high-definition resolution, they provide clarity even in low-light condit
 
 ✔️ Remote access via smartphone for peace of mind
 
-[Buy from Amazon](https://www.amazon.com/Cameras-Security-Galayou-Wireless-G7-4PACK/dp/B0BD4XMP18/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cameras-Security-Galayou-Wireless-G7-4PACK/dp/B0BD4XMP18/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [11\. Skin Cycling Routine](https://www.amazon.com/COSRX-Skin-Cycling-Routine-Treatment/dp/B0BHRQFGCF?ie=UTF8&tag=avadalove-20)
+### [11\. Skin Cycling Routine](https://www.amazon.com/COSRX-Skin-Cycling-Routine-Treatment/dp/B0BHRQFGCF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/COSRX-Skin-Cycling-Routine-Treatment/dp/B0BHRQFGCF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/COSRX-Skin-Cycling-Routine-Treatment/dp/B0BHRQFGCF?ie=UTF8&tag=giftable02-20)
 
 Imagine the joy that will illuminate their face as they embrace each step, a celebration of their unique beauty and the Black Friday spirit.
 
@@ -213,11 +213,11 @@ Each product is infused with high-quality ingredients that target specific issue
 
 ✔️ High-quality ingredients promote skin health and radiance
 
-[Buy from Amazon](https://www.amazon.com/COSRX-Skin-Cycling-Routine-Treatment/dp/B0BHRQFGCF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/COSRX-Skin-Cycling-Routine-Treatment/dp/B0BHRQFGCF?ie=UTF8&tag=giftable02-20)
 
-### [12\. Blurams Security Camera](https://www.amazon.com/blurams-Security-360-degree-Tracking-Assistant/dp/B0B2RSQQPY/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Blurams Security Camera](https://www.amazon.com/blurams-Security-360-degree-Tracking-Assistant/dp/B0B2RSQQPY/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/blurams-Security-360-degree-Tracking-Assistant/dp/B0B2RSQQPY/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/blurams-Security-360-degree-Tracking-Assistant/dp/B0B2RSQQPY/?th=1?ie=UTF8&tag=giftable02-20)
 
 Empower your beloved with the gift of peace of mind, where each camera becomes an unwavering guardian of safety and a companion to their aspirations.
 
@@ -231,11 +231,11 @@ With its advanced AI technology, it offers 360-degree coverage and even includes
 
 ✔️ Remote access via smartphone for constant vigilance
 
-[Buy from Amazon](https://www.amazon.com/blurams-Security-360-degree-Tracking-Assistant/dp/B0B2RSQQPY/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/blurams-Security-360-degree-Tracking-Assistant/dp/B0B2RSQQPY/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Red Tea Cup with Spoon Set](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Red Tea Cup with Spoon Set](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=giftable02-20)
 
 Delight in the art of sipping serenity this Black Friday with the Birthday Butterfly Tea Cup and Spoon Set.
 
@@ -249,7 +249,7 @@ With a capacity of 12 ounces, it offers a generous portion for savoring their fa
 
 ✔️ Includes a matching spoon for a complete tea experience
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Oval Signet Ring](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/994656087/oval-signet-ring-dainty-signet)
 
@@ -269,9 +269,9 @@ Made from high-quality materials, it promises both durability and sophistication
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/994656087/oval-signet-ring-dainty-signet)
 
-### [15\. Rotating Floating Mr and Mrs Picture Frame](https://www.amazon.com/EYITUPC-Rotating-Floating-Picture-Wedding/dp/B0BPY25LN9/?ie=UTF8&tag=avadalove-20)
+### [15\. Rotating Floating Mr and Mrs Picture Frame](https://www.amazon.com/EYITUPC-Rotating-Floating-Picture-Wedding/dp/B0BPY25LN9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/EYITUPC-Rotating-Floating-Picture-Wedding/dp/B0BPY25LN9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/EYITUPC-Rotating-Floating-Picture-Wedding/dp/B0BPY25LN9/?ie=UTF8&tag=giftable02-20)
 
 This isn't just a picture frame; it's a portal to the past, a treasure trove of shared experiences and cherished connections.
 
@@ -285,11 +285,11 @@ With measurements of 4.92" x 4.92" x 0.59", it strikes the perfect balance betwe
 
 ✔️ High-quality materials for lasting preservation of cherished moments
 
-[Buy from Amazon](https://www.amazon.com/EYITUPC-Rotating-Floating-Picture-Wedding/dp/B0BPY25LN9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/EYITUPC-Rotating-Floating-Picture-Wedding/dp/B0BPY25LN9/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Barefoot Swim Shoes](https://www.amazon.com/YALOX-Barefoot-Quick-Dry-Swimming-Exercise/dp/B07MYVYN5Y/?ie=UTF8&tag=avadalove-20)
+### [16\. Barefoot Swim Shoes](https://www.amazon.com/YALOX-Barefoot-Quick-Dry-Swimming-Exercise/dp/B07MYVYN5Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YALOX-Barefoot-Quick-Dry-Swimming-Exercise/dp/B07MYVYN5Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YALOX-Barefoot-Quick-Dry-Swimming-Exercise/dp/B07MYVYN5Y/?ie=UTF8&tag=giftable02-20)
 
 Immerse your beloved in the embrace of nature and exploration as they slip into these versatile shoes, each step a connection to the world around them.
 
@@ -303,7 +303,7 @@ Made from breathable and lightweight materials, they ensure ease during water ac
 
 ✔️ Anti-slip sole for stability and safety on different surfaces
 
-[Buy from Amazon](https://www.amazon.com/YALOX-Barefoot-Quick-Dry-Swimming-Exercise/dp/B07MYVYN5Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YALOX-Barefoot-Quick-Dry-Swimming-Exercise/dp/B07MYVYN5Y/?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Personalized Puzzle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/663862318/personalized-puzzle-wedding-gift)
 
@@ -341,9 +341,9 @@ The tumbler features a unique oak spiral that imparts subtle flavors to the drin
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/whiskey-enhancing-oak-tumbler)
 
-### [19\. Newlywed Gifts for Couples](https://www.amazon.com/Dardeor-Engagement-honeymoon-Honeymoon-Essentials/dp/B0BYCLP3MB/?ie=UTF8&tag=avadalove-20)
+### [19\. Newlywed Gifts for Couples](https://www.amazon.com/Dardeor-Engagement-honeymoon-Honeymoon-Essentials/dp/B0BYCLP3MB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dardeor-Engagement-honeymoon-Honeymoon-Essentials/dp/B0BYCLP3MB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dardeor-Engagement-honeymoon-Honeymoon-Essentials/dp/B0BYCLP3MB/?ie=UTF8&tag=giftable02-20)
 
 Immerse your beloved in a world of romance and anticipation as they unwrap this carefully curated set, each item a reminder of your shared journey and the love that knows no bounds.
 
@@ -357,7 +357,7 @@ Made from high-quality materials, each piece promises both comfort and luxury. T
 
 ✔️ Includes a satin robe, sleep mask, and "Just Married" banner
 
-[Buy from Amazon](https://www.amazon.com/Dardeor-Engagement-honeymoon-Honeymoon-Essentials/dp/B0BYCLP3MB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dardeor-Engagement-honeymoon-Honeymoon-Essentials/dp/B0BYCLP3MB/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Custom Portrait](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1363935305/couple-portrait-custom-portrait-portrait)
 
@@ -377,9 +377,9 @@ The digital file can be easily printed or shared, allowing you to bring your lov
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1363935305/couple-portrait-custom-portrait-portrait)
 
-### [21\. Desk Vacuum Cleaner](https://www.amazon.com/TRZLIFE-Cleaner%EF%BC%8CMini-Endurance-Stronger-Rotatable/dp/B08V91626C?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Desk Vacuum Cleaner](https://www.amazon.com/TRZLIFE-Cleaner%EF%BC%8CMini-Endurance-Stronger-Rotatable/dp/B08V91626C?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TRZLIFE-Cleaner%EF%BC%8CMini-Endurance-Stronger-Rotatable/dp/B08V91626C?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TRZLIFE-Cleaner%EF%BC%8CMini-Endurance-Stronger-Rotatable/dp/B08V91626C?th=1?ie=UTF8&tag=giftable02-20)
 
 Picture the smile that will light up their face as they effortlessly clear away distractions, ready to conquer their tasks with renewed clarity.
 
@@ -393,7 +393,7 @@ The cleaner features strong suction and a rotatable nozzle, making it efficient 
 
 ✔️ Strong suction and rotatable nozzle for thorough cleaning
 
-[Buy from Amazon](https://www.amazon.com/TRZLIFE-Cleaner%EF%BC%8CMini-Endurance-Stronger-Rotatable/dp/B08V91626C?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TRZLIFE-Cleaner%EF%BC%8CMini-Endurance-Stronger-Rotatable/dp/B08V91626C?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Recycled Glass Tree Globes](https://www.uncommongoods.com/product/recycled-glass-tree-globes-relationships)
 
@@ -431,9 +431,9 @@ The board is customizable, allowing you to engrave names, dates, or a special me
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/772879807/custom-cheese-board-charcuterie-board)
 
-### [24\. Multi-Tool iPhone Cleaning Kit](https://www.amazon.com/Multi-Tool-Cleaning-Recovery-Lightning-Connectors/dp/B0BVT51B4B/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Multi-Tool iPhone Cleaning Kit](https://www.amazon.com/Multi-Tool-Cleaning-Recovery-Lightning-Connectors/dp/B0BVT51B4B/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Multi-Tool-Cleaning-Recovery-Lightning-Connectors/dp/B0BVT51B4B/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Multi-Tool-Cleaning-Recovery-Lightning-Connectors/dp/B0BVT51B4B/?th=1?ie=UTF8&tag=giftable02-20)
 
 This isn't just a cleaning kit; it's a testament to your attention to detail, a symbol of your commitment to maintaining the things you value most and the Black Friday spirit.
 
@@ -447,7 +447,7 @@ The kit includes specialized tools for delicate areas, and its compact size make
 
 ✔️ Durable materials ensure a lasting cleaning solution
 
-[Buy from Amazon](https://www.amazon.com/Multi-Tool-Cleaning-Recovery-Lightning-Connectors/dp/B0BVT51B4B/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Multi-Tool-Cleaning-Recovery-Lightning-Connectors/dp/B0BVT51B4B/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Personalized Recipe Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1205320860/personalized-recipe-box-wood-recipe-box)
 
@@ -485,9 +485,9 @@ Made from genuine leather, it radiates a blend of sophistication and durability.
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/493595319/personalized-leather-keychain-custom)
 
-### [27\. Utility Safety Mechanic Working Gloves](https://www.amazon.com/HANDLANDY-Utility-Mechanic-Flexible-Breathable/dp/B08D61BSGT/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Utility Safety Mechanic Working Gloves](https://www.amazon.com/HANDLANDY-Utility-Mechanic-Flexible-Breathable/dp/B08D61BSGT/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HANDLANDY-Utility-Mechanic-Flexible-Breathable/dp/B08D61BSGT/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HANDLANDY-Utility-Mechanic-Flexible-Breathable/dp/B08D61BSGT/?th=1?ie=UTF8&tag=giftable02-20)
 
 Delve into the world of meaningful labor and shared efforts as you present your beloved with these gloves, a symbol of your unwavering support and the embodiment of the Black Friday spirit.
 
@@ -501,7 +501,7 @@ These gloves provide the perfect fit for hands of all sizes, ensuring a snug yet
 
 ✔️ High-quality materials for a snug yet comfortable fit
 
-[Buy from Amazon](https://www.amazon.com/HANDLANDY-Utility-Mechanic-Flexible-Breathable/dp/B08D61BSGT/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HANDLANDY-Utility-Mechanic-Flexible-Breathable/dp/B08D61BSGT/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Climbing Arch](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1185270541/wooden-toys-for-kids-first-birthday-gift)
 
@@ -539,9 +539,9 @@ Its deep teal color speaks of depth and sophistication, perfect for accentuating
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/739168838/mens-beanie-hat-in-deep-teal-slouchy)
 
-### [30\. Stanley Vacuum Insulated Tumbler](https://www.amazon.com/Stanley-Quencher-FlowState-Stainless-Insulated/dp/B0BQZ9K23L/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Stanley Vacuum Insulated Tumbler](https://www.amazon.com/Stanley-Quencher-FlowState-Stainless-Insulated/dp/B0BQZ9K23L/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stanley-Quencher-FlowState-Stainless-Insulated/dp/B0BQZ9K23L/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stanley-Quencher-FlowState-Stainless-Insulated/dp/B0BQZ9K23L/?th=1?ie=UTF8&tag=giftable02-20)
 
 Whether they're sipping their morning coffee or hydrating on-the-go, this tumbler encourages them to indulge in self-love and relish the small pleasures life has to offer.
 
@@ -555,7 +555,7 @@ The stainless-steel construction ensures durability, while the insulated design 
 
 ✔️ Insulated design keeps beverages at the perfect temperature
 
-[Buy from Amazon](https://www.amazon.com/Stanley-Quencher-FlowState-Stainless-Insulated/dp/B0BQZ9K23L/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stanley-Quencher-FlowState-Stainless-Insulated/dp/B0BQZ9K23L/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [31\. PhoneSoap Smartphone Sanitizer](https://www.uncommongoods.com/product/phonesoap-smartphone-sanitizer)
 
@@ -575,9 +575,9 @@ This smartphone sanitizer ensures that their device is free from harmful germs a
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/phonesoap-smartphone-sanitizer)
 
-### [32\. Burt’s Bees Gifts Ideas](https://www.amazon.com/Burts-Bees-Classics-Products-Giftable/dp/B00VK5SG46/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Burt’s Bees Gifts Ideas](https://www.amazon.com/Burts-Bees-Classics-Products-Giftable/dp/B00VK5SG46/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Classics-Products-Giftable/dp/B00VK5SG46/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-Classics-Products-Giftable/dp/B00VK5SG46/?th=1?ie=UTF8&tag=giftable02-20)
 
 Discover the art of gifting with the Burt's Bees Classics Products Set, where love and care come wrapped in every natural ingredient.
 
@@ -591,7 +591,7 @@ This set contains a handpicked collection of classic Burt's Bees favorites, each
 
 ✔️ Nurturing experience for rejuvenation and self-discovery
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Classics-Products-Giftable/dp/B00VK5SG46/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Classics-Products-Giftable/dp/B00VK5SG46/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Friendly Ghost Trivets](https://www.uncommongoods.com/product/friendly-ghost-trivets)
 
@@ -611,9 +611,9 @@ Designed to protect surfaces and spread smiles, they embody the perfect blend of
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/friendly-ghost-trivets)
 
-### [34\. Denali Adjustable Wrench Set](https://www.amazon.com/dp/B091BNGB3Y/?th=1?ie=UTF8&tag=avadalove-20)
+### [34\. Denali Adjustable Wrench Set](https://www.amazon.com/dp/B091BNGB3Y/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B091BNGB3Y/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B091BNGB3Y/?th=1?ie=UTF8&tag=giftable02-20)
 
 Unleash the power of precision and craftsmanship this Black Friday with the Wrench Set - a testament to your loved one's DIY spirit and can-do attitude.
 
@@ -627,7 +627,7 @@ Crafted with care, these high-quality tools are the ultimate expression of love 
 
 ✔️ High-quality tools for precise workmanship and lasting memories
 
-[Buy from Amazon](https://www.amazon.com/dp/B091BNGB3Y/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B091BNGB3Y/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Long Pearl Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/774104393/long-pearl-earrings-pearl-drop-earrings)
 

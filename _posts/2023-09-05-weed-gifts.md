@@ -17,9 +17,9 @@ Step into a universe of curated goodies that cater to every kind of cannabis ent
 
 Let your imagination run wild as you explore these handpicked gems, each carefully designed to bring joy and excitement to your smoking sessions. Whether it's for yourself or a fellow aficionado, these gifts are sure to become the talk of the town and the heart of every chill session. So, why wait? Embrace the **[green revolution](/gifts-environmentalists/)** and celebrate the wonders of weed with gifts that will elevate your experiences to a whole new level!
 
-### [1\. Cannabolish Wintergreen Smoke Odor Eliminator Spray](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Spray/dp/B07BHRNTT9/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Cannabolish Wintergreen Smoke Odor Eliminator Spray](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Spray/dp/B07BHRNTT9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Spray/dp/B07BHRNTT9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Spray/dp/B07BHRNTT9/?th=1?ie=UTF8&tag=giftable02-20)
 
 Clear the air and elevate the vibe with Cannabolish Wintergreen Smoke Odor Eliminator Spray - the magic mist for discreet toking!
 
@@ -33,7 +33,7 @@ The Cannabolish Spray is a game-changer for cannabis enthusiasts. This unique sp
 
 ✔️ Discreet and effective
 
-[Buy from Amazon](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Spray/dp/B07BHRNTT9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Spray/dp/B07BHRNTT9/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Personalized Tobacco Herb Spice Grinder](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1465802955/groomsman-gift-personalized-tobacco-herb)
 
@@ -53,9 +53,9 @@ For the cannabis aficionado on your list, choose the Personalised Tobacco Herb S
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1465802955/groomsman-gift-personalized-tobacco-herb)
 
-### [3\. Fantasy Gifts Stoner Bear Polyresin Ashtray](https://www.amazon.com/Fantasy-Gifts-Stoner-Polyresin-Ashtray/dp/B07Z5BQ1LS/?ie=UTF8&tag=avadalove-20)
+### [3\. Fantasy Gifts Stoner Bear Polyresin Ashtray](https://www.amazon.com/Fantasy-Gifts-Stoner-Polyresin-Ashtray/dp/B07Z5BQ1LS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fantasy-Gifts-Stoner-Polyresin-Ashtray/dp/B07Z5BQ1LS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fantasy-Gifts-Stoner-Polyresin-Ashtray/dp/B07Z5BQ1LS/?ie=UTF8&tag=giftable02-20)
 
 Get "bear-y" high with the Fantasy Gifts Stoner Bear Polyresin Ashtray - a whimsical and functional gift for weed enthusiasts!
 
@@ -69,7 +69,7 @@ The Fantasy Gifts Stoner Bear Polyresin Ashtray is a fun and eye-catching additi
 
 ✔️ Functional and practical ashtray
 
-[Buy from Amazon](https://www.amazon.com/Fantasy-Gifts-Stoner-Polyresin-Ashtray/dp/B07Z5BQ1LS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fantasy-Gifts-Stoner-Polyresin-Ashtray/dp/B07Z5BQ1LS/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Pot Smoking Pot](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1395502971/pot-smoking-pot-planter-for-succulents)
 
@@ -89,9 +89,9 @@ When filled with succulents or other small houseplants, the Pot Smoking Pot plan
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1395502971/pot-smoking-pot-planter-for-succulents)
 
-### [5\. I Love You More Than You Love Weed Keychain](https://www.amazon.com/FOTAP-Marijuana-jewelry-Keychain-Boyfriend/dp/B08TWLC3HC/?ie=UTF8&tag=avadalove-20)
+### [5\. I Love You More Than You Love Weed Keychain](https://www.amazon.com/FOTAP-Marijuana-jewelry-Keychain-Boyfriend/dp/B08TWLC3HC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FOTAP-Marijuana-jewelry-Keychain-Boyfriend/dp/B08TWLC3HC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FOTAP-Marijuana-jewelry-Keychain-Boyfriend/dp/B08TWLC3HC/?ie=UTF8&tag=giftable02-20)
 
 Express your love with a twist of humor with the I Love You More Than You Love Weed Keychain - a witty and affectionate gift!
 
@@ -105,7 +105,7 @@ The I Love You More Than You Love Weed Keychain is a delightful token of affecti
 
 ✔️ High-quality materials
 
-[Buy from Amazon](https://www.amazon.com/FOTAP-Marijuana-jewelry-Keychain-Boyfriend/dp/B08TWLC3HC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FOTAP-Marijuana-jewelry-Keychain-Boyfriend/dp/B08TWLC3HC/?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Ganjaland](https://www.uncommongoods.com/product/ganjaland)
 
@@ -125,9 +125,9 @@ Ganjaland is a cannabis-themed board game that promises hours of laughter and en
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/ganjaland)
 
-### [7\. Home Decor Tabletop Ash tray for Smokers](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8/?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Home Decor Tabletop Ash tray for Smokers](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your smoking experience with the Home Decor Tabletop Ashtray for Smokers - a stylish and functional addition to your smoking corner!
 
@@ -141,7 +141,7 @@ The Home Decor Tabletop Ashtray for Smokers is a must-have for any smoking enthu
 
 ✔️ Windproof lid for outdoor use
 
-[Buy from Amazon](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [8\. I Love A good Herb Towels](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1362727975/i-love-a-good-herb-towels-funny-hand)
 
@@ -161,9 +161,9 @@ That which "I Love A Good Herb" Towels are not only useful, but they may also be
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1362727975/i-love-a-good-herb-towels-funny-hand)
 
-### [9\. Gnometastic Smoking Gnome](https://www.amazon.com/Gnometastic-Smoking-Indoor-Outdoor-Garden/dp/B07G3GZX8F?ie=UTF8&tag=avadalove-20)
+### [9\. Gnometastic Smoking Gnome](https://www.amazon.com/Gnometastic-Smoking-Indoor-Outdoor-Garden/dp/B07G3GZX8F?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gnometastic-Smoking-Indoor-Outdoor-Garden/dp/B07G3GZX8F?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gnometastic-Smoking-Indoor-Outdoor-Garden/dp/B07G3GZX8F?ie=UTF8&tag=giftable02-20)
 
 Meet the Gnometastic Smoking Gnome, your new favorite garden buddy who knows how to relax and enjoy some "gnome-grown" herbs!
 
@@ -177,7 +177,7 @@ The Gnometastic Smoking Gnome is a charming and whimsical addition to any indoor
 
 ✔️ Adds humor and personality to any space
 
-[Buy from Amazon](https://www.amazon.com/Gnometastic-Smoking-Indoor-Outdoor-Garden/dp/B07G3GZX8F?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gnometastic-Smoking-Indoor-Outdoor-Garden/dp/B07G3GZX8F?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Pothead Ashtray](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1095299554/pothead-ashtray)
 
@@ -197,9 +197,9 @@ The Pothead Ashtray is an ingenious and humorous piece of stoneware that will li
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1095299554/pothead-ashtray)
 
-### [11\. Funny Weed Leaf Cosmetic Bag](https://www.amazon.com/Pieces-Makeup-Cosmetic-Multipurpose-Vacation/dp/B08RC229T8/?ie=UTF8&tag=avadalove-20)
+### [11\. Funny Weed Leaf Cosmetic Bag](https://www.amazon.com/Pieces-Makeup-Cosmetic-Multipurpose-Vacation/dp/B08RC229T8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pieces-Makeup-Cosmetic-Multipurpose-Vacation/dp/B08RC229T8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pieces-Makeup-Cosmetic-Multipurpose-Vacation/dp/B08RC229T8/?ie=UTF8&tag=giftable02-20)
 
 Get high with this Funny Weed Leaf Cosmetic Bag, a cute and useful present for stoners.
 
@@ -213,7 +213,7 @@ The Funny Weed Leaf Cosmetic Bag is a large, versatile tote that may be used for
 
 ✔️ High-quality and durable materials
 
-[Buy from Amazon](https://www.amazon.com/Pieces-Makeup-Cosmetic-Multipurpose-Vacation/dp/B08RC229T8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pieces-Makeup-Cosmetic-Multipurpose-Vacation/dp/B08RC229T8/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Weed Waffle Maker](https://www.uncommongoods.com/product/weed-waffle-maker)
 
@@ -251,9 +251,9 @@ The OG HIT KIT is a fashionable and functional item that can handle two joints o
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1093837724/og-hit-kit-double-jointblunt-holder-doob)
 
-### [14\. Cannabolish Smoke Odor Eliminating Candle](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Candle/dp/B07BHW6FDK/?th=1?ie=UTF8&tag=avadalove-20)
+### [14\. Cannabolish Smoke Odor Eliminating Candle](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Candle/dp/B07BHW6FDK/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Candle/dp/B07BHW6FDK/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Candle/dp/B07BHW6FDK/?th=1?ie=UTF8&tag=giftable02-20)
 
 If you know a cannabis enthusiast who would appreciate a smoke-free environment, consider giving them a Cannabolish Smoke Odour Eliminating Candle.
 
@@ -267,11 +267,11 @@ The Cannabolish smoking Odour Eliminating Candle is formulated to effectively er
 
 ✔️ No harsh chemicals
 
-[Buy from Amazon](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Candle/dp/B07BHW6FDK/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cannabolish-Cannabis-Smoke-Removing-Candle/dp/B07BHW6FDK/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [15\. Leaf Illusion Lamp with Remote Control](https://www.amazon.com/FULLOSUN-Cannabis-Illusion-Changing-Decoration/dp/B07PLSRBRK/?ie=UTF8&tag=avadalove-20)
+### [15\. Leaf Illusion Lamp with Remote Control](https://www.amazon.com/FULLOSUN-Cannabis-Illusion-Changing-Decoration/dp/B07PLSRBRK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FULLOSUN-Cannabis-Illusion-Changing-Decoration/dp/B07PLSRBRK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FULLOSUN-Cannabis-Illusion-Changing-Decoration/dp/B07PLSRBRK/?ie=UTF8&tag=giftable02-20)
 
 Step into a world of botanical enchantment with the Leaf Illusion Lamp with Remote Control, where a mesmerizing cannabis leaf comes to life with vibrant colors and soothing illumination.
 
@@ -285,7 +285,7 @@ The Leaf Illusion Lamp features a beautifully designed 3D cannabis leaf that cre
 
 ✔️ Convenient remote control
 
-[Buy from Amazon](https://www.amazon.com/FULLOSUN-Cannabis-Illusion-Changing-Decoration/dp/B07PLSRBRK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FULLOSUN-Cannabis-Illusion-Changing-Decoration/dp/B07PLSRBRK/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Personalized Groomsmen Lighter Bundle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1146370134/set-of-5-personalized-groomsmen-flasks)
 
@@ -305,9 +305,9 @@ This delightful bundle includes five personalized flasks and a matching lighter,
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1146370134/set-of-5-personalized-groomsmen-flasks)
 
-### [17\. eXtremeRate Green Weeds Faceplate Cover](https://www.amazon.com/eXtremeRate-Faceplate-Housing-Comfortable-Replacement-Controller/dp/B0791FT9Z8/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. eXtremeRate Green Weeds Faceplate Cover](https://www.amazon.com/eXtremeRate-Faceplate-Housing-Comfortable-Replacement-Controller/dp/B0791FT9Z8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/eXtremeRate-Faceplate-Housing-Comfortable-Replacement-Controller/dp/B0791FT9Z8/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/eXtremeRate-Faceplate-Housing-Comfortable-Replacement-Controller/dp/B0791FT9Z8/?th=1?ie=UTF8&tag=giftable02-20)
 
 The eXtremeRate Green Weeds Faceplate Cover is the perfect way to give your gamepad a splash of personality and a dose of the great outdoors without breaking the bank.
 
@@ -321,7 +321,7 @@ Comfort and ease of use have been prioritised in the design of this faceplate co
 
 ✔️ Adds a fun twist to your gaming controller
 
-[Buy from Amazon](https://www.amazon.com/eXtremeRate-Faceplate-Housing-Comfortable-Replacement-Controller/dp/B0791FT9Z8/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/eXtremeRate-Faceplate-Housing-Comfortable-Replacement-Controller/dp/B0791FT9Z8/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Let’s Get Baked! Bundle](https://www.uncommongoods.com/product/lets-get-baked-bundle)
 
@@ -359,9 +359,9 @@ This multipurpose tray is made of sturdy materials and has enough of room for al
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/830386166/personalizable-gifts-weed-tray)
 
-### [20\. Marijuana Leaf Pot Weed Embroidered Dream Catcher](https://www.amazon.com/Marijuana-Embroidered-Dream-Catcher-Inches/dp/B074QN93PV/?ie=UTF8&tag=avadalove-20)
+### [20\. Marijuana Leaf Pot Weed Embroidered Dream Catcher](https://www.amazon.com/Marijuana-Embroidered-Dream-Catcher-Inches/dp/B074QN93PV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Marijuana-Embroidered-Dream-Catcher-Inches/dp/B074QN93PV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Marijuana-Embroidered-Dream-Catcher-Inches/dp/B074QN93PV/?ie=UTF8&tag=giftable02-20)
 
 Catch your wildest dreams and elevate your space with the Aces Gifts Marijuana Leaf Pot Weed Embroidered Dream Catcher, where cannabis culture meets mystical charm.
 
@@ -375,7 +375,7 @@ This unique dream catcher features an intricately embroidered marijuana leaf des
 
 ✔️ Dream catcher symbolism
 
-[Buy from Amazon](https://www.amazon.com/Marijuana-Embroidered-Dream-Catcher-Inches/dp/B074QN93PV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Marijuana-Embroidered-Dream-Catcher-Inches/dp/B074QN93PV/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Personalized Weed Metal Wall Art With Lights](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1222589522/personalized-weed-metal-wall-art-with)
 
@@ -395,9 +395,9 @@ This metal wall art features a custom design with the word "weed" surrounded by 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1222589522/personalized-weed-metal-wall-art-with)
 
-### [22\. BBdis Funny Garden Gnome Statue](https://www.amazon.com/Smoking-Naughty-Ornaments-Decorations-Housewarming/dp/B09PH7KYZ3/?th=1?ie=UTF8&tag=avadalove-20)
+### [22\. BBdis Funny Garden Gnome Statue](https://www.amazon.com/Smoking-Naughty-Ornaments-Decorations-Housewarming/dp/B09PH7KYZ3/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Smoking-Naughty-Ornaments-Decorations-Housewarming/dp/B09PH7KYZ3/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Smoking-Naughty-Ornaments-Decorations-Housewarming/dp/B09PH7KYZ3/?th=1?ie=UTF8&tag=giftable02-20)
 
 Sprinkle some humor and mischief into your garden with the BBdis Funny Garden Gnome Statue, sure to delight and entertain.
 
@@ -411,7 +411,7 @@ This cheeky gnome statue features a playful design of a gnome holding a "naughty
 
 ✔️ Perfect gift for those with a sense of humor
 
-[Buy from Amazon](https://www.amazon.com/Smoking-Naughty-Ornaments-Decorations-Housewarming/dp/B09PH7KYZ3/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Smoking-Naughty-Ornaments-Decorations-Housewarming/dp/B09PH7KYZ3/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Personalized Dad’s Joint Holder Case](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1349758662/personalized-dads-joint-holder-case)
 
@@ -431,9 +431,9 @@ This custom-made case is designed to hold and protect joints, keeping them fresh
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1349758662/personalized-dads-joint-holder-case)
 
-### [24\. Grass Pot Smoking Garden Gnome](https://www.amazon.com/Solar-Powered-Grass-Smoking-Garden/dp/B08VF993RB/ref=pd_lpo_sccl_2/133-4292457-0956308?pd_rd_w=kSjpP&content-id=amzn1.sym.116f529c-aa4d-4763-b2b6-4d614ec7dc00&pf_rd_p=116f529c-aa4d-4763-b2b6-4d614?ie=UTF8&tag=avadalove-20)
+### [24\. Grass Pot Smoking Garden Gnome](https://www.amazon.com/Solar-Powered-Grass-Smoking-Garden/dp/B08VF993RB/ref=pd_lpo_sccl_2/133-4292457-0956308?pd_rd_w=kSjpP&content-id=amzn1.sym.116f529c-aa4d-4763-b2b6-4d614ec7dc00&pf_rd_p=116f529c-aa4d-4763-b2b6-4d614?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Solar-Powered-Grass-Smoking-Garden/dp/B08VF993RB/ref=pd_lpo_sccl_2/133-4292457-0956308?pd_rd_w=kSjpP&content-id=amzn1.sym.116f529c-aa4d-4763-b2b6-4d614ec7dc00&pf_rd_p=116f529c-aa4d-4763-b2b6-4d614?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Solar-Powered-Grass-Smoking-Garden/dp/B08VF993RB/ref=pd_lpo_sccl_2/133-4292457-0956308?pd_rd_w=kSjpP&content-id=amzn1.sym.116f529c-aa4d-4763-b2b6-4d614ec7dc00&pf_rd_p=116f529c-aa4d-4763-b2b6-4d614?ie=UTF8&tag=giftable02-20)
 
 Spice up your garden with the Collections Etc Solar Powered Keep On The Grass Pot Smoking Garden Gnome - a whimsical and hilarious addition to any outdoor space.
 
@@ -447,11 +447,11 @@ This unique garden gnome features a laid-back, pot-smoking design with solar-pow
 
 ✔️ Durable and weather-resistant construction
 
-[Buy from Amazon](https://www.amazon.com/Solar-Powered-Grass-Smoking-Garden/dp/B08VF993RB/ref=pd_lpo_sccl_2/133-4292457-0956308?pd_rd_w=kSjpP&content-id=amzn1.sym.116f529c-aa4d-4763-b2b6-4d614ec7dc00&pf_rd_p=116f529c-aa4d-4763-b2b6-4d614?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Solar-Powered-Grass-Smoking-Garden/dp/B08VF993RB/ref=pd_lpo_sccl_2/133-4292457-0956308?pd_rd_w=kSjpP&content-id=amzn1.sym.116f529c-aa4d-4763-b2b6-4d614ec7dc00&pf_rd_p=116f529c-aa4d-4763-b2b6-4d614?ie=UTF8&tag=giftable02-20)
 
-### [25\. Inspired Marijuana Weed Leaf Cosmetic Bag](https://www.amazon.com/DJHUNG-Marijuana-Friendship-Graduation-Christmas/dp/B0C714B4ND/?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Inspired Marijuana Weed Leaf Cosmetic Bag](https://www.amazon.com/DJHUNG-Marijuana-Friendship-Graduation-Christmas/dp/B0C714B4ND/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DJHUNG-Marijuana-Friendship-Graduation-Christmas/dp/B0C714B4ND/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DJHUNG-Marijuana-Friendship-Graduation-Christmas/dp/B0C714B4ND/?th=1?ie=UTF8&tag=giftable02-20)
 
 The DJHUNG Inspired Marijuana Weed Leaf Cosmetic Bag is a chic and functional way to show your support for cannabis while also enhancing your personal sense of style.
 
@@ -465,7 +465,7 @@ This cosmetic case is a stylish and original present for your favourite stoner b
 
 ✔️ High-quality and durable materials
 
-[Buy from Amazon](https://www.amazon.com/DJHUNG-Marijuana-Friendship-Graduation-Christmas/dp/B0C714B4ND/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DJHUNG-Marijuana-Friendship-Graduation-Christmas/dp/B0C714B4ND/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [26\. The Anatomy of Cannabis T-Shirt](https://www.uncommongoods.com/product/the-anatomy-of-cannabis-t-shirt)
 
@@ -485,9 +485,9 @@ This t-shirt features a unique and artistic illustration depicting the anatomy o
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/the-anatomy-of-cannabis-t-shirt)
 
-### [27\. Mamba V2 1g Black Electric Portable Herb Grinder](https://www.amazon.com/Mamba-Electric-Grinder-Rechargeable-One-Handed/dp/B08P1HJ5P5/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Mamba V2 1g Black Electric Portable Herb Grinder](https://www.amazon.com/Mamba-Electric-Grinder-Rechargeable-One-Handed/dp/B08P1HJ5P5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mamba-Electric-Grinder-Rechargeable-One-Handed/dp/B08P1HJ5P5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mamba-Electric-Grinder-Rechargeable-One-Handed/dp/B08P1HJ5P5/?th=1?ie=UTF8&tag=giftable02-20)
 
 Take your herb grinding experience to the next level with the Mamba V2 1g Black Electric Portable Herb Grinder - the fastest, most efficient, and one-handed grinding solution for your favorite botanicals.
 
@@ -501,11 +501,11 @@ This sleek and powerful grinder boasts a rechargeable battery and a durable cons
 
 ✔️ Durable and portable design
 
-[Buy from Amazon](https://www.amazon.com/Mamba-Electric-Grinder-Rechargeable-One-Handed/dp/B08P1HJ5P5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mamba-Electric-Grinder-Rechargeable-One-Handed/dp/B08P1HJ5P5/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\. Discrete Smell Proof Odorless Bag](https://www.amazon.com/Discrete-Smell-Proof-Odorless-Combination/dp/B085VWJMY8/?ie=UTF8&tag=avadalove-20)
+### [28\. Discrete Smell Proof Odorless Bag](https://www.amazon.com/Discrete-Smell-Proof-Odorless-Combination/dp/B085VWJMY8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Discrete-Smell-Proof-Odorless-Combination/dp/B085VWJMY8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Discrete-Smell-Proof-Odorless-Combination/dp/B085VWJMY8/?ie=UTF8&tag=giftable02-20)
 
 Keep it discreet and odorless with the KIBAGA Smell Proof Bag - the perfect solution for storing your herbs or accessories without attracting any unwanted attention.
 
@@ -519,7 +519,7 @@ This bag is designed with high-quality materials and advanced technology to ensu
 
 ✔️ Advanced smell-proof technology
 
-[Buy from Amazon](https://www.amazon.com/Discrete-Smell-Proof-Odorless-Combination/dp/B085VWJMY8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Discrete-Smell-Proof-Odorless-Combination/dp/B085VWJMY8/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Marble Textured Ashtray](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1389675314/marble-textured-ashtray?ref=sim_items_grid_ad-4&frs=1&plkey=f3e0677de06d3cce0f74b5a58908b2e8607875cb%3A1389675314)
 
@@ -539,9 +539,9 @@ The elegant marble texture of this ashtray will elevate your smoking ritual to t
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1389675314/marble-textured-ashtray?ref=sim_items_grid_ad-4&frs=1&plkey=f3e0677de06d3cce0f74b5a58908b2e8607875cb%3A1389675314)
 
-### [30\. Colorful Rimless Leaf-shaped Sun Glasses](https://www.amazon.com/Vintage-Sunglasses-Fashion-Colorful-Leaf-shaped/dp/B08GJD3CPK?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Colorful Rimless Leaf-shaped Sun Glasses](https://www.amazon.com/Vintage-Sunglasses-Fashion-Colorful-Leaf-shaped/dp/B08GJD3CPK?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Sunglasses-Fashion-Colorful-Leaf-shaped/dp/B08GJD3CPK?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Sunglasses-Fashion-Colorful-Leaf-shaped/dp/B08GJD3CPK?th=1?ie=UTF8&tag=giftable02-20)
 
 Get ready to leaf the crowd in awe with these Colorful Rimless Leaf-shaped Sun Glasses, perfect for making a fashion statement that's as bold as you are.
 
@@ -555,11 +555,11 @@ These sunglasses boast a unique and eye-catching leaf-shaped design, making them
 
 ✔️ Colorful lenses for a playful twist
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Sunglasses-Fashion-Colorful-Leaf-shaped/dp/B08GJD3CPK?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Sunglasses-Fashion-Colorful-Leaf-shaped/dp/B08GJD3CPK?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Unisex Maple Leaf Socks](https://www.amazon.com/DAZCOS-Unisex-Marijuana-Multicolor-Green-Pink/dp/B08DNTVLKP/?ie=UTF8&tag=avadalove-20)
+### [31\. Unisex Maple Leaf Socks](https://www.amazon.com/DAZCOS-Unisex-Marijuana-Multicolor-Green-Pink/dp/B08DNTVLKP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DAZCOS-Unisex-Marijuana-Multicolor-Green-Pink/dp/B08DNTVLKP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DAZCOS-Unisex-Marijuana-Multicolor-Green-Pink/dp/B08DNTVLKP/?ie=UTF8&tag=giftable02-20)
 
 Step into a world of comfort and style with the DAZCOS Unisex Maple Leaf Socks, where fashion meets the love for nature's most iconic leaf.
 
@@ -573,7 +573,7 @@ These socks feature a trendy and vibrant maple leaf design, making them a perfec
 
 ✔️ High-quality materials for comfort
 
-[Buy from Amazon](https://www.amazon.com/DAZCOS-Unisex-Marijuana-Multicolor-Green-Pink/dp/B08DNTVLKP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DAZCOS-Unisex-Marijuana-Multicolor-Green-Pink/dp/B08DNTVLKP/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Blazy Susan Pink or Purple Pre-Rolled Cones](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1491325075/blazy-susan-pink-or-purple-pre-rolled)
 
@@ -593,9 +593,9 @@ These pre-rolled cones are made with high-quality ingredients and excellent craf
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1491325075/blazy-susan-pink-or-purple-pre-rolled)
 
-### [33\. Show Me Your Doobies Weed Gift](https://www.amazon.com/Doobies-Funny-Marijuana-Stoner-T-Shirt/dp/B07RC2WNFN/?ie=UTF8&tag=avadalove-20)
+### [33\. Show Me Your Doobies Weed Gift](https://www.amazon.com/Doobies-Funny-Marijuana-Stoner-T-Shirt/dp/B07RC2WNFN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Doobies-Funny-Marijuana-Stoner-T-Shirt/dp/B07RC2WNFN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Doobies-Funny-Marijuana-Stoner-T-Shirt/dp/B07RC2WNFN/?ie=UTF8&tag=giftable02-20)
 
 "Show Me Your Doobies" Weed Gift T-Shirt is a hilarious and cheeky way to celebrate the stoner culture and bring smiles to faces.
 
@@ -609,11 +609,11 @@ This t-shirt features a fun and eye-catching design with a witty phrase that's s
 
 ✔️ Ideal gift for cannabis enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Doobies-Funny-Marijuana-Stoner-T-Shirt/dp/B07RC2WNFN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Doobies-Funny-Marijuana-Stoner-T-Shirt/dp/B07RC2WNFN/?ie=UTF8&tag=giftable02-20)
 
-### [34\. NiYoung Cozy Blanket](https://www.amazon.com/Blanket-Novelty-Family-Watch-Together/dp/B09N1F59LV/?ie=UTF8&tag=avadalove-20)
+### [34\. NiYoung Cozy Blanket](https://www.amazon.com/Blanket-Novelty-Family-Watch-Together/dp/B09N1F59LV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Blanket-Novelty-Family-Watch-Together/dp/B09N1F59LV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Blanket-Novelty-Family-Watch-Together/dp/B09N1F59LV/?ie=UTF8&tag=giftable02-20)
 
 Snuggle up in style with the NiYoung Cozy Blanket - the perfect gift for those who love to get high on comfort!
 
@@ -627,11 +627,11 @@ This soft and luxurious blanket is made of high-quality material, providing warm
 
 ✔️ Perfect for cozying up at home
 
-[Buy from Amazon](https://www.amazon.com/Blanket-Novelty-Family-Watch-Together/dp/B09N1F59LV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Blanket-Novelty-Family-Watch-Together/dp/B09N1F59LV/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Plush Squeaky Weed](https://www.amazon.com/Puppy-Cheifer-3000-Squeaky-Birthday/dp/B08MZ95RZV/?ie=UTF8&tag=avadalove-20)
+### [35\. Plush Squeaky Weed](https://www.amazon.com/Puppy-Cheifer-3000-Squeaky-Birthday/dp/B08MZ95RZV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Puppy-Cheifer-3000-Squeaky-Birthday/dp/B08MZ95RZV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Puppy-Cheifer-3000-Squeaky-Birthday/dp/B08MZ95RZV/?ie=UTF8&tag=giftable02-20)
 
 Give your furry friend a hilarious playmate with the Plush Squeaky Weed toy - guaranteed to bring laughter to both pets and owners!
 
@@ -645,7 +645,7 @@ This fun and unique dog toy is made of soft and durable materials, perfect for h
 
 ✔️ Hilarious weed-themed design
 
-[Buy from Amazon](https://www.amazon.com/Puppy-Cheifer-3000-Squeaky-Birthday/dp/B08MZ95RZV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Puppy-Cheifer-3000-Squeaky-Birthday/dp/B08MZ95RZV/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

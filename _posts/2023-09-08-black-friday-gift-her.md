@@ -35,9 +35,9 @@ Measuring approximately 6" H x 3" diameter, this glass provides the perfect canv
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/love-picture-puzzle-pint-glass)
 
-### [2\. Women Crewneck Long-Sleeve](https://www.amazon.com/Amazon-Essentials-Womens-Standard-Crewneck/dp/B07W7S2569/?ie=UTF8&tag=avadalove-20)
+### [2\. Women Crewneck Long-Sleeve](https://www.amazon.com/Amazon-Essentials-Womens-Standard-Crewneck/dp/B07W7S2569/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-Essentials-Womens-Standard-Crewneck/dp/B07W7S2569/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-Essentials-Womens-Standard-Crewneck/dp/B07W7S2569/?ie=UTF8&tag=giftable02-20)
 
 Are you looking for r a great gift for your beloved, consider the Women's Crewneck Long-Sleeve. It's a versatile and comfortable addition to her wardrobe, perfect for any occasion.
 
@@ -51,7 +51,7 @@ With its timeless crewneck design and knee-length cut, it accentuates her silhou
 
 ✔️ Knee-length cut flatters her silhouette with elegance
 
-[Buy from Amazon](https://www.amazon.com/Amazon-Essentials-Womens-Standard-Crewneck/dp/B07W7S2569/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-Essentials-Womens-Standard-Crewneck/dp/B07W7S2569/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Rainbow Scarf](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1318354793/blanket-scarf-women-rainbow-scarf)
 
@@ -71,9 +71,9 @@ Made from a soft and lightweight blend of acrylic and polyester, this oversized 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1318354793/blanket-scarf-women-rainbow-scarf)
 
-### [4\. Pillow Slippers](https://www.amazon.com/BRONAX-Slippers-Non-Slip-Bathroom-Comfortable/dp/B0957KMD4V?ie=UTF8&tag=avadalove-20)
+### [4\. Pillow Slippers](https://www.amazon.com/BRONAX-Slippers-Non-Slip-Bathroom-Comfortable/dp/B0957KMD4V?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BRONAX-Slippers-Non-Slip-Bathroom-Comfortable/dp/B0957KMD4V?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BRONAX-Slippers-Non-Slip-Bathroom-Comfortable/dp/B0957KMD4V?ie=UTF8&tag=giftable02-20)
 
 Let her unwind and create beautiful memories while slipping into the plush embrace of these slippers, designed to be her ultimate companions in every corner of her haven.
 
@@ -87,7 +87,7 @@ Crafted from high-quality materials and featuring a non-slip sole, these slipper
 
 ✔️ Memory foam insole offers luxurious cushioning
 
-[Buy from Amazon](https://www.amazon.com/BRONAX-Slippers-Non-Slip-Bathroom-Comfortable/dp/B0957KMD4V?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BRONAX-Slippers-Non-Slip-Bathroom-Comfortable/dp/B0957KMD4V?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Secret Heart Gloves](https://www.uncommongoods.com/product/secret-heart-gloves)
 
@@ -107,9 +107,9 @@ These gloves are not just an accessory; they're a statement of your deep connect
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/secret-heart-gloves)
 
-### [6\. Ninja BN751 Professional Plus Duo Blender](https://www.amazon.com/Ninja-BN751-Professional-Smoothies-Extractions/dp/B0BMGSZMW9?ie=UTF8&tag=avadalove-20)
+### [6\. Ninja BN751 Professional Plus Duo Blender](https://www.amazon.com/Ninja-BN751-Professional-Smoothies-Extractions/dp/B0BMGSZMW9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ninja-BN751-Professional-Smoothies-Extractions/dp/B0BMGSZMW9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ninja-BN751-Professional-Smoothies-Extractions/dp/B0BMGSZMW9?ie=UTF8&tag=giftable02-20)
 
 Black Friday is coming soon, so let's grab the Ninja BN751 Professional Plus Duo Blender for your loved woman. It's a kitchen powerhouse, making smoothies, soups, and more with ease.
 
@@ -123,7 +123,7 @@ Crafted with precision and innovation, this blender boasts a powerful motor and 
 
 ✔️ Sleek design and compact footprint complement her kitchen
 
-[Buy from Amazon](https://www.amazon.com/Ninja-BN751-Professional-Smoothies-Extractions/dp/B0BMGSZMW9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ninja-BN751-Professional-Smoothies-Extractions/dp/B0BMGSZMW9?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Rose Petal Heart Necklace](https://www.uncommongoods.com/product/rose-petal-heart-necklace)
 
@@ -179,9 +179,9 @@ The high-quality materials ensure durability and softness, making it perfect for
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1145181738/marcela-throw-pillow-cover-by)
 
-### [10\. REVLON Infrared Hair Dryer](https://www.amazon.com/REVLON-Watts-Infrared-Dryer-Drying/dp/B095JCHDMV?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. REVLON Infrared Hair Dryer](https://www.amazon.com/REVLON-Watts-Infrared-Dryer-Drying/dp/B095JCHDMV?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/REVLON-Watts-Infrared-Dryer-Drying/dp/B095JCHDMV?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/REVLON-Watts-Infrared-Dryer-Drying/dp/B095JCHDMV?th=1?ie=UTF8&tag=giftable02-20)
 
 If you want to show your care to your loved woman, the REVLON Infrared Hair Dryer is a perfect choice. It's a powerful yet gentle hair dryer that will make her daily hair routine a breeze.
 
@@ -195,7 +195,7 @@ The infrared technology penetrates the hair shaft, ensuring even drying from the
 
 ✔️ Versatile attachments for tailored styling options
 
-[Buy from Amazon](https://www.amazon.com/REVLON-Watts-Infrared-Dryer-Drying/dp/B095JCHDMV?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/REVLON-Watts-Infrared-Dryer-Drying/dp/B095JCHDMV?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Pearl Daisy Flower Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1242268230/pearl-daisy-flower-necklace-daisy-choker)
 
@@ -215,9 +215,9 @@ The adjustable chain ensures a perfect fit, and the high-quality materials guara
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1242268230/pearl-daisy-flower-necklace-daisy-choker)
 
-### [12\. Homeika Dog Grooming Kit](https://www.amazon.com/Homeika-Grooming-Suction-Nozzles-Deshedding/dp/B0BLS7BDVC?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Homeika Dog Grooming Kit](https://www.amazon.com/Homeika-Grooming-Suction-Nozzles-Deshedding/dp/B0BLS7BDVC?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homeika-Grooming-Suction-Nozzles-Deshedding/dp/B0BLS7BDVC?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homeika-Grooming-Suction-Nozzles-Deshedding/dp/B0BLS7BDVC?th=1?ie=UTF8&tag=giftable02-20)
 
 This Homeika Dog Grooming Kit is ideal for women who love taking care of their furry friends. She'll find everything she need for grooming in one convenient package.
 
@@ -231,11 +231,11 @@ This grooming kit is a versatile ensemble designed to make her feel like royalty
 
 ✔️ Powerful performance delivers effective results
 
-[Buy from Amazon](https://www.amazon.com/Homeika-Grooming-Suction-Nozzles-Deshedding/dp/B0BLS7BDVC?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homeika-Grooming-Suction-Nozzles-Deshedding/dp/B0BLS7BDVC?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Nekteck Shiatsu Foot Massager Machine](https://www.amazon.com/Nekteck-Massager-Soothing-Compression-Circulation/dp/B091CKD64N?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Nekteck Shiatsu Foot Massager Machine](https://www.amazon.com/Nekteck-Massager-Soothing-Compression-Circulation/dp/B091CKD64N?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nekteck-Massager-Soothing-Compression-Circulation/dp/B091CKD64N?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nekteck-Massager-Soothing-Compression-Circulation/dp/B091CKD64N?th=1?ie=UTF8&tag=giftable02-20)
 
 Your mother or your wife is often sitting for hours at work, which can affect their health. Why not shop this Nekteck Shiatsu Foot Massager Machine for her? It's a thoughtful gift that provides relaxation and relieves foot stress.
 
@@ -249,7 +249,7 @@ Its innovative features, such as soothing heat, air compression, and adjustable 
 
 ✔️ Premium materials ensure durability and luxury
 
-[Buy from Amazon](https://www.amazon.com/Nekteck-Massager-Soothing-Compression-Circulation/dp/B091CKD64N?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nekteck-Massager-Soothing-Compression-Circulation/dp/B091CKD64N?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Hand Forged Damascus Chef Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1476478486/hand-forged-damascus-chef-set-handmade)
 
@@ -287,9 +287,9 @@ The New Mom Gift Set is a loving embrace for both the mother and the newborn, en
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/new-mom-gift-set)
 
-### [16\. Red Tea Cup with Spoon Set](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Red Tea Cup with Spoon Set](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=giftable02-20)
 
 Perfect for women who love the enjoyment and self-care, the Red Tea Cup with Spoon Set is a charming gift choice. This set adds elegance to tea time, with its vibrant color and practicality.
 
@@ -303,11 +303,11 @@ This Tea Cup and Spoon Set is more than just tableware; it's a vessel of love an
 
 ✔️ Thoughtful gift to express love and connection
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Butterfly-Daughter-Lead-Free-Christmas/dp/B09JNRXJD6/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [17\. Galayou Indoor Home Security Camera](https://www.amazon.com/Galayou-Security-Cameras-Storage-G7/dp/B0BD5VXKGW/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Galayou Indoor Home Security Camera](https://www.amazon.com/Galayou-Security-Cameras-Storage-G7/dp/B0BD5VXKGW/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Galayou-Security-Cameras-Storage-G7/dp/B0BD5VXKGW/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Galayou-Security-Cameras-Storage-G7/dp/B0BD5VXKGW/?th=1?ie=UTF8&tag=giftable02-20)
 
 If you are seeking a gift for your wife, this Galayou Indoor Home Security Camera is a thoughtful choice. It ensures her peace of mind, allowing remote monitoring of home.
 
@@ -321,7 +321,7 @@ Designed for both professional photographers and hobbyists, the Black Friday Cam
 
 ✔️ Gift of memories: Capture life's beauty with each click
 
-[Buy from Amazon](https://www.amazon.com/Galayou-Security-Cameras-Storage-G7/dp/B0BD5VXKGW/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Galayou-Security-Cameras-Storage-G7/dp/B0BD5VXKGW/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Cute Mushroom Decorative Trinket Pot](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1412830234/cute-mushroom-decorative-trinket-pot)
 
@@ -341,9 +341,9 @@ Its intricate design and delicate features reflect the artistry of its creator, 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1412830234/cute-mushroom-decorative-trinket-pot)
 
-### [19\. VieBeauti Teeth Whitening Kit](https://www.amazon.com/VieBeauti-Premium-Whitening-Sensitivity-Effectively/dp/B07WT7C65V?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. VieBeauti Teeth Whitening Kit](https://www.amazon.com/VieBeauti-Premium-Whitening-Sensitivity-Effectively/dp/B07WT7C65V?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VieBeauti-Premium-Whitening-Sensitivity-Effectively/dp/B07WT7C65V?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VieBeauti-Premium-Whitening-Sensitivity-Effectively/dp/B07WT7C65V?th=1?ie=UTF8&tag=giftable02-20)
 
 This VieBeauti Teeth Whitening Kit is a wonderful gift for her on Black Friday. It offers an easy and effective way to brighten her smile.
 
@@ -357,7 +357,7 @@ With its gentle yet effective formula, this kit addresses sensitivity concerns, 
 
 ✔️ Premium materials reflect your thoughtful care
 
-[Buy from Amazon](https://www.amazon.com/VieBeauti-Premium-Whitening-Sensitivity-Effectively/dp/B07WT7C65V?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VieBeauti-Premium-Whitening-Sensitivity-Effectively/dp/B07WT7C65V?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Mother & Daughter Letter Book Set](https://www.uncommongoods.com/product/mother-daughter-letter-book-set)
 
@@ -413,9 +413,9 @@ Its versatile design allows her to flaunt her love for these special places whil
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/my-heart-is-at-the-parks-sweatshirt)
 
-### [23\. Sports Travel Duffel Bag with USB Charging Port](https://www.amazon.com/Duffel-Charging-Weekender-Overnight-Compartment/dp/B09J282WZD?th=1?ie=UTF8&tag=avadalove-20)
+### [23\. Sports Travel Duffel Bag with USB Charging Port](https://www.amazon.com/Duffel-Charging-Weekender-Overnight-Compartment/dp/B09J282WZD?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Duffel-Charging-Weekender-Overnight-Compartment/dp/B09J282WZD?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Duffel-Charging-Weekender-Overnight-Compartment/dp/B09J282WZD?th=1?ie=UTF8&tag=giftable02-20)
 
 This charging duffel bag empowers her to see the world anew, untethered by worries of running out of battery, and to uncover hidden gems with the assurance of staying connected.
 
@@ -429,7 +429,7 @@ This duffel features a built-in USB charging port, ensuring that her devices are
 
 ✔️ Spacious compartment offers ample storage for essentials
 
-[Buy from Amazon](https://www.amazon.com/Duffel-Charging-Weekender-Overnight-Compartment/dp/B09J282WZD?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Duffel-Charging-Weekender-Overnight-Compartment/dp/B09J282WZD?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Silk Skinny Scarf](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/803757191/silk-skinny-scarf-lilac-hand-painted)
 
@@ -449,9 +449,9 @@ Its skinny design allows for versatile styling – she can wear it around her ne
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/803757191/silk-skinny-scarf-lilac-hand-painted)
 
-### [25\. Brighten Color Correcting Powder Foundation](https://www.amazon.com/dp/B0725YPBPR?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Brighten Color Correcting Powder Foundation](https://www.amazon.com/dp/B0725YPBPR?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0725YPBPR?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0725YPBPR?th=1?ie=UTF8&tag=giftable02-20)
 
 No woman dislikes beauty, so this Brighten Color Correcting Powder Foundation is ideal for all your loved women on Black Friday. It enhances their natural beauty, providing flawless coverage and a radiant finish.
 
@@ -465,7 +465,7 @@ With dimensions of 4.5 x 1.8 x 1.2 inches, it's compact enough to slip into her 
 
 ✔️ Compact size for convenient touch-ups wherever she goes
 
-[Buy from Amazon](https://www.amazon.com/dp/B0725YPBPR?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0725YPBPR?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Tiny Purple Garnet Hoop Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/251689998/tiny-purple-garnet-hoop-earrings)
 
@@ -485,9 +485,9 @@ These hoops boast an intricate design that mirrors the complexity of your relati
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/251689998/tiny-purple-garnet-hoop-earrings)
 
-### [27\. Bed Head Little Tease Hair Crimper](https://www.amazon.com/Bed-Head-Crimper-Outrageous-Texture/dp/B00OCJZ0GE?ie=UTF8&tag=avadalove-20)
+### [27\. Bed Head Little Tease Hair Crimper](https://www.amazon.com/Bed-Head-Crimper-Outrageous-Texture/dp/B00OCJZ0GE?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bed-Head-Crimper-Outrageous-Texture/dp/B00OCJZ0GE?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bed-Head-Crimper-Outrageous-Texture/dp/B00OCJZ0GE?ie=UTF8&tag=giftable02-20)
 
 This Black Friday gift may be your ideal choice for your loved girl, like your daughter or niece. The Bed Head Little Tease Hair Crimper is a fun and stylish hair tool that adds volume and texture to her hair.
 
@@ -501,11 +501,11 @@ As she holds this tool in her hand, she holds the key to creating stunning textu
 
 ✔️ Tourmaline ceramic technology for smooth and shiny results
 
-[Buy from Amazon](https://www.amazon.com/Bed-Head-Crimper-Outrageous-Texture/dp/B00OCJZ0GE?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bed-Head-Crimper-Outrageous-Texture/dp/B00OCJZ0GE?ie=UTF8&tag=giftable02-20)
 
-### [28\. Karaoke Machine with Two Wireless Microphones](https://www.amazon.com/JYX-Wireless-Microphones-Bluetooth-Adjustment/dp/B095HS58YP?th=1?ie=UTF8&tag=avadalove-20)
+### [28\. Karaoke Machine with Two Wireless Microphones](https://www.amazon.com/JYX-Wireless-Microphones-Bluetooth-Adjustment/dp/B095HS58YP?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JYX-Wireless-Microphones-Bluetooth-Adjustment/dp/B095HS58YP?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JYX-Wireless-Microphones-Bluetooth-Adjustment/dp/B095HS58YP?th=1?ie=UTF8&tag=giftable02-20)
 
 If you want to have a lovely gift for a singer at your home, this Black Friday Karaoke Machine with Two Wireless Microphones is a fantastic choice. You can host fun karaoke nights and enjoy quality time with her.
 
@@ -519,7 +519,7 @@ As the music flows and voices harmonize, she'll experience the joy of shared mom
 
 ✔️ Adjustable echo and volume controls for personalized performances
 
-[Buy from Amazon](https://www.amazon.com/JYX-Wireless-Microphones-Bluetooth-Adjustment/dp/B095HS58YP?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JYX-Wireless-Microphones-Bluetooth-Adjustment/dp/B095HS58YP?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Handmade Alexandrite Birthstone Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1348120443/handmade-alexandrite-birthstone-necklace)
 
@@ -539,9 +539,9 @@ With each glance at the alexandrite, she'll be reminded of the ever-changing bea
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1348120443/handmade-alexandrite-birthstone-necklace)
 
-### [30\. Berberine Supplement](https://www.amazon.com/Berberine-Supplement-4700mg-Cinnamon-Metabolism/dp/B091MJVVZ7?ie=UTF8&tag=avadalove-20)
+### [30\. Berberine Supplement](https://www.amazon.com/Berberine-Supplement-4700mg-Cinnamon-Metabolism/dp/B091MJVVZ7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Berberine-Supplement-4700mg-Cinnamon-Metabolism/dp/B091MJVVZ7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Berberine-Supplement-4700mg-Cinnamon-Metabolism/dp/B091MJVVZ7?ie=UTF8&tag=giftable02-20)
 
 The Berberine Supplement is a thoughtful choice for your loved one's well-being. It supports her health goals with natural ingredients and encourages a healthier lifestyle.
 
@@ -555,7 +555,7 @@ As she takes these capsules, let her feel the warmth of your care and commitment
 
 ✔️ Thoughtful reminder of self-care and love
 
-[Buy from Amazon](https://www.amazon.com/Berberine-Supplement-4700mg-Cinnamon-Metabolism/dp/B091MJVVZ7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Berberine-Supplement-4700mg-Cinnamon-Metabolism/dp/B091MJVVZ7?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Papaya Robe](https://www.uncommongoods.com/product/papaya-robe)
 
@@ -575,9 +575,9 @@ Delight her senses with the touch of the finest materials, a reminder of your de
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/papaya-robe)
 
-### [32\. Womens Denim Dress](https://www.amazon.com/dp/B0C27FRSL2/?ie=UTF8&tag=avadalove-20)
+### [32\. Womens Denim Dress](https://www.amazon.com/dp/B0C27FRSL2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0C27FRSL2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0C27FRSL2/?ie=UTF8&tag=giftable02-20)
 
 This Women's Denim Dress gift may elevate your wife's beauty. Its stylish design and comfortable fabric make it a perfect choice. Whether for a casual day out or a special occasion, it's versatile and chic.
 
@@ -591,7 +591,7 @@ Made from high-quality materials, its intricate details and luxurious feel refle
 
 ✔️ A versatile piece for special occasions and everyday beauty
 
-[Buy from Amazon](https://www.amazon.com/dp/B0C27FRSL2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0C27FRSL2/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Personalized Bar Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1210318545/personalized-bar-bracelet-for-women)
 
@@ -611,9 +611,9 @@ Crafted with precision and love, this bracelet is a symbol of the special connec
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1210318545/personalized-bar-bracelet-for-women)
 
-### [34\. Butterfly Suncatcher](https://www.amazon.com/KY-BOSAM-Butterfly-Sun-Catchers-Valentines/dp/B081RNNR62/?th=1?ie=UTF8&tag=avadalove-20)
+### [34\. Butterfly Suncatcher](https://www.amazon.com/KY-BOSAM-Butterfly-Sun-Catchers-Valentines/dp/B081RNNR62/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/KY-BOSAM-Butterfly-Sun-Catchers-Valentines/dp/B081RNNR62/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KY-BOSAM-Butterfly-Sun-Catchers-Valentines/dp/B081RNNR62/?th=1?ie=UTF8&tag=giftable02-20)
 
 Her house would be more adorable with this Butterfly Suncatcher, so don't miss it on Black Friday. It's a charming and colorful gift that adds beauty to any space.
 
@@ -627,11 +627,11 @@ This suncatcher features delicate crystals that refract sunlight into a cascade 
 
 ✔️ Handcrafted with intricate details and adorned with crystals
 
-[Buy from Amazon](https://www.amazon.com/KY-BOSAM-Butterfly-Sun-Catchers-Valentines/dp/B081RNNR62/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KY-BOSAM-Butterfly-Sun-Catchers-Valentines/dp/B081RNNR62/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [35\. Sport Compatible Watch Band](https://www.amazon.com/Compatible-Silicone-Waterproof-Wristbands-iWatch/dp/B09KNC3RCR?th=1?ie=UTF8&tag=avadalove-20) 
+### [35\. Sport Compatible Watch Band](https://www.amazon.com/Compatible-Silicone-Waterproof-Wristbands-iWatch/dp/B09KNC3RCR?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Compatible-Silicone-Waterproof-Wristbands-iWatch/dp/B09KNC3RCR?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Compatible-Silicone-Waterproof-Wristbands-iWatch/dp/B09KNC3RCR?th=1?ie=UTF8&tag=giftable02-20)
 
 This Sport Compatible Watch Band will absolutely make your little girl happy at first sight on Black Friday. It's a stylish and functional accessory for her smartwatch so buy it now!
 
@@ -645,7 +645,7 @@ Designed for her iWatch, it's not just a band; it's a symbol of her dedication t
 
 ✔️ High-quality silicone for ultimate comfort during workouts
 
-[Buy from Amazon](https://www.amazon.com/Compatible-Silicone-Waterproof-Wristbands-iWatch/dp/B09KNC3RCR?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Compatible-Silicone-Waterproof-Wristbands-iWatch/dp/B09KNC3RCR?th=1?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

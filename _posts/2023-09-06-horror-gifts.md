@@ -17,9 +17,9 @@ We'll delve into the eerie and extraordinary in this guide to horror gifts. Pict
 
 So, without further ado, let's dive into the realm of horror gifts and discover the perfect presents that will awaken the dark side of your loved ones. Prepare to unleash the mystery and excitement as you explore this unique collection, guaranteed to leave a lasting impression on anyone who dares to receive them. Don't wait any longer; the macabre awaits!
 
-### [1\. Don’t Get Stabbed Knife Set](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=avadalove-20)
+### [1\. Don’t Get Stabbed Knife Set](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=giftable02-20)
 
 This quirky and deceptive gift adds a unique twist to any gathering, creating moments of suspense and amusement.
 
@@ -35,11 +35,11 @@ Each set includes three knives: the Bloody Cleaver, Sinister Dagger, and Eerie A
 
 ✔️ Perfect for horror enthusiasts and themed events
 
-[Buy from Amazon](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Horror Movie Set Wooden Spoons](https://www.amazon.com/Horror-Movie-Set-Wooden-Spoons/dp/B0BYNLLP2Z/?ie=UTF8&tag=avadalove-20)
+### [2\. Horror Movie Set Wooden Spoons](https://www.amazon.com/Horror-Movie-Set-Wooden-Spoons/dp/B0BYNLLP2Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Horror-Movie-Set-Wooden-Spoons/dp/B0BYNLLP2Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Horror-Movie-Set-Wooden-Spoons/dp/B0BYNLLP2Z/?ie=UTF8&tag=giftable02-20)
 
 These beautifully crafted spoons depict iconic horror movie characters, adding a touch of frightful fun to your cooking routine.
 
@@ -53,11 +53,11 @@ Made from durable and eco-friendly beechwood, these spoons showcase the individu
 
 ✔️ Adds a spooky twist to cooking and serving
 
-[Buy from Amazon](https://www.amazon.com/Horror-Movie-Set-Wooden-Spoons/dp/B0BYNLLP2Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Horror-Movie-Set-Wooden-Spoons/dp/B0BYNLLP2Z/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Endless Games Horror Trivia Card Game](https://www.amazon.com/Endless-Games-Horror-Trivia-Card/dp/B07JVF73RY/?ie=UTF8&tag=avadalove-20)
+### [3\. Endless Games Horror Trivia Card Game](https://www.amazon.com/Endless-Games-Horror-Trivia-Card/dp/B07JVF73RY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Endless-Games-Horror-Trivia-Card/dp/B07JVF73RY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Endless-Games-Horror-Trivia-Card/dp/B07JVF73RY/?ie=UTF8&tag=giftable02-20)
 
 This thrilling game features a vast array of questions that will test even the most die-hard horror fans.
 
@@ -73,11 +73,11 @@ With over 1,000 trivia questions, this game guarantees endless hours of spine-ch
 
 ✔️ Encourages bonding over shared interests
 
-[Buy from Amazon](https://www.amazon.com/Endless-Games-Horror-Trivia-Card/dp/B07JVF73RY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Endless-Games-Horror-Trivia-Card/dp/B07JVF73RY/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Christmas Horror Michael Inspired Stemless Wine Glass](https://www.amazon.com/Christmas-Horror-Michael-Inspired-Stemless/dp/B099DX798C/?ie=UTF8&tag=avadalove-20)
+### [4\. Christmas Horror Michael Inspired Stemless Wine Glass](https://www.amazon.com/Christmas-Horror-Michael-Inspired-Stemless/dp/B099DX798C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-Horror-Michael-Inspired-Stemless/dp/B099DX798C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-Horror-Michael-Inspired-Stemless/dp/B099DX798C/?ie=UTF8&tag=giftable02-20)
 
 This scary yet festive glassware features a unique design inspired by a classic horror movie character, adding a hauntingly delightful vibe to your Christmas celebrations.
 
@@ -93,7 +93,7 @@ The stemless wine glass has a capacity of 15 ounces, perfect for enjoying your f
 
 ✔️ Memorable gift for horror fans during the festive season
 
-[Buy from Amazon](https://www.amazon.com/Christmas-Horror-Michael-Inspired-Stemless/dp/B099DX798C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-Horror-Michael-Inspired-Stemless/dp/B099DX798C/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Death for Dinner Horror Movie Cookbook](https://www.uncommongoods.com/product/death-for-dinner-horror-movie-cookbook)
 
@@ -113,9 +113,9 @@ The cookbook contains a collection of 60 recipes, beautifully illustrated with c
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/death-for-dinner-horror-movie-cookbook)
 
-### [6\. Funny Horror Movie Fan Halloween T-Shirt](https://www.amazon.com/Funny-Horror-Movie-Fan-Halloween/dp/B07VJK1B3W/?ie=UTF8&tag=avadalove-20)
+### [6\. Funny Horror Movie Fan Halloween T-Shirt](https://www.amazon.com/Funny-Horror-Movie-Fan-Halloween/dp/B07VJK1B3W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Horror-Movie-Fan-Halloween/dp/B07VJK1B3W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Horror-Movie-Fan-Halloween/dp/B07VJK1B3W/?ie=UTF8&tag=giftable02-20)
 
 This shirt not only showcases your unique style but also invites conversation and connection with fellow horror aficionados.
 
@@ -129,11 +129,11 @@ The shirt is made from 100% cotton and available in various sizes, ensuring a pe
 
 ✔️ Sparks connections with like-minded individuals
 
-[Buy from Amazon](https://www.amazon.com/Funny-Horror-Movie-Fan-Halloween/dp/B07VJK1B3W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Horror-Movie-Fan-Halloween/dp/B07VJK1B3W/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Birthday Horror Character Party Supplies](https://www.amazon.com/Birthday-Decorations-Characters-Supplies-Halloween/dp/B0C85QGD4G?ie=UTF8&tag=avadalove-20)
+### [7\. Birthday Horror Character Party Supplies](https://www.amazon.com/Birthday-Decorations-Characters-Supplies-Halloween/dp/B0C85QGD4G?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Decorations-Characters-Supplies-Halloween/dp/B0C85QGD4G?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Decorations-Characters-Supplies-Halloween/dp/B0C85QGD4G?ie=UTF8&tag=giftable02-20)
 
 This complete party kit includes everything you need to create a spine-chilling atmosphere, from eerie decorations to haunting tableware.
 
@@ -149,11 +149,11 @@ The set comprises 127 pieces, including banners, balloons, tablecloth, plates, c
 
 ✔️ Delights horror enthusiasts of all ages
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Decorations-Characters-Supplies-Halloween/dp/B0C85QGD4G?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Decorations-Characters-Supplies-Halloween/dp/B0C85QGD4G?ie=UTF8&tag=giftable02-20)
 
-### [8\. Horror Movie Character Sticky Notes](https://www.amazon.com/Halloween-Character-Characters-Self-Adhesive-Removable/dp/B09Z24YX3H/?ie=UTF8&tag=avadalove-20)
+### [8\. Horror Movie Character Sticky Notes](https://www.amazon.com/Halloween-Character-Characters-Self-Adhesive-Removable/dp/B09Z24YX3H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Character-Characters-Self-Adhesive-Removable/dp/B09Z24YX3H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Character-Characters-Self-Adhesive-Removable/dp/B09Z24YX3H/?ie=UTF8&tag=giftable02-20)
 
 These removable and self-adhesive sticky notes feature iconic horror characters, allowing you to transform any room into a haunting haven for Halloween or horror-themed events.
 
@@ -169,11 +169,11 @@ The set includes 27 decals, ranging from witches and zombies to vampires and mum
 
 ✔️ Allows for creative and unique interior designs
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Character-Characters-Self-Adhesive-Removable/dp/B09Z24YX3H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Character-Characters-Self-Adhesive-Removable/dp/B09Z24YX3H/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Vintage Horror Movie Posters Set](https://www.amazon.com/Vintage-Posters-Classic-Suspense-Unframed/dp/B0BL2Q186F/?ie=UTF8&tag=avadalove-20)
+### [9\. Vintage Horror Movie Posters Set](https://www.amazon.com/Vintage-Posters-Classic-Suspense-Unframed/dp/B0BL2Q186F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Posters-Classic-Suspense-Unframed/dp/B0BL2Q186F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Posters-Classic-Suspense-Unframed/dp/B0BL2Q186F/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the world of classic suspense with the Vintage Horror Movie Posters Set.
 
@@ -189,11 +189,11 @@ These unframed posters bring back the eerie charm of iconic horror films, adding
 
 ✔️ Perfect gift for fans of vintage horror movies
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Posters-Classic-Suspense-Unframed/dp/B0BL2Q186F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Posters-Classic-Suspense-Unframed/dp/B0BL2Q186F/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Nightmare Chopsticks Loot Crate Exclusive](https://www.amazon.com/Loot-Crate-Exclusive-Nightmare-Chopsticks/dp/B01M5D2TAY/?ie=UTF8&tag=avadalove-20)
+### [10\. Nightmare Chopsticks Loot Crate Exclusive](https://www.amazon.com/Loot-Crate-Exclusive-Nightmare-Chopsticks/dp/B01M5D2TAY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Loot-Crate-Exclusive-Nightmare-Chopsticks/dp/B01M5D2TAY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Loot-Crate-Exclusive-Nightmare-Chopsticks/dp/B01M5D2TAY/?ie=UTF8&tag=giftable02-20)
 
 These chilling chopsticks feature a unique design inspired by iconic horror movie villains, turning every meal into a spooky feast.
 
@@ -209,11 +209,11 @@ Made from durable materials, these chopsticks provide a practical and entertaini
 
 ✔️ Memorable gift for horror movie fans
 
-[Buy from Amazon](https://www.amazon.com/Loot-Crate-Exclusive-Nightmare-Chopsticks/dp/B01M5D2TAY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Loot-Crate-Exclusive-Nightmare-Chopsticks/dp/B01M5D2TAY/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Women’s Horror Movie Cosmetic Toiletry Storage Bag](https://www.amazon.com/scakoko-Womens-Cosmetic-Toiletry-Storage/dp/B07ZZ3WSLB/?ie=UTF8&tag=avadalove-20)
+### [11\. Women’s Horror Movie Cosmetic Toiletry Storage Bag](https://www.amazon.com/scakoko-Womens-Cosmetic-Toiletry-Storage/dp/B07ZZ3WSLB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/scakoko-Womens-Cosmetic-Toiletry-Storage/dp/B07ZZ3WSLB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/scakoko-Womens-Cosmetic-Toiletry-Storage/dp/B07ZZ3WSLB/?ie=UTF8&tag=giftable02-20)
 
 Keep your beauty essentials organized and showcase your love for horror movies with the Women's Horror Movie Cosmetic Toiletry Storage Bag.
 
@@ -227,11 +227,11 @@ The storage bag is made from high-quality PU leather and measures 9.4 x 5.1 x 2.
 
 ✔️ Durable and easy-to-clean PU leather material
 
-[Buy from Amazon](https://www.amazon.com/scakoko-Womens-Cosmetic-Toiletry-Storage/dp/B07ZZ3WSLB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/scakoko-Womens-Cosmetic-Toiletry-Storage/dp/B07ZZ3WSLB/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Zombie Hands Color-Changing Mug](https://www.amazon.com/Changing-Zombie-Mug-Sensitive-Ceramic/dp/B01N4LA5BH/?ie=UTF8&tag=avadalove-20)
+### [12\. Zombie Hands Color-Changing Mug](https://www.amazon.com/Changing-Zombie-Mug-Sensitive-Ceramic/dp/B01N4LA5BH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Changing-Zombie-Mug-Sensitive-Ceramic/dp/B01N4LA5BH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Changing-Zombie-Mug-Sensitive-Ceramic/dp/B01N4LA5BH/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of horror to your coffee breaks with the Zombie Hands Color-Changing Mug.
 
@@ -247,7 +247,7 @@ This ceramic mug features a chilling design of zombie hands that change when fil
 
 ✔️ Perfect conversation starter for horror enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Changing-Zombie-Mug-Sensitive-Ceramic/dp/B01N4LA5BH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Changing-Zombie-Mug-Sensitive-Ceramic/dp/B01N4LA5BH/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Horror Movie Sunflower Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1516627521/horror-movie-sunflower-tumbler-horror)
 
@@ -269,9 +269,9 @@ The tumbler has a generous capacity of 20 ounces, making it suitable for both ho
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1516627521/horror-movie-sunflower-tumbler-horror)
 
-### [14\. Horror Movie – Inspired Novelty Socks](https://www.amazon.com/HAPPYPOP-Novelty-Horror-Movie-Halloween/dp/B0C3GFXZZX/?ie=UTF8&tag=avadalove-20)
+### [14\. Horror Movie – Inspired Novelty Socks](https://www.amazon.com/HAPPYPOP-Novelty-Horror-Movie-Halloween/dp/B0C3GFXZZX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HAPPYPOP-Novelty-Horror-Movie-Halloween/dp/B0C3GFXZZX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HAPPYPOP-Novelty-Horror-Movie-Halloween/dp/B0C3GFXZZX/?ie=UTF8&tag=giftable02-20)
 
 Step into the world of horror with the Horror Movie-Inspired Novelty Socks. These spooky and stylish socks feature vibrant and chilling designs inspired by classic horror movies.
 
@@ -287,11 +287,11 @@ Made from a blend of comfortable and durable materials, these socks are perfect 
 
 ✔️ Great gift for horror movie enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/HAPPYPOP-Novelty-Horror-Movie-Halloween/dp/B0C3GFXZZX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HAPPYPOP-Novelty-Horror-Movie-Halloween/dp/B0C3GFXZZX/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Classic Michael Chainsaw Car Decal](https://www.amazon.com/Car-Decal-Classic-Michael-Chainsaw/dp/B08L35NPMH/?ie=UTF8&tag=avadalove-20)
+### [15\. Classic Michael Chainsaw Car Decal](https://www.amazon.com/Car-Decal-Classic-Michael-Chainsaw/dp/B08L35NPMH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Car-Decal-Classic-Michael-Chainsaw/dp/B08L35NPMH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Car-Decal-Classic-Michael-Chainsaw/dp/B08L35NPMH/?ie=UTF8&tag=giftable02-20)
 
 Display your love for horror movie classics with the Classic Michael Chainsaw Car Decal!
 
@@ -307,7 +307,7 @@ It's the perfect way to personalize your car and showcase your passion for horro
 
 ✔️ Ideal gift for horror movie enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Car-Decal-Classic-Michael-Chainsaw/dp/B08L35NPMH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Car-Decal-Classic-Michael-Chainsaw/dp/B08L35NPMH/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. 100 Horror Movies Scratch Off Chart](https://www.uncommongoods.com/product/100-horror-movies-scratch-off-chart)
 
@@ -329,9 +329,9 @@ The chart is printed on high-quality paper with a stunning design, making it a g
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/100-horror-movies-scratch-off-chart)
 
-### [17\. Spooky and Supernatural Horror Stickers](https://www.amazon.com/Horror-Stickers-Spooky-Supernatural-Halloween/dp/B09WN8JXG1/?ie=UTF8&tag=avadalove-20)
+### [17\. Spooky and Supernatural Horror Stickers](https://www.amazon.com/Horror-Stickers-Spooky-Supernatural-Halloween/dp/B09WN8JXG1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Horror-Stickers-Spooky-Supernatural-Halloween/dp/B09WN8JXG1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Horror-Stickers-Spooky-Supernatural-Halloween/dp/B09WN8JXG1/?ie=UTF8&tag=giftable02-20)
 
 This collection of chilling stickers features eerie and captivating designs inspired by classic horror themes.
 
@@ -347,11 +347,11 @@ From creepy creatures to haunted houses, these stickers are perfect for decorati
 
 ✔️ Great addition to Halloween-themed crafts and decorations
 
-[Buy from Amazon](https://www.amazon.com/Horror-Stickers-Spooky-Supernatural-Halloween/dp/B09WN8JXG1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Horror-Stickers-Spooky-Supernatural-Halloween/dp/B09WN8JXG1/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Nightmare Before Christmas Creative Handmade Interior](https://www.amazon.com/Nightmare-Christmas-Creative-Handmade-Interior/dp/B096ZMPPMM/?ie=UTF8&tag=avadalove-20)
+### [18\. Nightmare Before Christmas Creative Handmade Interior](https://www.amazon.com/Nightmare-Christmas-Creative-Handmade-Interior/dp/B096ZMPPMM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nightmare-Christmas-Creative-Handmade-Interior/dp/B096ZMPPMM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nightmare-Christmas-Creative-Handmade-Interior/dp/B096ZMPPMM/?ie=UTF8&tag=giftable02-20)
 
 This meticulously crafted interior decor captures the essence of Tim Burton's iconic movie, creating a hauntingly beautiful atmosphere for the Halloween season.
 
@@ -367,11 +367,11 @@ The creative handmade interior is crafted with attention to detail, using premiu
 
 ✔️ Ideal centerpiece for Halloween-themed gatherings
 
-[Buy from Amazon](https://www.amazon.com/Nightmare-Christmas-Creative-Handmade-Interior/dp/B096ZMPPMM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nightmare-Christmas-Creative-Handmade-Interior/dp/B096ZMPPMM/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Horror Movie Inspired Keychain](https://www.amazon.com/HOLLP-Horror-Keychain-Halloween-Jewelry/dp/B08ZDQ2CHX/?ie=UTF8&tag=avadalove-20)
+### [19\. Horror Movie Inspired Keychain](https://www.amazon.com/HOLLP-Horror-Keychain-Halloween-Jewelry/dp/B08ZDQ2CHX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HOLLP-Horror-Keychain-Halloween-Jewelry/dp/B08ZDQ2CHX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HOLLP-Horror-Keychain-Halloween-Jewelry/dp/B08ZDQ2CHX/?ie=UTF8&tag=giftable02-20)
 
 This keychain features a spooky and captivating design, perfect for horror enthusiasts to showcase their passion for the genre.
 
@@ -387,11 +387,11 @@ The keychain is made from premium materials, ensuring its longevity and resistan
 
 ✔️ Ideal gift for horror movie fans and collectors
 
-[Buy from Amazon](https://www.amazon.com/HOLLP-Horror-Keychain-Halloween-Jewelry/dp/B08ZDQ2CHX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HOLLP-Horror-Keychain-Halloween-Jewelry/dp/B08ZDQ2CHX/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Halloween Horror Welcome Sign](https://www.amazon.com/Halloween-Welcome-Characters-Decorations-Farmhouse/dp/B0C8SX6DLN/?ie=UTF8&tag=avadalove-20)
+### [20\. Halloween Horror Welcome Sign](https://www.amazon.com/Halloween-Welcome-Characters-Decorations-Farmhouse/dp/B0C8SX6DLN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Welcome-Characters-Decorations-Farmhouse/dp/B0C8SX6DLN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Welcome-Characters-Decorations-Farmhouse/dp/B0C8SX6DLN/?ie=UTF8&tag=giftable02-20)
 
 This charming and whimsical decor features spooky characters like witches, ghosts, and pumpkins, creating a festive atmosphere for the Halloween season.
 
@@ -407,11 +407,11 @@ The decorations are made from high-quality materials, ensuring durability for bo
 
 ✔️ Perfect decoration for Halloween enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Welcome-Characters-Decorations-Farmhouse/dp/B0C8SX6DLN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Welcome-Characters-Decorations-Farmhouse/dp/B0C8SX6DLN/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Ghost Beanie Hat](https://www.amazon.com/Ozrhuve-Cute-Ghost-Beanie-Black/dp/B09F89JLKW/?ie=UTF8&tag=avadalove-20)
+### [21\. Ghost Beanie Hat](https://www.amazon.com/Ozrhuve-Cute-Ghost-Beanie-Black/dp/B09F89JLKW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ozrhuve-Cute-Ghost-Beanie-Black/dp/B09F89JLKW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ozrhuve-Cute-Ghost-Beanie-Black/dp/B09F89JLKW/?ie=UTF8&tag=giftable02-20)
 
 This adorable beanie features a ghost-inspired design, making it a delightful addition to your winter wardrobe.
 
@@ -427,7 +427,7 @@ Made from soft and comfortable materials, this beanie ensures a snug fit and gen
 
 ✔️ Great gift for those who adore ghostly cuteness
 
-[Buy from Amazon](https://www.amazon.com/Ozrhuve-Cute-Ghost-Beanie-Black/dp/B09F89JLKW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ozrhuve-Cute-Ghost-Beanie-Black/dp/B09F89JLKW/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. In This House We…Horror Gift Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1516179854/in-this-house-wehorror-gift-frame-scary)
 
@@ -449,9 +449,9 @@ The frame is crafted from high-quality materials, ensuring its durability and lo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1516179854/in-this-house-wehorror-gift-frame-scary)
 
-### [23\. Jeffrey Dahmer Towel](https://www.amazon.com/WCGXKO-Kitchen-Killer-Housewarming-Jeffrey/dp/B09W58QHW2/?ie=UTF8&tag=avadalove-20)
+### [23\. Jeffrey Dahmer Towel](https://www.amazon.com/WCGXKO-Kitchen-Killer-Housewarming-Jeffrey/dp/B09W58QHW2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WCGXKO-Kitchen-Killer-Housewarming-Jeffrey/dp/B09W58QHW2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WCGXKO-Kitchen-Killer-Housewarming-Jeffrey/dp/B09W58QHW2/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of humor and horror to your kitchen with the WCGXKO "If You Can’t Beat’ Em Eat’ Em" Kitchen Towel.
 
@@ -467,11 +467,11 @@ The kitchen towel is made from high-quality and absorbent materials, making it p
 
 ✔️ Makes a delightful and entertaining gift for horror enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/WCGXKO-Kitchen-Killer-Housewarming-Jeffrey/dp/B09W58QHW2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WCGXKO-Kitchen-Killer-Housewarming-Jeffrey/dp/B09W58QHW2/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Horror Classic Movie Characters Acrylic Keyring](https://www.amazon.com/Horror-Characters-Accessories-Decorations-Rotatable/dp/B09DG6DSY2/?ie=UTF8&tag=avadalove-20)
+### [24\. Horror Classic Movie Characters Acrylic Keyring](https://www.amazon.com/Horror-Characters-Accessories-Decorations-Rotatable/dp/B09DG6DSY2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Horror-Characters-Accessories-Decorations-Rotatable/dp/B09DG6DSY2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Horror-Characters-Accessories-Decorations-Rotatable/dp/B09DG6DSY2/?ie=UTF8&tag=giftable02-20)
 
 This set of keyrings features iconic figures from classic horror films, allowing you to carry a piece of horror history with you wherever you go.
 
@@ -487,11 +487,11 @@ Each keyring is made from high-quality acrylic, ensuring durability and a clear,
 
 ✔️ Ideal gift for horror movie enthusiasts and collectors
 
-[Buy from Amazon](https://www.amazon.com/Horror-Characters-Accessories-Decorations-Rotatable/dp/B09DG6DSY2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Horror-Characters-Accessories-Decorations-Rotatable/dp/B09DG6DSY2/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Trivial Pursuit Horror Ultimate Edition](https://www.amazon.com/Trivial-Ultimate-Featuring-Questions-Collectible/dp/B0851P2W46/?ie=UTF8&tag=avadalove-20)
+### [25\. Trivial Pursuit Horror Ultimate Edition](https://www.amazon.com/Trivial-Ultimate-Featuring-Questions-Collectible/dp/B0851P2W46/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Trivial-Ultimate-Featuring-Questions-Collectible/dp/B0851P2W46/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Trivial-Ultimate-Featuring-Questions-Collectible/dp/B0851P2W46/?ie=UTF8&tag=giftable02-20)
 
 This spine-chilling trivia game is perfect for horror movie fanatics and enthusiasts of all things creepy.
 
@@ -507,11 +507,11 @@ The game includes a beautifully designed game board, question cards, and playing
 
 ✔️ Perfect addition to game nights and Halloween parties
 
-[Buy from Amazon](https://www.amazon.com/Trivial-Ultimate-Featuring-Questions-Collectible/dp/B0851P2W46/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Trivial-Ultimate-Featuring-Questions-Collectible/dp/B0851P2W46/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Horror Movie Floral Glass](https://www.etsy.com/listing/1506019716/horror-movie-floral-glass-can-preorder?ie=UTF8&tag=avadalove-20)
+### [26\. Horror Movie Floral Glass](https://www.etsy.com/listing/1506019716/horror-movie-floral-glass-can-preorder?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/1506019716/horror-movie-floral-glass-can-preorder?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/1506019716/horror-movie-floral-glass-can-preorder?ie=UTF8&tag=giftable02-20)
 
 This enchanting glassware features a unique design that combines the beauty of delicate floral patterns with iconic elements from classic horror movies.
 
@@ -527,11 +527,11 @@ The glass is crafted from high-quality materials, ensuring its durability and a 
 
 ✔️ Ideal gift for horror enthusiasts and fans of unique glassware
 
-[Buy from Amazon](https://www.etsy.com/listing/1506019716/horror-movie-floral-glass-can-preorder?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/1506019716/horror-movie-floral-glass-can-preorder?ie=UTF8&tag=giftable02-20)
 
-### [27\. Horror Throw Blanket](https://www.amazon.com/Horror-Blanket-Halloween-Flannel-Seasons/dp/B0B9NFMQPX/?ie=UTF8&tag=avadalove-20)
+### [27\. Horror Throw Blanket](https://www.amazon.com/Horror-Blanket-Halloween-Flannel-Seasons/dp/B0B9NFMQPX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Horror-Blanket-Halloween-Flannel-Seasons/dp/B0B9NFMQPX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Horror-Blanket-Halloween-Flannel-Seasons/dp/B0B9NFMQPX/?ie=UTF8&tag=giftable02-20)
 
 This chillingly stylish blanket features haunting designs inspired by classic horror themes, making it the perfect companion for your spooky movie nights or Halloween gatherings.
 
@@ -545,7 +545,7 @@ The throw blanket is made from soft and luxurious materials, providing optimal c
 
 ✔️ Adds a spooky touch to your home decor
 
-[Buy from Amazon](https://www.amazon.com/Horror-Blanket-Halloween-Flannel-Seasons/dp/B0B9NFMQPX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Horror-Blanket-Halloween-Flannel-Seasons/dp/B0B9NFMQPX/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Halloween Tabletop Shadow Figures](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297179513/halloween-tabletop-shadow-figures)
 
@@ -567,9 +567,9 @@ The tabletop shadow figures are intricately crafted, featuring spooky and ghostl
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297179513/halloween-tabletop-shadow-figures)
 
-### [29\. Village Candle Haunted Mansion Large Glass](https://www.amazon.com/Village-Candle-Haunted-Mansion-Scented/dp/B0881D172M/?ie=UTF8&tag=avadalove-20)
+### [29\. Village Candle Haunted Mansion Large Glass](https://www.amazon.com/Village-Candle-Haunted-Mansion-Scented/dp/B0881D172M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Village-Candle-Haunted-Mansion-Scented/dp/B0881D172M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Village-Candle-Haunted-Mansion-Scented/dp/B0881D172M/?ie=UTF8&tag=giftable02-20)
 
 This large glass candle features a captivating design inspired by a haunted mansion, creating a spooky and atmospheric ambiance in any room.
 
@@ -585,11 +585,11 @@ The candle is made from high-quality wax and is carefully poured into a large gl
 
 ✔️ Makes a fantastic centerpiece or decorative accent
 
-[Buy from Amazon](https://www.amazon.com/Village-Candle-Haunted-Mansion-Scented/dp/B0881D172M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Village-Candle-Haunted-Mansion-Scented/dp/B0881D172M/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Horror Movie Posters](https://www.amazon.com/CCWACPP-Merchandise-Pictures-Collectibles-12x18inch/dp/B09Z1S5Z7R/?ie=UTF8&tag=avadalove-20)
+### [30\. Horror Movie Posters](https://www.amazon.com/CCWACPP-Merchandise-Pictures-Collectibles-12x18inch/dp/B09Z1S5Z7R/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CCWACPP-Merchandise-Pictures-Collectibles-12x18inch/dp/B09Z1S5Z7R/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CCWACPP-Merchandise-Pictures-Collectibles-12x18inch/dp/B09Z1S5Z7R/?ie=UTF8&tag=giftable02-20)
 
 This chillingly captivating artwork showcases iconic horror movie characters in a unique and artistic style, making it the perfect addition to your horror-themed decor.
 
@@ -605,11 +605,11 @@ The artwork comes framed, adding an extra touch of elegance and sophistication t
 
 ✔️ Great gift idea for fans of classic horror films
 
-[Buy from Amazon](https://www.amazon.com/CCWACPP-Merchandise-Pictures-Collectibles-12x18inch/dp/B09Z1S5Z7R/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CCWACPP-Merchandise-Pictures-Collectibles-12x18inch/dp/B09Z1S5Z7R/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Gothic Horror Displayable Figurines](https://www.amazon.com/World-Wonders-Gifts-Halloween-Decorations/dp/B08C68G6MG/?ie=UTF8&tag=avadalove-20)
+### [31\. Gothic Horror Displayable Figurines](https://www.amazon.com/World-Wonders-Gifts-Halloween-Decorations/dp/B08C68G6MG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/World-Wonders-Gifts-Halloween-Decorations/dp/B08C68G6MG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/World-Wonders-Gifts-Halloween-Decorations/dp/B08C68G6MG/?ie=UTF8&tag=giftable02-20)
 
 This hauntingly beautiful figurine pays homage to the legendary author Edgar Allan Poe, capturing the essence of his gothic and macabre literary works.
 
@@ -625,7 +625,7 @@ The figurine is exquisitely crafted with attention to detail, portraying Edgar A
 
 ✔️ Adds a touch of gothic elegance to your home decor
 
-[Buy from Amazon](https://www.amazon.com/World-Wonders-Gifts-Halloween-Decorations/dp/B08C68G6MG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/World-Wonders-Gifts-Halloween-Decorations/dp/B08C68G6MG/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Killin It Hoodie](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1271133697/killin-it-hoodie-halloween-hoodies)
 
@@ -647,9 +647,9 @@ The hoodie is made from high-quality fabric, ensuring softness and warmth for th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1271133697/killin-it-hoodie-halloween-hoodies)
 
-### [33\. Gracula Garlic Crusher](https://www.amazon.com/Gracula-Garlic-Twist-Crusher-OTOTO/dp/B076CTTZKX/?ie=UTF8&tag=avadalove-20)
+### [33\. Gracula Garlic Crusher](https://www.amazon.com/Gracula-Garlic-Twist-Crusher-OTOTO/dp/B076CTTZKX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gracula-Garlic-Twist-Crusher-OTOTO/dp/B076CTTZKX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gracula-Garlic-Twist-Crusher-OTOTO/dp/B076CTTZKX/?ie=UTF8&tag=giftable02-20)
 
 Introducing the OTOTO Gracula Garlic Crusher, the must-have kitchen gadget for all garlic lovers.
 
@@ -665,11 +665,11 @@ The Gracula Garlic Crusher is thoughtfully designed with high-quality, BPA-free 
 
 ✔️ Safe and BPA-free for worry-free food preparation
 
-[Buy from Amazon](https://www.amazon.com/Gracula-Garlic-Twist-Crusher-OTOTO/dp/B076CTTZKX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gracula-Garlic-Twist-Crusher-OTOTO/dp/B076CTTZKX/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Skull Makeup Brush Holder](https://www.amazon.com/Makeup-Vanity-Organizer-Stationary-Planter/dp/B07DNSGL94/?ie=UTF8&tag=avadalove-20)
+### [34\. Skull Makeup Brush Holder](https://www.amazon.com/Makeup-Vanity-Organizer-Stationary-Planter/dp/B07DNSGL94/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Makeup-Vanity-Organizer-Stationary-Planter/dp/B07DNSGL94/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Makeup-Vanity-Organizer-Stationary-Planter/dp/B07DNSGL94/?ie=UTF8&tag=giftable02-20)
 
 This versatile and hauntingly beautiful holder serves as the perfect organizer for makeup brushes, pens, stationary, or even as a decorative planter.
 
@@ -685,7 +685,7 @@ The makeup brush holder is exquisitely crafted with intricate details, featuring
 
 ✔️ Ideal gift for those with a love for the macabre
 
-[Buy from Amazon](https://www.amazon.com/Makeup-Vanity-Organizer-Stationary-Planter/dp/B07DNSGL94/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Makeup-Vanity-Organizer-Stationary-Planter/dp/B07DNSGL94/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Horror Movie Knives Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1295040946/horror-movie-knives-sweatshirt-halloween)
 

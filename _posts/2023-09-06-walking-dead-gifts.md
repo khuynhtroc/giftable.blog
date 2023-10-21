@@ -17,9 +17,9 @@ Ranging from stunning wall art to cozy throw **[personalized blankets](/photo-bl
 
 As you explore our extensive range, you'll find yourself captivated by the allure of this post-apocalyptic universe. Each item we offer is designed to transport you to the gritty world of walkers and survivors, sparking excitement and intrigue. Such a pity if you miss this opportunity to bring the essence of "The Walking Dead" into your loved one's life. So, choose from our curated products, and let the journey begin.
 
-### [1\. Heat Sensitive Color Changing Ceramic Mug](https://www.amazon.com/HERE-Heat-Sensitive-Halloween-Christmas-Friend%EF%BC%881pc%EF%BC%89/dp/B08Y5HGLNJ/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Heat Sensitive Color Changing Ceramic Mug](https://www.amazon.com/HERE-Heat-Sensitive-Halloween-Christmas-Friend%EF%BC%881pc%EF%BC%89/dp/B08Y5HGLNJ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HERE-Heat-Sensitive-Halloween-Christmas-Friend%EF%BC%881pc%EF%BC%89/dp/B08Y5HGLNJ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HERE-Heat-Sensitive-Halloween-Christmas-Friend%EF%BC%881pc%EF%BC%89/dp/B08Y5HGLNJ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Unleash a magical surprise with the "HERE" Heat-Sensitive Mug - the ultimate Walking Dead gift that's sure to captivate your loved ones!
 
@@ -33,11 +33,11 @@ Made from premium ceramic, this heat-sensitive mug boasts exceptional craftsmans
 
 ✔️ High-quality materials for durability and safety
 
-[Buy from Amazon](https://www.amazon.com/HERE-Heat-Sensitive-Halloween-Christmas-Friend%EF%BC%881pc%EF%BC%89/dp/B08Y5HGLNJ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HERE-Heat-Sensitive-Halloween-Christmas-Friend%EF%BC%881pc%EF%BC%89/dp/B08Y5HGLNJ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. I’m Watching The Walking Dead Funny Crew Socks](https://www.amazon.com/BEMINH-Winter-Watching-Walking-Halloween/dp/B07Y1XPMC4/?ie=UTF8&tag=avadalove-20)
+### [2\. I’m Watching The Walking Dead Funny Crew Socks](https://www.amazon.com/BEMINH-Winter-Watching-Walking-Halloween/dp/B07Y1XPMC4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BEMINH-Winter-Watching-Walking-Halloween/dp/B07Y1XPMC4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BEMINH-Winter-Watching-Walking-Halloween/dp/B07Y1XPMC4/?ie=UTF8&tag=giftable02-20)
 
 Embark on a cozy adventure with the BEMINH Winter Socks - the perfect Walking Dead gift that wraps your feet in warmth and nostalgia!
 
@@ -51,7 +51,7 @@ These winter socks ensure a cozy experience even in the coldest weather. With a 
 
 ✔️ Durable materials for long-lasting wear
 
-[Buy from Amazon](https://www.amazon.com/BEMINH-Winter-Watching-Walking-Halloween/dp/B07Y1XPMC4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BEMINH-Winter-Watching-Walking-Halloween/dp/B07Y1XPMC4/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Maggie Greene Vintage Washed Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1503965948/maggie-greene-vintage-washed)
 
@@ -71,9 +71,9 @@ This vintage washed shirt exudes a sense of authenticity and character. The supe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1503965948/maggie-greene-vintage-washed)
 
-### [4\. The Walking Dead Bobblehead Figure](https://www.amazon.com/Royal-Bobbles-Bobblehead-Collectible-Figurine/dp/B075G21CXT/?ie=UTF8&tag=avadalove-20)
+### [4\. The Walking Dead Bobblehead Figure](https://www.amazon.com/Royal-Bobbles-Bobblehead-Collectible-Figurine/dp/B075G21CXT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Royal-Bobbles-Bobblehead-Collectible-Figurine/dp/B075G21CXT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Royal-Bobbles-Bobblehead-Collectible-Figurine/dp/B075G21CXT/?ie=UTF8&tag=giftable02-20)
 
 Unleash the power of nostalgia with the Royal Bobbles Walking Dead Bobblehead Collectible Figurine - a masterpiece that immortalizes the beloved characters from the hit series!
 
@@ -87,11 +87,11 @@ This collectible figurine captures the essence of each character, bringing them 
 
 ✔️ Made from high-quality, durable materials
 
-[Buy from Amazon](https://www.amazon.com/Royal-Bobbles-Bobblehead-Collectible-Figurine/dp/B075G21CXT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Royal-Bobbles-Bobblehead-Collectible-Figurine/dp/B075G21CXT/?ie=UTF8&tag=giftable02-20)
 
-### [5\. The Walking Dead Board Game](https://www.amazon.com/Mattel-Games-Escape-Room-Box/dp/B07Y94HYBG/?ie=UTF8&tag=avadalove-20)
+### [5\. The Walking Dead Board Game](https://www.amazon.com/Mattel-Games-Escape-Room-Box/dp/B07Y94HYBG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mattel-Games-Escape-Room-Box/dp/B07Y94HYBG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mattel-Games-Escape-Room-Box/dp/B07Y94HYBG/?ie=UTF8&tag=giftable02-20)
 
 Unlock the thrill of survival and camaraderie with Mattel Games Escape Room in a Box: The Walking Dead Edition - an exhilarating adventure that will test your wits and bonds like never before!
 
@@ -105,7 +105,7 @@ Crafted with high-quality materials, the game ensures a durable and engaging exp
 
 ✔️ High-quality materials for a lasting adventure
 
-[Buy from Amazon](https://www.amazon.com/Mattel-Games-Escape-Room-Box/dp/B07Y94HYBG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mattel-Games-Escape-Room-Box/dp/B07Y94HYBG/?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Walking Dead Vinyl Record Wall Clock](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1273168674/)
 
@@ -143,9 +143,9 @@ The 4.5-inch blade provides versatility for various tasks, while the sturdy cons
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/225711241/zombie-apocalypse-personalized-45-knife)
 
-### [8\. Horror Walking Undead Zombie Hand Back Scratcher](https://www.amazon.com/Horror-Walking-Undead-Zombie-Scratcher/dp/B00MSIEZE4/?ie=UTF8&tag=avadalove-20)
+### [8\. Horror Walking Undead Zombie Hand Back Scratcher](https://www.amazon.com/Horror-Walking-Undead-Zombie-Scratcher/dp/B00MSIEZE4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Horror-Walking-Undead-Zombie-Scratcher/dp/B00MSIEZE4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Horror-Walking-Undead-Zombie-Scratcher/dp/B00MSIEZE4/?ie=UTF8&tag=giftable02-20)
 
 Unleash the inner survivor in you with the Horror Walking Undead Zombie Scratcher - a thrilling tool that brings a whole new meaning to scratching!
 
@@ -159,7 +159,7 @@ This scratcher features a striking zombie-inspired design that sets it apart fro
 
 ✔️ Measures approximately 6 inches in length
 
-[Buy from Amazon](https://www.amazon.com/Horror-Walking-Undead-Zombie-Scratcher/dp/B00MSIEZE4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Horror-Walking-Undead-Zombie-Scratcher/dp/B00MSIEZE4/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Custom Name Printed Bedspread Sofa Covers](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1451909652/two-layers-blanket-the-walking-dead-dead)
 
@@ -179,9 +179,9 @@ This blanket offers unparalleled warmth and comfort, making it perfect for snugg
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1451909652/two-layers-blanket-the-walking-dead-dead)
 
-### [10\. The Walking Dead Lowcut Socks](https://www.amazon.com/Walking-Dead-Socks-Pair-Apparel/dp/B01A7XVKH6/?ie=UTF8&tag=avadalove-20)
+### [10\. The Walking Dead Lowcut Socks](https://www.amazon.com/Walking-Dead-Socks-Pair-Apparel/dp/B01A7XVKH6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Walking-Dead-Socks-Pair-Apparel/dp/B01A7XVKH6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Walking-Dead-Socks-Pair-Apparel/dp/B01A7XVKH6/?ie=UTF8&tag=giftable02-20)
 
 Gift this exceptional pair to your beloved, and let them walk confidently, knowing they carry a piece of The Walking Dead universe.
 
@@ -195,11 +195,11 @@ Crafted with high-quality materials, these socks offer maximum comfort and durab
 
 ✔️ Available in various sizes for a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Walking-Dead-Socks-Pair-Apparel/dp/B01A7XVKH6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Walking-Dead-Socks-Pair-Apparel/dp/B01A7XVKH6/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Braided Daryl Dixon Skull Bracelet](https://www.amazon.com/DOLON-Braided-Bracelet-Expandable-Gift-Black/dp/B06XPCHVVX/?ie=UTF8&tag=avadalove-20)
+### [11\. Braided Daryl Dixon Skull Bracelet](https://www.amazon.com/DOLON-Braided-Bracelet-Expandable-Gift-Black/dp/B06XPCHVVX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DOLON-Braided-Bracelet-Expandable-Gift-Black/dp/B06XPCHVVX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DOLON-Braided-Bracelet-Expandable-Gift-Black/dp/B06XPCHVVX/?ie=UTF8&tag=giftable02-20)
 
 Embrace the unbreakable bond of survival with the DOLON Braided Walking Dead Bracelet - a symbol of strength and unity that will adorn your wrist like a badge of honor!
 
@@ -213,7 +213,7 @@ The adjustable size ensures a comfortable fit for all, making it a versatile and
 
 ✔️ Intricate braided design for a unique look
 
-[Buy from Amazon](https://www.amazon.com/DOLON-Braided-Bracelet-Expandable-Gift-Black/dp/B06XPCHVVX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DOLON-Braided-Bracelet-Expandable-Gift-Black/dp/B06XPCHVVX/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Walking Dead Inspired Keychains](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/961392228/walking-dead-inspired-keychains)
 
@@ -233,9 +233,9 @@ These keychains feature unique designs inspired by The Walking Dead, making them
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/961392228/walking-dead-inspired-keychains)
 
-### [13\. Zom-bie Apocalypse Partners Broken Heart Keychain Set](https://www.amazon.com/MYOSPARK-Apocalypse-Partners-Keychain-Walking/dp/B07QL6TPPN/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Zom-bie Apocalypse Partners Broken Heart Keychain Set](https://www.amazon.com/MYOSPARK-Apocalypse-Partners-Keychain-Walking/dp/B07QL6TPPN/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MYOSPARK-Apocalypse-Partners-Keychain-Walking/dp/B07QL6TPPN/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MYOSPARK-Apocalypse-Partners-Keychain-Walking/dp/B07QL6TPPN/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embrace the spirit of partnership and love with this exceptional keychain set, a gift that will stand the test of time and symbolize your bond!
 
@@ -249,11 +249,11 @@ Crafted with durable stainless steel and alloy, these keychains ensure a long-la
 
 ✔️ Comes in a beautiful velvet pouch
 
-[Buy from Amazon](https://www.amazon.com/MYOSPARK-Apocalypse-Partners-Keychain-Walking/dp/B07QL6TPPN/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MYOSPARK-Apocalypse-Partners-Keychain-Walking/dp/B07QL6TPPN/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [14\. The Apocalyptic Walking Horror Drama Dead Backpack](https://www.amazon.com/Backpack-Apocalyptic-Multifunctional-Classical-Briefcase/dp/B0BY9L9994/?th=1?ie=UTF8&tag=avadalove-20)
+### [14\. The Apocalyptic Walking Horror Drama Dead Backpack](https://www.amazon.com/Backpack-Apocalyptic-Multifunctional-Classical-Briefcase/dp/B0BY9L9994/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Backpack-Apocalyptic-Multifunctional-Classical-Briefcase/dp/B0BY9L9994/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Backpack-Apocalyptic-Multifunctional-Classical-Briefcase/dp/B0BY9L9994/?th=1?ie=UTF8&tag=giftable02-20)
 
 Gift this remarkable backpack to your beloved, and let them carry a piece of The Walking Dead universe, an everyday reminder to be ready for whatever comes their way.
 
@@ -267,7 +267,7 @@ Designed with The Walking Dead-inspired elements, this backpack celebrates the i
 
 ✔️ Spacious with multiple compartments for organization
 
-[Buy from Amazon](https://www.amazon.com/Backpack-Apocalyptic-Multifunctional-Classical-Briefcase/dp/B0BY9L9994/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Backpack-Apocalyptic-Multifunctional-Classical-Briefcase/dp/B0BY9L9994/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Daryl Dixon The Walking Dead The Eras Tour T-shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1511821817/daryl-dixon-the-walking-dead-the-eras)
 
@@ -287,9 +287,9 @@ Made from soft and comfortable materials, it ensures a pleasant wearing experien
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1511821817/daryl-dixon-the-walking-dead-the-eras)
 
-### [16\. The Walking Dead Card Game](https://www.amazon.com/The-Walking-Dead-Card-Game/dp/1617682454/?ie=UTF8&tag=avadalove-20)
+### [16\. The Walking Dead Card Game](https://www.amazon.com/The-Walking-Dead-Card-Game/dp/1617682454/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/The-Walking-Dead-Card-Game/dp/1617682454/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/The-Walking-Dead-Card-Game/dp/1617682454/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the gripping world of The Walking Dead with The Walking Dead Card Game - a thrilling adventure that will test your strategy and survival skills like never before!
 
@@ -303,11 +303,11 @@ Designed for 2 to 10 players, this card game offers an immersive experience wher
 
 ✔️ Made from high-quality materials for lasting enjoyment
 
-[Buy from Amazon](https://www.amazon.com/The-Walking-Dead-Card-Game/dp/1617682454/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/The-Walking-Dead-Card-Game/dp/1617682454/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Walking Dead Stickers Pack](https://www.amazon.com/V-Harna-Waterproof-Skateboard-Motorcycle-Snowboard/dp/B09KZQJWF1/?ie=UTF8&tag=avadalove-20)
+### [17\. Walking Dead Stickers Pack](https://www.amazon.com/V-Harna-Waterproof-Skateboard-Motorcycle-Snowboard/dp/B09KZQJWF1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/V-Harna-Waterproof-Skateboard-Motorcycle-Snowboard/dp/B09KZQJWF1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/V-Harna-Waterproof-Skateboard-Motorcycle-Snowboard/dp/B09KZQJWF1/?ie=UTF8&tag=giftable02-20)
 
 Unleash your creativity and passion for The Walking Dead with the V-Harna Waterproof Sticker Pack - an expressive collection that brings your favorite characters and moments to life!
 
@@ -321,7 +321,7 @@ This sticker pack features a wide range of designs, capturing iconic elements fr
 
 ✔️ Suitable for decorating laptops, skateboards, and more
 
-[Buy from Amazon](https://www.amazon.com/V-Harna-Waterproof-Skateboard-Motorcycle-Snowboard/dp/B09KZQJWF1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/V-Harna-Waterproof-Skateboard-Motorcycle-Snowboard/dp/B09KZQJWF1/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. The Walking Dead Charm Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/238889685/the-walking-dead-charm-bracelet)
 
@@ -359,9 +359,9 @@ This shirt features a unique design that captures the essence of The Walking Dea
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1517118944/)
 
-### [20\. The Walking Dead Signed Autographed Photo](https://www.amazon.com/Walking-Signed-Autographed-Photo-Reprint/dp/B01NAW5CTK/?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. The Walking Dead Signed Autographed Photo](https://www.amazon.com/Walking-Signed-Autographed-Photo-Reprint/dp/B01NAW5CTK/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Walking-Signed-Autographed-Photo-Reprint/dp/B01NAW5CTK/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Walking-Signed-Autographed-Photo-Reprint/dp/B01NAW5CTK/?th=1?ie=UTF8&tag=giftable02-20)
 
 Capture the essence of The Walking Dead universe with this signed autographed photo - a tangible piece of history that brings you closer to your favorite characters and their remarkable journey!
 
@@ -375,7 +375,7 @@ This autographed photo features a beautifully captured moment from The Walking D
 
 ✔️ Available in various sizes for display options
 
-[Buy from Amazon](https://www.amazon.com/Walking-Signed-Autographed-Photo-Reprint/dp/B01NAW5CTK/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Walking-Signed-Autographed-Photo-Reprint/dp/B01NAW5CTK/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Walking Dead Crocs](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1505449441/walking-dead-crocs-looks-like-crocs)
 
@@ -395,9 +395,9 @@ These Walking Dead Crocs feature a unique design that celebrates the show's lega
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1505449441/walking-dead-crocs-looks-like-crocs)
 
-### [22\. The Walking Dead – Terminus Map Poster](https://www.amazon.com/halobros-Walking-Dead-Terminus-Decorate/dp/B088WS22FD/?ie=UTF8&tag=avadalove-20)
+### [22\. The Walking Dead – Terminus Map Poster](https://www.amazon.com/halobros-Walking-Dead-Terminus-Decorate/dp/B088WS22FD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/halobros-Walking-Dead-Terminus-Decorate/dp/B088WS22FD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/halobros-Walking-Dead-Terminus-Decorate/dp/B088WS22FD/?ie=UTF8&tag=giftable02-20)
 
 Unleash the haunting beauty of The Walking Dead with this captivating Terminus poster - a mesmerizing piece of art that transports you into the heart of the apocalyptic world!
 
@@ -411,7 +411,7 @@ This poster features a striking Terminus design that captures the essence of The
 
 ✔️ Available in various sizes for versatile display
 
-[Buy from Amazon](https://www.amazon.com/halobros-Walking-Dead-Terminus-Decorate/dp/B088WS22FD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/halobros-Walking-Dead-Terminus-Decorate/dp/B088WS22FD/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Grimes – The Walking Dead Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/871109989/grimes-the-walking-dead)
 
@@ -431,9 +431,9 @@ This Grimes-inspired candle features a design that celebrates the essence of The
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/871109989/grimes-the-walking-dead)
 
-### [24\. Walking Dead – Carol with Bow and Arrow Figure](https://www.amazon.com/Funko-Pop-TV-Walking-Carol/dp/B08YKD832Y/?ie=UTF8&tag=avadalove-20)
+### [24\. Walking Dead – Carol with Bow and Arrow Figure](https://www.amazon.com/Funko-Pop-TV-Walking-Carol/dp/B08YKD832Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funko-Pop-TV-Walking-Carol/dp/B08YKD832Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funko-Pop-TV-Walking-Carol/dp/B08YKD832Y/?ie=UTF8&tag=giftable02-20)
 
 Gift this remarkable figure to your beloved, and let them display Carol's unwavering spirit on their shelf, a constant reminder of the power of character development and fandom.
 
@@ -447,7 +447,7 @@ Made from high-quality materials, it ensures lasting enjoyment and durability. W
 
 ✔️ Compact size for versatile display options
 
-[Buy from Amazon](https://www.amazon.com/Funko-Pop-TV-Walking-Carol/dp/B08YKD832Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funko-Pop-TV-Walking-Carol/dp/B08YKD832Y/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. The Walking Dead Theme Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/940585107/the-walking-dead-theme-tumbler)
 
@@ -467,9 +467,9 @@ The double-walled insulation keeps your favorite beverages at the ideal temperat
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/940585107/the-walking-dead-theme-tumbler)
 
-### [26\. Horror Walking Dead Charm Bracelet](https://www.amazon.com/Universe-Fandoms-Movies-walking-Bracelet/dp/B08BJ57RCS/?ie=UTF8&tag=avadalove-20)
+### [26\. Horror Walking Dead Charm Bracelet](https://www.amazon.com/Universe-Fandoms-Movies-walking-Bracelet/dp/B08BJ57RCS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Universe-Fandoms-Movies-walking-Bracelet/dp/B08BJ57RCS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Universe-Fandoms-Movies-walking-Bracelet/dp/B08BJ57RCS/?ie=UTF8&tag=giftable02-20)
 
 Whether it's for personal collection or as a thoughtful gift, the Universe Fandoms Movies Walking Bracelet is a cherished and versatile accessory that beautifully showcases the power of fandoms.
 
@@ -483,11 +483,11 @@ With its adjustable size, it ensures a comfortable fit for every fan. Made from 
 
 ✔️ Adjustable size for a comfortable fit
 
-[Buy from Amazon](https://www.amazon.com/Universe-Fandoms-Movies-walking-Bracelet/dp/B08BJ57RCS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Universe-Fandoms-Movies-walking-Bracelet/dp/B08BJ57RCS/?ie=UTF8&tag=giftable02-20)
 
-### [27\. The Walking Dead Socks](https://www.amazon.com/Walking-Dead-Socks-Pair-Ladies/dp/B07D6V8YYK/?ie=UTF8&tag=avadalove-20)
+### [27\. The Walking Dead Socks](https://www.amazon.com/Walking-Dead-Socks-Pair-Ladies/dp/B07D6V8YYK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Walking-Dead-Socks-Pair-Ladies/dp/B07D6V8YYK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Walking-Dead-Socks-Pair-Ladies/dp/B07D6V8YYK/?ie=UTF8&tag=giftable02-20)
 
 Step into the thrilling world of The Walking Dead with these captivating Walking Dead Socks - a pair of foot apparel that takes your fandom to new heights with every step you take!
 
@@ -501,7 +501,7 @@ The socks offer a comfortable fit, perfect for wearing throughout the day. Made 
 
 ✔️ Comfortable fit for everyday wear
 
-[Buy from Amazon](https://www.amazon.com/Walking-Dead-Socks-Pair-Ladies/dp/B07D6V8YYK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Walking-Dead-Socks-Pair-Ladies/dp/B07D6V8YYK/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Zombie Terror Hand Night Light](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/835368527/zombie-terror-hand-night-light)
 
@@ -521,9 +521,9 @@ The night light emits a soft glow, creating a comforting ambiance that's perfect
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/835368527/zombie-terror-hand-night-light)
 
-### [29\. Hunt A Killer Body On The Boardwalk Game](https://www.amazon.com/Hunt-Killer-Boardwalk-Independent-Detectives/dp/B08TRLBLX5/?ie=UTF8&tag=avadalove-20)
+### [29\. Hunt A Killer Body On The Boardwalk Game](https://www.amazon.com/Hunt-Killer-Boardwalk-Independent-Detectives/dp/B08TRLBLX5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hunt-Killer-Boardwalk-Independent-Detectives/dp/B08TRLBLX5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hunt-Killer-Boardwalk-Independent-Detectives/dp/B08TRLBLX5/?ie=UTF8&tag=giftable02-20)
 
 This game is an opportunity to bond, strategize, and test your detective skills together, mirroring the camaraderie and resilience of the characters we admire in the apocalyptic world.
 
@@ -537,7 +537,7 @@ The Hunt A Killer: Boardwalk Burial offers an immersive and engaging gameplay th
 
 ✔️ High-quality components for a premium experience
 
-[Buy from Amazon](https://www.amazon.com/Hunt-Killer-Boardwalk-Independent-Detectives/dp/B08TRLBLX5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hunt-Killer-Boardwalk-Independent-Detectives/dp/B08TRLBLX5/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Walking Dead Crocs Charm](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1498491133/20pcsset-walking-dead-crocs-charm)
 
@@ -557,9 +557,9 @@ The Walking Dead Crocs Charms come in a set of 20 pieces, each featuring a diffe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1498491133/20pcsset-walking-dead-crocs-charm)
 
-### [31\. The Ridiculous Word Magnet Party Game](https://www.amazon.com/Ransom-Notes-Ridiculous-Magnet-Party/dp/B09F9XMRG5/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. The Ridiculous Word Magnet Party Game](https://www.amazon.com/Ransom-Notes-Ridiculous-Magnet-Party/dp/B09F9XMRG5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ransom-Notes-Ridiculous-Magnet-Party/dp/B09F9XMRG5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ransom-Notes-Ridiculous-Magnet-Party/dp/B09F9XMRG5/?th=1?ie=UTF8&tag=giftable02-20)
 
 Unleash your creativity and wit with "Ransom Notes: Ridiculous Magnet Party" – a game that promises laughter and unforgettable moments!
 
@@ -573,11 +573,11 @@ With "Ransom Notes: Ridiculous Magnet Party," each round brings forth new opport
 
 ✔️ Compact and portable, perfect for on-the-go entertainment
 
-[Buy from Amazon](https://www.amazon.com/Ransom-Notes-Ridiculous-Magnet-Party/dp/B09F9XMRG5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ransom-Notes-Ridiculous-Magnet-Party/dp/B09F9XMRG5/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. In This House We Love Family Retro Art](https://www.amazon.com/Pengbaax-Vintage-Horror-Movies-Family/dp/B09L442SHT/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. In This House We Love Family Retro Art](https://www.amazon.com/Pengbaax-Vintage-Horror-Movies-Family/dp/B09L442SHT/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pengbaax-Vintage-Horror-Movies-Family/dp/B09L442SHT/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pengbaax-Vintage-Horror-Movies-Family/dp/B09L442SHT/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your space with the mesmerizing "Pengbaax Vintage Horror Movies Wall Art," a masterpiece that resonates with the soul and transports you into the gripping world of The Walking Dead.
 
@@ -591,11 +591,11 @@ Made with high-quality materials, this artwork will stand the test of time and c
 
 ✔️ High-quality materials ensure long-lasting beauty
 
-[Buy from Amazon](https://www.amazon.com/Pengbaax-Vintage-Horror-Movies-Family/dp/B09L442SHT/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pengbaax-Vintage-Horror-Movies-Family/dp/B09L442SHT/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. The Walking Dead New Asset Set of 4 Pint Glass](https://www.amazon.com/Walking-OFFICIAL-Creepers-Walkers-PREMIUM/dp/B01LASE6WI/?ie=UTF8&tag=avadalove-20)
+### [33\. The Walking Dead New Asset Set of 4 Pint Glass](https://www.amazon.com/Walking-OFFICIAL-Creepers-Walkers-PREMIUM/dp/B01LASE6WI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Walking-OFFICIAL-Creepers-Walkers-PREMIUM/dp/B01LASE6WI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Walking-OFFICIAL-Creepers-Walkers-PREMIUM/dp/B01LASE6WI/?ie=UTF8&tag=giftable02-20)
 
 A sip from this glass is like taking a stroll down memory lane, making it an ideal present for those who hold the series close to their hearts.
 
@@ -609,7 +609,7 @@ This glass boasts an impressive 16-ounce capacity, allowing you to savor your fa
 
 ✔️ Durable glass construction for lasting enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Walking-OFFICIAL-Creepers-Walkers-PREMIUM/dp/B01LASE6WI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Walking-OFFICIAL-Creepers-Walkers-PREMIUM/dp/B01LASE6WI/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. The Walking Dead Wine Glass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/760018264/the-walking-dead-wine-glass-gift-friends)
 
@@ -629,9 +629,9 @@ The meticulously designed 15-ounce vessel fits comfortably in your hand, enhanci
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/760018264/the-walking-dead-wine-glass-gift-friends)
 
-### [35\. Zombie Apocalypse Bloody T Shirt](https://www.amazon.com/Walking-Michonne-Zombie-Apocalypse-X-Large/dp/B01CH0QDQA/?ie=UTF8&tag=avadalove-20)
+### [35\. Zombie Apocalypse Bloody T Shirt](https://www.amazon.com/Walking-Michonne-Zombie-Apocalypse-X-Large/dp/B01CH0QDQA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Walking-Michonne-Zombie-Apocalypse-X-Large/dp/B01CH0QDQA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Walking-Michonne-Zombie-Apocalypse-X-Large/dp/B01CH0QDQA/?ie=UTF8&tag=giftable02-20)
 
 Whether you're a die-hard fan or seeking the perfect gift, this shirt captures the essence of "The Walking Dead," inspiring you to face challenges head-on.
 
@@ -645,7 +645,7 @@ With an X-Large size, it offers a relaxed fit that flatters all body types while
 
 ✔️ Relaxed X-Large size for all body types
 
-[Buy from Amazon](https://www.amazon.com/Walking-Michonne-Zombie-Apocalypse-X-Large/dp/B01CH0QDQA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Walking-Michonne-Zombie-Apocalypse-X-Large/dp/B01CH0QDQA/?ie=UTF8&tag=giftable02-20)
 
 ## Final Word
 
