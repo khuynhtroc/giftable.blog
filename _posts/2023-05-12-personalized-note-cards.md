@@ -17,9 +17,9 @@ Imagine the joy your beloved will feel when they receive a beautiful note card t
 
 Whether you're **[sending a heartfelt thank-you](/thank-you-gifts-ideas/)**, a warm birthday wish, or simply reaching out to say hello, personalized note cards add a touch of sincerity that can make all the difference. With customized note cards, you can make every message memorable. So start expressing yourself in a way that's authentic and heartfelt. Explore this collection of 35 personalized note cards and discover the joy of sending personalized note cards today!
 
-### [1\. Thank You Cards](https://www.amazon.com/Envelopes-Stickers-Professional-Business-Graduation/dp/B07ZRS4Q68/?ie=UTF8&tag=avadalove-20)
+### [1\. Thank You Cards](https://www.amazon.com/Envelopes-Stickers-Professional-Business-Graduation/dp/B07ZRS4Q68/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Envelopes-Stickers-Professional-Business-Graduation/dp/B07ZRS4Q68/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Envelopes-Stickers-Professional-Business-Graduation/dp/B07ZRS4Q68/?ie=UTF8&tag=giftable02-20)
 
 Thank you cards are an essential tool for expressing gratitude, and this Thank You Cards set from Amazon delivers both quality and value.
 
@@ -33,11 +33,11 @@ This pack includes 100 cards, envelopes, and stickers, ensuring you have everyth
 
 ✔️ **[Minimalist style](/gifts-minimalists/)**
 
-[Buy from Amazon](https://www.amazon.com/Envelopes-Stickers-Professional-Business-Graduation/dp/B07ZRS4Q68/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Envelopes-Stickers-Professional-Business-Graduation/dp/B07ZRS4Q68/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Monogram Stationary Set](https://www.amazon.com/Monogram-Stationary-Personalized-Stationery-Quantity/dp/B07B88TTJ5/?ie=UTF8&tag=avadalove-20)
+### [2\. Monogram Stationary Set](https://www.amazon.com/Monogram-Stationary-Personalized-Stationery-Quantity/dp/B07B88TTJ5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monogram-Stationary-Personalized-Stationery-Quantity/dp/B07B88TTJ5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monogram-Stationary-Personalized-Stationery-Quantity/dp/B07B88TTJ5/?ie=UTF8&tag=giftable02-20)
 
 Imagine the joy of receiving a handwritten note on this stunning stationery. The recipient will be captivated by this set's thoughtfulness and attention to detail.
 
@@ -51,11 +51,11 @@ With envelopes that perfectly complement the monogrammed sheets, every aspect of
 
 ✔️ Personalized for perfection
 
-[Buy from Amazon](https://www.amazon.com/Monogram-Stationary-Personalized-Stationery-Quantity/dp/B07B88TTJ5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monogram-Stationary-Personalized-Stationery-Quantity/dp/B07B88TTJ5/?ie=UTF8&tag=giftable02-20)
 
-### [3\. 3D Pop Up Card](https://www.amazon.com/Paper-Love-Mushroom-Handcrafted-Eco-Friendly/dp/B0BD5X2B4S/?ie=UTF8&tag=avadalove-20)
+### [3\. 3D Pop Up Card](https://www.amazon.com/Paper-Love-Mushroom-Handcrafted-Eco-Friendly/dp/B0BD5X2B4S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Paper-Love-Mushroom-Handcrafted-Eco-Friendly/dp/B0BD5X2B4S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Paper-Love-Mushroom-Handcrafted-Eco-Friendly/dp/B0BD5X2B4S/?ie=UTF8&tag=giftable02-20)
 
 Experience the wonder of 3D art with the enchanting 3D Pop Up Card! This beautifully handcrafted card is a true masterpiece that will bring joy and amazement to any recipient.
 
@@ -69,11 +69,11 @@ The value of this 3D Pop Up Card goes far beyond its artistic appeal. It is a he
 
 ✔️ Incredible attention to detail
 
-[Buy from Amazon](https://www.amazon.com/Paper-Love-Mushroom-Handcrafted-Eco-Friendly/dp/B0BD5X2B4S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Paper-Love-Mushroom-Handcrafted-Eco-Friendly/dp/B0BD5X2B4S/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Personalized Note Cards](https://www.amazon.com/Cursive-Initial-Personalized-Note-Cards/dp/B07RC35PGR/?ie=UTF8&tag=avadalove-20)
+### [4\. Personalized Note Cards](https://www.amazon.com/Cursive-Initial-Personalized-Note-Cards/dp/B07RC35PGR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cursive-Initial-Personalized-Note-Cards/dp/B07RC35PGR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cursive-Initial-Personalized-Note-Cards/dp/B07RC35PGR/?ie=UTF8&tag=giftable02-20)
 
 Introducing the Personalized Note Cards, where elegance meets personal touch. These beautiful note cards are designed to make your correspondence unique and memorable.
 
@@ -87,7 +87,7 @@ Made with care, each card features a cursive initial that adds a touch of sophis
 
 ✔️ Elegant and personalized design
 
-[Buy from Amazon](https://www.amazon.com/Cursive-Initial-Personalized-Note-Cards/dp/B07RC35PGR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cursive-Initial-Personalized-Note-Cards/dp/B07RC35PGR/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Personalized Hydrangea Stationery Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/831502564/)
 
@@ -107,9 +107,9 @@ You can easily elevate your correspondence and make it truly memorable. So let y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/831502564/)
 
-### [6\. Thank you Notes](https://www.amazon.com/Personalized-Stationery-Stationary-Choice-Quantity/dp/B016QQ8NXM/?ie=UTF8&tag=avadalove-20)
+### [6\. Thank you Notes](https://www.amazon.com/Personalized-Stationery-Stationary-Choice-Quantity/dp/B016QQ8NXM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Stationery-Stationary-Choice-Quantity/dp/B016QQ8NXM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Stationery-Stationary-Choice-Quantity/dp/B016QQ8NXM/?ie=UTF8&tag=giftable02-20)
 
 The Thank You Notes offered in this set are a charming and thoughtful way to express gratitude. With a touch of personalization, these notes become a true reflection of your style and appreciation.
 
@@ -123,7 +123,7 @@ Each note features a classic design and can be customized with your name or init
 
 ✔️ Simple and minimalist style
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Stationery-Stationary-Choice-Quantity/dp/B016QQ8NXM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Stationery-Stationary-Choice-Quantity/dp/B016QQ8NXM/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Stationery Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1013159586/)
 
@@ -143,9 +143,9 @@ Each showcases unique patterns and colors that are sure to impress. Measuring 5 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1013159586/)
 
-### [8\. Watercolor Stationary](https://www.amazon.com/Personalized-Stationary-Watercolor-Envelopes-Stationery/dp/B084FJT5TF/?ie=UTF8&tag=avadalove-20)
+### [8\. Watercolor Stationary](https://www.amazon.com/Personalized-Stationary-Watercolor-Envelopes-Stationery/dp/B084FJT5TF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Stationary-Watercolor-Envelopes-Stationery/dp/B084FJT5TF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Stationary-Watercolor-Envelopes-Stationery/dp/B084FJT5TF/?ie=UTF8&tag=giftable02-20)
 
 The Watercolor Stationery set is a delightful treasure for those seeking a touch of artistic elegance in their correspondence. With its captivating designs and personalized touch, this set brings style and substance to your writing.
 
@@ -159,11 +159,11 @@ With the this stationery set, you can leave a lasting impression on your recipie
 
 ✔️ Captivating watercolor designs
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Stationary-Watercolor-Envelopes-Stationery/dp/B084FJT5TF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Stationary-Watercolor-Envelopes-Stationery/dp/B084FJT5TF/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Personalized Calligraphy Stationary](https://www.amazon.com/Personalized-Calligraphy-Stationary-Envelopes-Stationery/dp/B08D5758XQ/?ie=UTF8&tag=avadalove-20)
+### [9\. Personalized Calligraphy Stationary](https://www.amazon.com/Personalized-Calligraphy-Stationary-Envelopes-Stationery/dp/B08D5758XQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Calligraphy-Stationary-Envelopes-Stationery/dp/B08D5758XQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Calligraphy-Stationary-Envelopes-Stationery/dp/B08D5758XQ/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the artistry of calligraphy with this stunning stationery set. Each card is beautifully adorned with personalized calligraphy, creating a unique and luxurious writing experience.
 
@@ -177,7 +177,7 @@ The delicate strokes and intricate details showcase each piece's craftsmanship a
 
 ✔️ Exquisite personalized calligraphy design
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Calligraphy-Stationary-Envelopes-Stationery/dp/B08D5758XQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Calligraphy-Stationary-Envelopes-Stationery/dp/B08D5758XQ/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Stationary For Women](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/609480400/)
 
@@ -197,9 +197,9 @@ This set includes 12 cards and envelopes, each with a unique and lovely floral d
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/609480400/)
 
-### [11\. Greeting Note Cards](https://www.amazon.com/Envelopes-Assortment-Notecards-Gratitude-Appreciation/dp/B09XV21JQ3/?ie=UTF8&tag=avadalove-20)
+### [11\. Greeting Note Cards](https://www.amazon.com/Envelopes-Assortment-Notecards-Gratitude-Appreciation/dp/B09XV21JQ3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Envelopes-Assortment-Notecards-Gratitude-Appreciation/dp/B09XV21JQ3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Envelopes-Assortment-Notecards-Gratitude-Appreciation/dp/B09XV21JQ3/?ie=UTF8&tag=giftable02-20)
 
 Thinking of a thoughtful and versatile gift that will bring a smile to anyone's face? These greeting note cards are a perfect choice!
 
@@ -213,7 +213,7 @@ This set includes 48 cards and envelopes, each featuring a different design that
 
 ✔️ Wide variety of beautiful designs
 
-[Buy from Amazon](https://www.amazon.com/Envelopes-Assortment-Notecards-Gratitude-Appreciation/dp/B09XV21JQ3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Envelopes-Assortment-Notecards-Gratitude-Appreciation/dp/B09XV21JQ3/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Monogram Note Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1053148144/)
 
@@ -233,9 +233,9 @@ The cards are made from high-quality, heavyweight cardstock that feels substanti
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1053148144/)
 
-### [13\. Personalized Note Card](https://www.amazon.com/Initial-Personalized-Note-Color-Choices/dp/B01F9ED8YG/?ie=UTF8&tag=avadalove-20)
+### [13\. Personalized Note Card](https://www.amazon.com/Initial-Personalized-Note-Color-Choices/dp/B01F9ED8YG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Initial-Personalized-Note-Color-Choices/dp/B01F9ED8YG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Initial-Personalized-Note-Color-Choices/dp/B01F9ED8YG/?ie=UTF8&tag=giftable02-20)
 
 The Personalized Note Cards available on Amazon are a fantastic way to add a personal touch to your correspondence.
 
@@ -249,7 +249,7 @@ Each set includes 24 cards, giving you plenty of options to express gratitude, s
 
 ✔️ Customizable initials for a personalized touch
 
-[Buy from Amazon](https://www.amazon.com/Initial-Personalized-Note-Color-Choices/dp/B01F9ED8YG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Initial-Personalized-Note-Color-Choices/dp/B01F9ED8YG/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Flat Custom Notecards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/877381890/)
 
@@ -269,9 +269,9 @@ There are 25 flat cards included, giving you plenty of opportunities to express 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/877381890/)
 
-### [15\. Floral Blank Note Cards](https://www.amazon.com/Blank-Cards-Envelopes-Personalized-Cards-4x5-5/dp/B07XQQT2QJ/?ie=UTF8&tag=avadalove-20)
+### [15\. Floral Blank Note Cards](https://www.amazon.com/Blank-Cards-Envelopes-Personalized-Cards-4x5-5/dp/B07XQQT2QJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Blank-Cards-Envelopes-Personalized-Cards-4x5-5/dp/B07XQQT2QJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Blank-Cards-Envelopes-Personalized-Cards-4x5-5/dp/B07XQQT2QJ/?ie=UTF8&tag=giftable02-20)
 
 The Floral Blank Note Cards on Amazon is a beautiful and versatile option for all your stationery needs. With their charming floral designs, these cards bring a touch of nature and elegance to your correspondence.
 
@@ -285,11 +285,11 @@ The blank interior allows you to customize each card for any occasion, whether a
 
 ✔️ Gorgeous floral designs
 
-[Buy from Amazon](https://www.amazon.com/Blank-Cards-Envelopes-Personalized-Cards-4x5-5/dp/B07XQQT2QJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Blank-Cards-Envelopes-Personalized-Cards-4x5-5/dp/B07XQQT2QJ/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Stationery For Women](https://www.amazon.com/Personalized-Stationery-Modern-Stationary-Envelopes/dp/B07VB4T42L/?ie=UTF8&tag=avadalove-20)
+### [16\. Stationery For Women](https://www.amazon.com/Personalized-Stationery-Modern-Stationary-Envelopes/dp/B07VB4T42L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Stationery-Modern-Stationary-Envelopes/dp/B07VB4T42L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Stationery-Modern-Stationary-Envelopes/dp/B07VB4T42L/?ie=UTF8&tag=giftable02-20)
 
 The Stationery for Women available on Amazon is a stylish, personalized option combining modern design and practicality. This set includes 25 note cards and envelopes featuring a classic and contemporary pattern that adds a touch of elegance to your correspondence.
 
@@ -303,11 +303,11 @@ The high-quality cardstock ensures a smooth writing surface, allowing your words
 
 ✔️ Stylish and modern design
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Stationery-Modern-Stationary-Envelopes/dp/B07VB4T42L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Stationery-Modern-Stationary-Envelopes/dp/B07VB4T42L/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Greeting Graduation Card](https://www.amazon.com/DTESL-Graduation-Congratulations-personalized-university/dp/B0C1N8YC3B/?ie=UTF8&tag=avadalove-20)
+### [17\. Greeting Graduation Card](https://www.amazon.com/DTESL-Graduation-Congratulations-personalized-university/dp/B0C1N8YC3B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DTESL-Graduation-Congratulations-personalized-university/dp/B0C1N8YC3B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DTESL-Graduation-Congratulations-personalized-university/dp/B0C1N8YC3B/?ie=UTF8&tag=giftable02-20)
 
 The Greeting Graduation Card available on Amazon is the perfect way to congratulate and celebrate the achievements of your loved ones.
 
@@ -321,11 +321,11 @@ The attention to detail is evident in the intricate design and vibrant colors, a
 
 ✔️ Personalized message for a heartfelt touch
 
-[Buy from Amazon](https://www.amazon.com/DTESL-Graduation-Congratulations-personalized-university/dp/B0C1N8YC3B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DTESL-Graduation-Congratulations-personalized-university/dp/B0C1N8YC3B/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Gratitude Letter](https://www.amazon.com/Blank-Wedding-Thank-You-Cards/dp/B083VYK6L9/?ie=UTF8&tag=avadalove-20)
+### [18\. Gratitude Letter](https://www.amazon.com/Blank-Wedding-Thank-You-Cards/dp/B083VYK6L9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Blank-Wedding-Thank-You-Cards/dp/B083VYK6L9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Blank-Wedding-Thank-You-Cards/dp/B083VYK6L9/?ie=UTF8&tag=giftable02-20)
 
 The Gratitude Letter set is a beautiful choice for expressing your heartfelt appreciation. With its elegant design and high-quality construction, this set of blank thank-you cards is perfect for any occasion.
 
@@ -339,7 +339,7 @@ Each card measures 4 x 6 inches, providing ample space to write your personalize
 
 ✔️ Elegant design for a touch of sophistication
 
-[Buy from Amazon](https://www.amazon.com/Blank-Wedding-Thank-You-Cards/dp/B083VYK6L9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Blank-Wedding-Thank-You-Cards/dp/B083VYK6L9/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Women’s Monogram Notecard](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/674670680/)
 
@@ -359,9 +359,9 @@ These notecards feature a beautiful monogram design, adding a touch of sophistic
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/674670680/)
 
-### [20\. Stationary Note Cards](https://www.amazon.com/Personalized-Flat-Note-Card-Envelope/dp/B07DLMG3XH/?ie=UTF8&tag=avadalove-20)
+### [20\. Stationary Note Cards](https://www.amazon.com/Personalized-Flat-Note-Card-Envelope/dp/B07DLMG3XH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Flat-Note-Card-Envelope/dp/B07DLMG3XH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Flat-Note-Card-Envelope/dp/B07DLMG3XH/?ie=UTF8&tag=giftable02-20)
 
 With these Stationery Note Cards, you can effortlessly express your thoughts and emotions thoughtfully and personally.
 
@@ -375,7 +375,7 @@ The set includes 24 note cards and envelopes, ensuring ample supply for various 
 
 ✔️ Personalized and stylish design
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Flat-Note-Card-Envelope/dp/B07DLMG3XH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Flat-Note-Card-Envelope/dp/B07DLMG3XH/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Floral Thank You Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1332612067/)
 
@@ -395,9 +395,9 @@ This set includes 20 cards and envelopes, ensuring you have enough to convey you
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1332612067/)
 
-### [22\. Eucalyptus Stationary Set](https://www.amazon.com/Eucalyptus-Stationary-Personalized-Envelopes-Stationery/dp/B081QNCPSF/?ie=UTF8&tag=avadalove-20)
+### [22\. Eucalyptus Stationary Set](https://www.amazon.com/Eucalyptus-Stationary-Personalized-Envelopes-Stationery/dp/B081QNCPSF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Eucalyptus-Stationary-Personalized-Envelopes-Stationery/dp/B081QNCPSF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Eucalyptus-Stationary-Personalized-Envelopes-Stationery/dp/B081QNCPSF/?ie=UTF8&tag=giftable02-20)
 
 This Eucalyptus Stationery Set from Amazon is a delightful choice for those seeking a touch of nature-inspired elegance in their correspondence.
 
@@ -411,7 +411,7 @@ The high-quality paper and attention to detail make this set truly stand out. Wi
 
 ✔️ Personalized note cards
 
-[Buy from Amazon](https://www.amazon.com/Eucalyptus-Stationary-Personalized-Envelopes-Stationery/dp/B081QNCPSF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Eucalyptus-Stationary-Personalized-Envelopes-Stationery/dp/B081QNCPSF/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Personalized Flat Card Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/247858096/)
 
@@ -431,9 +431,9 @@ Made with high-quality materials, these cards are both durable and visually appe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/247858096/)
 
-### [24\. Grateful Thank You Cards](https://www.amazon.com/Bliss-Collections-Grateful-Envelopes-Perfect/dp/B08JH5R4LQ/?ie=UTF8&tag=avadalove-20)
+### [24\. Grateful Thank You Cards](https://www.amazon.com/Bliss-Collections-Grateful-Envelopes-Perfect/dp/B08JH5R4LQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bliss-Collections-Grateful-Envelopes-Perfect/dp/B08JH5R4LQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bliss-Collections-Grateful-Envelopes-Perfect/dp/B08JH5R4LQ/?ie=UTF8&tag=giftable02-20)
 
 Express your gratitude with these beautiful Grateful Thank You Cards. This set includes 25 cards and envelopes, perfect for showing appreciation to your loved ones.
 
@@ -447,11 +447,11 @@ Just feel free to add a touch of sophistication to your heartfelt messages. Each
 
 ✔️ Elegant and modern design
 
-[Buy from Amazon](https://www.amazon.com/Bliss-Collections-Grateful-Envelopes-Perfect/dp/B08JH5R4LQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bliss-Collections-Grateful-Envelopes-Perfect/dp/B08JH5R4LQ/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Funny Thank You Cards](https://www.amazon.com/Envelopes-Assortment-Notecards-Recognition-Appreciation/dp/B08HLWM31X/?ie=UTF8&tag=avadalove-20)
+### [25\. Funny Thank You Cards](https://www.amazon.com/Envelopes-Assortment-Notecards-Recognition-Appreciation/dp/B08HLWM31X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Envelopes-Assortment-Notecards-Recognition-Appreciation/dp/B08HLWM31X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Envelopes-Assortment-Notecards-Recognition-Appreciation/dp/B08HLWM31X/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of humor to your gratitude with these Funny Thank You Cards. This set of 36 cards and envelopes is the perfect way to express appreciation with a lighthearted twist.
 
@@ -465,11 +465,11 @@ Each card is 4 x 6 inches, providing plenty of space for your heartfelt messages
 
 ✔️ Hilarious and entertaining designs
 
-[Buy from Amazon](https://www.amazon.com/Envelopes-Assortment-Notecards-Recognition-Appreciation/dp/B08HLWM31X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Envelopes-Assortment-Notecards-Recognition-Appreciation/dp/B08HLWM31X/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Boxed Note Cards](https://www.amazon.com/Designer-greetings-Monogram-Personalized-Stationery/dp/B09FTKDPZN/?ie=UTF8&tag=avadalove-20)
+### [26\. Boxed Note Cards](https://www.amazon.com/Designer-greetings-Monogram-Personalized-Stationery/dp/B09FTKDPZN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Designer-greetings-Monogram-Personalized-Stationery/dp/B09FTKDPZN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Designer-greetings-Monogram-Personalized-Stationery/dp/B09FTKDPZN/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of elegance to your correspondence with these Boxed Note Cards. This set includes 24 personalized cards and envelopes featuring a stylish monogram design. The cards make a perfect canvas for your heartfelt messages.
 
@@ -483,7 +483,7 @@ The personalized monogram adds a sophisticated touch, making these note cards id
 
 ✔️ Elegant and personalized design
 
-[Buy from Amazon](https://www.amazon.com/Designer-greetings-Monogram-Personalized-Stationery/dp/B09FTKDPZN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Designer-greetings-Monogram-Personalized-Stationery/dp/B09FTKDPZN/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Stationery Note Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1055265453/)
 
@@ -503,9 +503,9 @@ This minimalist yet elegant design adds a touch of style to your message, making
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1055265453/)
 
-### [28\. Thank You Card](https://www.amazon.com/Run2Print-Thank-Cards-Envelopes-Stickers/dp/B08L571CWF/?ie=UTF8&tag=avadalove-20)
+### [28\. Thank You Card](https://www.amazon.com/Run2Print-Thank-Cards-Envelopes-Stickers/dp/B08L571CWF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Run2Print-Thank-Cards-Envelopes-Stickers/dp/B08L571CWF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Run2Print-Thank-Cards-Envelopes-Stickers/dp/B08L571CWF/?ie=UTF8&tag=giftable02-20)
 
 Say "thank you" in style with these fabulous Thank You Cards from Run2Print. This set is a must-have for anyone who loves to express their gratitude with flair.
 
@@ -519,7 +519,7 @@ Made from high-quality cardstock, these cards are as durable as they are beautif
 
 ✔️ Complete set with envelopes and stickers
 
-[Buy from Amazon](https://www.amazon.com/Run2Print-Thank-Cards-Envelopes-Stickers/dp/B08L571CWF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Run2Print-Thank-Cards-Envelopes-Stickers/dp/B08L571CWF/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Flat Note Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/788345351/)
 
@@ -539,9 +539,9 @@ The smooth matte finish gives them a luxurious feel, while the high-quality card
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/788345351/)
 
-### [30\. Greenery Thank You Cards](https://www.amazon.com/BGTCARDS-Greenery-Eucalyptus-Envelopes-Graduation/dp/B0B55265F8/?ie=UTF8&tag=avadalove-20)
+### [30\. Greenery Thank You Cards](https://www.amazon.com/BGTCARDS-Greenery-Eucalyptus-Envelopes-Graduation/dp/B0B55265F8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BGTCARDS-Greenery-Eucalyptus-Envelopes-Graduation/dp/B0B55265F8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BGTCARDS-Greenery-Eucalyptus-Envelopes-Graduation/dp/B0B55265F8/?ie=UTF8&tag=giftable02-20)
 
 Introducing the charming Greenery Thank You Cards! These delightful cards are a true gem for expressing gratitude with style. The set includes beautifully designed cards featuring lush greenery and eucalyptus accents, bringing a touch of nature to your heartfelt messages.
 
@@ -555,11 +555,11 @@ Each set comes with matching envelopes, ensuring a cohesive and polished look. T
 
 ✔️ Have a fresh and stylish look
 
-[Buy from Amazon](https://www.amazon.com/BGTCARDS-Greenery-Eucalyptus-Envelopes-Graduation/dp/B0B55265F8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BGTCARDS-Greenery-Eucalyptus-Envelopes-Graduation/dp/B0B55265F8/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Greetings Blank Cards](https://www.amazon.com/American-Greetings-Envelopes-Patterns-30-Count/dp/B07QJ2VY46/?ie=UTF8&tag=avadalove-20)
+### [31\. Greetings Blank Cards](https://www.amazon.com/American-Greetings-Envelopes-Patterns-30-Count/dp/B07QJ2VY46/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/American-Greetings-Envelopes-Patterns-30-Count/dp/B07QJ2VY46/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/American-Greetings-Envelopes-Patterns-30-Count/dp/B07QJ2VY46/?ie=UTF8&tag=giftable02-20)
 
 Discover the versatility and value of the Greetings Blank Cards! This set of 30 cards is perfect for any occasion, providing you with a blank canvas to unleash your creativity. Each card features a unique and eye-catching design, ranging from vibrant patterns to elegant motifs.
 
@@ -573,7 +573,7 @@ All the cards offer ample space to write personalized messages. The set includes
 
 ✔️ Diverse and attractive designs
 
-[Buy from Amazon](https://www.amazon.com/American-Greetings-Envelopes-Patterns-30-Count/dp/B07QJ2VY46/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/American-Greetings-Envelopes-Patterns-30-Count/dp/B07QJ2VY46/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Pretty Stationary Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/695931717/)
 
@@ -593,9 +593,9 @@ All the cards offer ample space to write personalized messages. In addition, the
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/695931717/)
 
-### [33\. Flowers Greeting Cards](https://www.amazon.com/Graphique-Watercolor-Notecards-Embellished-Cardstock/dp/147702770X/?ie=UTF8&tag=avadalove-20)
+### [33\. Flowers Greeting Cards](https://www.amazon.com/Graphique-Watercolor-Notecards-Embellished-Cardstock/dp/147702770X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Graphique-Watercolor-Notecards-Embellished-Cardstock/dp/147702770X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Graphique-Watercolor-Notecards-Embellished-Cardstock/dp/147702770X/?ie=UTF8&tag=giftable02-20)
 
 Get ready to make your loved ones bloom with joy! Introducing the Flowers Greeting Cards, a burst of color and whimsy that will leave them feeling like they've stepped into a vibrant garden of laughter.
 
@@ -609,11 +609,11 @@ These cards feature stunning watercolor designs that are so captivating, they mi
 
 ✔️ Exquisite watercolor designs
 
-[Buy from Amazon](https://www.amazon.com/Graphique-Watercolor-Notecards-Embellished-Cardstock/dp/147702770X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Graphique-Watercolor-Notecards-Embellished-Cardstock/dp/147702770X/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Floral Cards](https://www.amazon.com/Assorted-Watercolor-Stationary-Notecards-Envelopes/dp/B08HLXGS6N/?ie=UTF8&tag=avadalove-20)
+### [34\. Floral Cards](https://www.amazon.com/Assorted-Watercolor-Stationary-Notecards-Envelopes/dp/B08HLXGS6N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Assorted-Watercolor-Stationary-Notecards-Envelopes/dp/B08HLXGS6N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Assorted-Watercolor-Stationary-Notecards-Envelopes/dp/B08HLXGS6N/?ie=UTF8&tag=giftable02-20)
 
 With the Floral Cards, prepare to add floral elegance to your heartfelt messages! This stunning set of notecards features a delightful assortment of watercolor designs that will transport you to a blooming garden of beauty.
 
@@ -627,11 +627,11 @@ Measuring a generous size of 4 x 6 inches, these cards provide plenty of space f
 
 ✔️ Captivating watercolor designs
 
-[Buy from Amazon](https://www.amazon.com/Assorted-Watercolor-Stationary-Notecards-Envelopes/dp/B08HLXGS6N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Assorted-Watercolor-Stationary-Notecards-Envelopes/dp/B08HLXGS6N/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Personalized Note Cards](https://www.amazon.com/Personalized-Initial-Matching-Envelopes-Included/dp/B00UU4BV6S/?ie=UTF8&tag=avadalove-20)
+### [35\. Personalized Note Cards](https://www.amazon.com/Personalized-Initial-Matching-Envelopes-Included/dp/B00UU4BV6S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Initial-Matching-Envelopes-Included/dp/B00UU4BV6S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Initial-Matching-Envelopes-Included/dp/B00UU4BV6S/?ie=UTF8&tag=giftable02-20)
 
 This is a perfect way to add a touch of personal flair to your correspondence! This set includes beautifully designed cards featuring your initial, creating a unique and personalized touch.
 
@@ -645,4 +645,4 @@ The card is large enough for you to write a heartfelt message. Whether you're se
 
 ✔️ Customized with your initial
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Initial-Matching-Envelopes-Included/dp/B00UU4BV6S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Initial-Matching-Envelopes-Included/dp/B00UU4BV6S/?ie=UTF8&tag=giftable02-20)

@@ -17,9 +17,9 @@ Gone are the days of boring, generic gifts for sober friends and family members.
 
 **Check Out:** **[Post Surgery Gifts for Her](/post-surgery-gifts-her/)** to Help Her Get Well Soon
 
-### [1\.  Keepsake Stainless Steel](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ?ie=UTF8&tag=avadalove-20) 
+### [1\.  Keepsake Stainless Steel](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ?ie=UTF8&tag=giftable02-20)
 
 Want to give a special and meaningful gift? Consider the Keepsake Stainless Steel set. This elegant mix of a stainless steel pocket hug token and a PU leather keychain is ideal for expressing your affection and gratitude.
 
@@ -33,11 +33,11 @@ The pocket hug token is constructed of high-quality stainless steel and has a lo
 
 ✔️ Easy to store and package
 
-[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ?ie=UTF8&tag=giftable02-20)
 
-### [2\. Travel Mug Lid](https://www.amazon.com/Sober-City-Tumbler-Stainless-Alcoholics/dp/B07ZG7WR1D?ie=UTF8&tag=avadalove-20)
+### [2\. Travel Mug Lid](https://www.amazon.com/Sober-City-Tumbler-Stainless-Alcoholics/dp/B07ZG7WR1D?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sober-City-Tumbler-Stainless-Alcoholics/dp/B07ZG7WR1D?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sober-City-Tumbler-Stainless-Alcoholics/dp/B07ZG7WR1D?ie=UTF8&tag=giftable02-20)
 
 The "Travel Mug Lid" is our most recent product, and it's a wonderful companion for enjoying your favorite beverages on the road!
 
@@ -51,11 +51,11 @@ Whether you're a coffee addict or enjoy refreshing iced teas, this travel mug li
 
 ✔️ Made with high-quality 18/8 double-wall stainless steel for superior temperature retention
 
-[Buy from Amazon](https://www.amazon.com/Sober-City-Tumbler-Stainless-Alcoholics/dp/B07ZG7WR1D?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sober-City-Tumbler-Stainless-Alcoholics/dp/B07ZG7WR1D?ie=UTF8&tag=giftable02-20)
 
-### [3\. Recovery Socks Sober](https://www.amazon.com/TSOTMO-Sobriety-Anniversary-Recovery-Encouragement/dp/B08ZMHSCRH?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Recovery Socks Sober](https://www.amazon.com/TSOTMO-Sobriety-Anniversary-Recovery-Encouragement/dp/B08ZMHSCRH?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TSOTMO-Sobriety-Anniversary-Recovery-Encouragement/dp/B08ZMHSCRH?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TSOTMO-Sobriety-Anniversary-Recovery-Encouragement/dp/B08ZMHSCRH?th=1?ie=UTF8&tag=giftable02-20)
 
 "Recovery Socks Sober" is our newest product, and it is meant to give ideal comfort and support for your feet.
 
@@ -69,11 +69,11 @@ These socks are made of high-quality fabrics and are suitable for anybody search
 
 ✔️ Ideal for athletes, fitness enthusiasts, or anyone who spends long hours on their feet
 
-[Buy from Amazon](https://www.amazon.com/TSOTMO-Sobriety-Anniversary-Recovery-Encouragement/dp/B08ZMHSCRH?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TSOTMO-Sobriety-Anniversary-Recovery-Encouragement/dp/B08ZMHSCRH?th=1?ie=UTF8&tag=giftable02-20)
 
-### [4\. Motivational Bracelet](https://www.amazon.com/Joycuff-Bracelets-Encouragement-Motivational-Empowerment/dp/B07W813DRM?ie=UTF8&tag=avadalove-20)
+### [4\. Motivational Bracelet](https://www.amazon.com/Joycuff-Bracelets-Encouragement-Motivational-Empowerment/dp/B07W813DRM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Joycuff-Bracelets-Encouragement-Motivational-Empowerment/dp/B07W813DRM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Joycuff-Bracelets-Encouragement-Motivational-Empowerment/dp/B07W813DRM?ie=UTF8&tag=giftable02-20)
 
 Are you looking for a meaningful and fashionable method to stay encouraged and inspired? Choose a look at the Motivational Bracelet!
 
@@ -87,11 +87,11 @@ The Motivational Bracelet is not only high-quality but also reasonably priced, m
 
 ✔️ Crafted with 18K genuine gold plating
 
-[Buy from Amazon](https://www.amazon.com/Joycuff-Bracelets-Encouragement-Motivational-Empowerment/dp/B07W813DRM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Joycuff-Bracelets-Encouragement-Motivational-Empowerment/dp/B07W813DRM?ie=UTF8&tag=giftable02-20)
 
-### [5\. Keychain Keepsake](https://www.amazon.com/Laluminter-Sobriety-Keychain-Alcoholics-Recovery/dp/B0B4DK4TKB/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Keychain Keepsake](https://www.amazon.com/Laluminter-Sobriety-Keychain-Alcoholics-Recovery/dp/B0B4DK4TKB/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Laluminter-Sobriety-Keychain-Alcoholics-Recovery/dp/B0B4DK4TKB/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Laluminter-Sobriety-Keychain-Alcoholics-Recovery/dp/B0B4DK4TKB/?th=1?ie=UTF8&tag=giftable02-20)
 
 The newest item is the "Keychain Keepsake." This high-quality stainless steel keychain is a lovely and meaningful reminder for someone in recovery.
 
@@ -105,11 +105,11 @@ This Keychain Keepsake is imported and manufactured to the highest quality stand
 
 ✔️ A thoughtful and meaningful gift for someone in recovery
 
-[Buy from Amazon](https://www.amazon.com/Laluminter-Sobriety-Keychain-Alcoholics-Recovery/dp/B0B4DK4TKB/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Laluminter-Sobriety-Keychain-Alcoholics-Recovery/dp/B0B4DK4TKB/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. Pullover Hoodie](https://www.amazon.com/Sober-Sobriety-Heartbeat-Abstinence-Pullover/dp/B081HDK5S6/?ie=UTF8&tag=avadalove-20)
+### [6\. Pullover Hoodie](https://www.amazon.com/Sober-Sobriety-Heartbeat-Abstinence-Pullover/dp/B081HDK5S6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sober-Sobriety-Heartbeat-Abstinence-Pullover/dp/B081HDK5S6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sober-Sobriety-Heartbeat-Abstinence-Pullover/dp/B081HDK5S6/?ie=UTF8&tag=giftable02-20)
 
 If you're passionate about sobriety and want to spread awareness, the Pullover Hoodie is a must-have addition to your wardrobe.
 
@@ -123,11 +123,11 @@ This hoodie is made of high-quality fabrics and is the ideal combination of comf
 
 ✔️ Unique novelty graphic promotes sobriety and supports abstinence from alcohol and narcotics
 
-[Buy from Amazon](https://www.amazon.com/Sober-Sobriety-Heartbeat-Abstinence-Pullover/dp/B081HDK5S6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sober-Sobriety-Heartbeat-Abstinence-Pullover/dp/B081HDK5S6/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Third Step Prayer on Back](https://www.amazon.com/Recovery-Chip-Years-Third-Prayer/dp/B07Z6N7N1V?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Third Step Prayer on Back](https://www.amazon.com/Recovery-Chip-Years-Third-Prayer/dp/B07Z6N7N1V?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Recovery-Chip-Years-Third-Prayer/dp/B07Z6N7N1V?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Recovery-Chip-Years-Third-Prayer/dp/B07Z6N7N1V?th=1?ie=UTF8&tag=giftable02-20)
 
 Want a sobriety chip that's as unique as you are? Third Step Prayer chip with its multi-colored design is just what you need. This chip is guaranteed to attract everyone's attention with its eye-catching front.
 
@@ -141,11 +141,11 @@ What's more, the finest part? This chip is not only attractive, but it is also q
 
 ✔️ Features the powerful Third Step Prayer on the back
 
-[Buy from Amazon](https://www.amazon.com/Recovery-Chip-Years-Third-Prayer/dp/B07Z6N7N1V?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Recovery-Chip-Years-Third-Prayer/dp/B07Z6N7N1V?th=1?ie=UTF8&tag=giftable02-20)
 
-### [8\. Recovery T-Shirt](https://www.amazon.com/Living-Proof-Sobriety-Anniversary-Recovery/dp/B0B4D43DX8/r?ie=UTF8&tag=avadalove-20)
+### [8\. Recovery T-Shirt](https://www.amazon.com/Living-Proof-Sobriety-Anniversary-Recovery/dp/B0B4D43DX8/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Living-Proof-Sobriety-Anniversary-Recovery/dp/B0B4D43DX8/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Living-Proof-Sobriety-Anniversary-Recovery/dp/B0B4D43DX8/r?ie=UTF8&tag=giftable02-20)
 
 The Recovery T-Shirt is ideal for anybody who wants to demonstrate support for a life free of addiction. This t-shirt is made of high-quality materials and is not only comfy but also fashionable and long-lasting.
 
@@ -159,11 +159,11 @@ The main colors are 100% cotton, while the heather grey alternative is 90% cotto
 
 ✔️ Inspiring message promotes awareness about the importance of sobriety and recovery
 
-[Buy from Amazon](https://www.amazon.com/Living-Proof-Sobriety-Anniversary-Recovery/dp/B0B4D43DX8/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Living-Proof-Sobriety-Anniversary-Recovery/dp/B0B4D43DX8/r?ie=UTF8&tag=giftable02-20)
 
-### [9\. Card With Envelope](https://www.amazon.com/original-sobriety-envelope-soberversary-congratulations/dp/B087T9HSJ3/r?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Card With Envelope](https://www.amazon.com/original-sobriety-envelope-soberversary-congratulations/dp/B087T9HSJ3/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/original-sobriety-envelope-soberversary-congratulations/dp/B087T9HSJ3/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/original-sobriety-envelope-soberversary-congratulations/dp/B087T9HSJ3/r?th=1?ie=UTF8&tag=giftable02-20)
 
 Need a thoughtful and personalized way to encourage someone sober? This pretty card with envelope is the perfect solution.
 
@@ -177,11 +177,11 @@ This card with a blank interior, is the ideal canvas to express your heartfelt w
 
 ✔️ Blank inside for personalization with your own words of encouragement or funny memories
 
-[Buy from Amazon](https://www.amazon.com/original-sobriety-envelope-soberversary-congratulations/dp/B087T9HSJ3/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/original-sobriety-envelope-soberversary-congratulations/dp/B087T9HSJ3/r?th=1?ie=UTF8&tag=giftable02-20)
 
-### [10\. Sober Coffee Mug](https://www.amazon.com/YouNique-Designs-Coffee-Unicorn-Sobriety/dp/B07TXNY4Q1?ie=UTF8&tag=avadalove-20)
+### [10\. Sober Coffee Mug](https://www.amazon.com/YouNique-Designs-Coffee-Unicorn-Sobriety/dp/B07TXNY4Q1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YouNique-Designs-Coffee-Unicorn-Sobriety/dp/B07TXNY4Q1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YouNique-Designs-Coffee-Unicorn-Sobriety/dp/B07TXNY4Q1?ie=UTF8&tag=giftable02-20)
 
 Enjoy your morning cuppa in style with the Sober Coffee Mug. This white 11 oz ceramic coffee mug was created just for sober men and women who wish to demonstrate their dedication to a life free of addiction.
 
@@ -195,11 +195,11 @@ With its amusing unicorn design, this coffee cup is guaranteed to make you grin 
 
 ✔️ Ceramic construction makes it microwave and dishwasher-safe
 
-[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Coffee-Unicorn-Sobriety/dp/B07TXNY4Q1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Coffee-Unicorn-Sobriety/dp/B07TXNY4Q1?ie=UTF8&tag=giftable02-20)
 
-### [11\.  Blue Braided Leather](https://www.amazon.com/VNOX-Adjustable-Inspirational-Addiction-Bestfriend/dp/B08DFR9XZ9/?ie=UTF8&tag=avadalove-20)
+### [11\.  Blue Braided Leather](https://www.amazon.com/VNOX-Adjustable-Inspirational-Addiction-Bestfriend/dp/B08DFR9XZ9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VNOX-Adjustable-Inspirational-Addiction-Bestfriend/dp/B08DFR9XZ9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VNOX-Adjustable-Inspirational-Addiction-Bestfriend/dp/B08DFR9XZ9/?ie=UTF8&tag=giftable02-20)
 
 The Blue Braided Leather Cuff is more than simply a piece of jewelry; it serves as a constant reminder of strength and tenacity.
 
@@ -213,11 +213,11 @@ This motivating bangle is made of high-quality materials and has a gorgeous brai
 
 ✔️ This cuff is made from high-quality material
 
-[Buy from Amazon](https://www.amazon.com/VNOX-Adjustable-Inspirational-Addiction-Bestfriend/dp/B08DFR9XZ9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VNOX-Adjustable-Inspirational-Addiction-Bestfriend/dp/B08DFR9XZ9/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Symbol Necklace Earring](https://www.amazon.com/Necklace-Recovery-Addiction-Sobriety-Alcoholics/dp/B09PDG51N3?ie=UTF8&tag=avadalove-20)
+### [12\. Symbol Necklace Earring](https://www.amazon.com/Necklace-Recovery-Addiction-Sobriety-Alcoholics/dp/B09PDG51N3?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Necklace-Recovery-Addiction-Sobriety-Alcoholics/dp/B09PDG51N3?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Necklace-Recovery-Addiction-Sobriety-Alcoholics/dp/B09PDG51N3?ie=UTF8&tag=giftable02-20)
 
 The Symbol Necklace Earring is a lovely and meaningful piece of jewelry excellent for anyone going through a difficult time of rehabilitation.
 
@@ -231,11 +231,11 @@ That is why, during this trying period, it is critical to have the support and e
 
 ✔️ Make it a good investment that can be cherished for a lifetime
 
-[Buy from Amazon](https://www.amazon.com/Necklace-Recovery-Addiction-Sobriety-Alcoholics/dp/B09PDG51N3?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Necklace-Recovery-Addiction-Sobriety-Alcoholics/dp/B09PDG51N3?ie=UTF8&tag=giftable02-20)
 
-### [13\. Daily Journal](https://www.amazon.com/Sobriety-Alcoholics-Journal-Women-Black/dp/B09GWCRFWT/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Daily Journal](https://www.amazon.com/Sobriety-Alcoholics-Journal-Women-Black/dp/B09GWCRFWT/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sobriety-Alcoholics-Journal-Women-Black/dp/B09GWCRFWT/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sobriety-Alcoholics-Journal-Women-Black/dp/B09GWCRFWT/?th=1?ie=UTF8&tag=giftable02-20)
 
 Hunting for a daily notebook to help you remain on track with your recovery? Utilize a look at this Alcohol Recovery Therapy Journal!
 
@@ -249,11 +249,11 @@ Whether you're just beginning your path or have been in recovery for years, this
 
 ✔️ 96 inspirational sobriety quotes
 
-[Buy from Amazon](https://www.amazon.com/Sobriety-Alcoholics-Journal-Women-Black/dp/B09GWCRFWT/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sobriety-Alcoholics-Journal-Women-Black/dp/B09GWCRFWT/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [14\. Cross Necklace Bible](https://www.amazon.com/DuoDiner-Necklace-Stainless-American-Religious/dp/B0BC1MFZ6V/r?ie=UTF8&tag=avadalove-20) 
+### [14\. Cross Necklace Bible](https://www.amazon.com/DuoDiner-Necklace-Stainless-American-Religious/dp/B0BC1MFZ6V/r?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/DuoDiner-Necklace-Stainless-American-Religious/dp/B0BC1MFZ6V/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DuoDiner-Necklace-Stainless-American-Religious/dp/B0BC1MFZ6V/r?ie=UTF8&tag=giftable02-20)
 
 For those who seek a symbol of their faith and love for their country, the Cross Necklace Bible is an exceptional and singular piece of jewelry.
 
@@ -267,11 +267,11 @@ With its broader, sturdier, and thicker design that features the American flag s
 
 ✔️ Features a wider, sturdier, and thicker cross pendant with an eye-catching
 
-[Buy from Amazon](https://www.amazon.com/DuoDiner-Necklace-Stainless-American-Religious/dp/B0BC1MFZ6V/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DuoDiner-Necklace-Stainless-American-Religious/dp/B0BC1MFZ6V/r?ie=UTF8&tag=giftable02-20)
 
-### [15\. Guided Sobriety Workbook](https://www.amazon.com/Clever-Fox-Recovery-Planner-Turquoise/dp/B09BZJKR5S?ie=UTF8&tag=avadalove-20)
+### [15\. Guided Sobriety Workbook](https://www.amazon.com/Clever-Fox-Recovery-Planner-Turquoise/dp/B09BZJKR5S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Clever-Fox-Recovery-Planner-Turquoise/dp/B09BZJKR5S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Clever-Fox-Recovery-Planner-Turquoise/dp/B09BZJKR5S?ie=UTF8&tag=giftable02-20)
 
 Empower yourself in your recovery journey and achieve positive change in your life with the help of the Clever Fox Addiction Recovery Journal. This carefully created guided sobriety workbook will give you daily support.
 
@@ -285,11 +285,11 @@ This diary has an undated format that lasts for 6 months and may be used at any 
 
 ✔️ Stay focused on your goals, creating a brighter future one day at a time
 
-[Buy from Amazon](https://www.amazon.com/Clever-Fox-Recovery-Planner-Turquoise/dp/B09BZJKR5S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Clever-Fox-Recovery-Planner-Turquoise/dp/B09BZJKR5S?ie=UTF8&tag=giftable02-20)
 
-### [16\. Personalized Custom Engraved](https://www.amazon.com/HPRS-Personalized-Engraved-Alcoholics-ACA-AL-ANON-NA-Sober-Sobriety-Birthday-Medallion-Coin-Chip-Token/dp/B06XY7QD2F?ie=UTF8&tag=avadalove-20)
+### [16\. Personalized Custom Engraved](https://www.amazon.com/HPRS-Personalized-Engraved-Alcoholics-ACA-AL-ANON-NA-Sober-Sobriety-Birthday-Medallion-Coin-Chip-Token/dp/B06XY7QD2F?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HPRS-Personalized-Engraved-Alcoholics-ACA-AL-ANON-NA-Sober-Sobriety-Birthday-Medallion-Coin-Chip-Token/dp/B06XY7QD2F?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HPRS-Personalized-Engraved-Alcoholics-ACA-AL-ANON-NA-Sober-Sobriety-Birthday-Medallion-Coin-Chip-Token/dp/B06XY7QD2F?ie=UTF8&tag=giftable02-20)
 
 Help someone start fresh and embrace new beginnings with the inspirational message and tree design of the "Personalized Custom Engraved" necklace.
 
@@ -303,11 +303,11 @@ This necklace is constructed of high-quality materials and is handcrafted with a
 
 ✔️ Crafted with precision and attention to detail using high-quality materials
 
-[Buy from Amazon](https://www.amazon.com/HPRS-Personalized-Engraved-Alcoholics-ACA-AL-ANON-NA-Sober-Sobriety-Birthday-Medallion-Coin-Chip-Token/dp/B06XY7QD2F?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HPRS-Personalized-Engraved-Alcoholics-ACA-AL-ANON-NA-Sober-Sobriety-Birthday-Medallion-Coin-Chip-Token/dp/B06XY7QD2F?ie=UTF8&tag=giftable02-20)
 
-### [17\. Wearable Sober Coin Chip](https://www.amazon.com/Viceband-Sobriety-Wearable-Silicone-Progression/dp/B0951DNDQ8?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Wearable Sober Coin Chip](https://www.amazon.com/Viceband-Sobriety-Wearable-Silicone-Progression/dp/B0951DNDQ8?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Viceband-Sobriety-Wearable-Silicone-Progression/dp/B0951DNDQ8?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Viceband-Sobriety-Wearable-Silicone-Progression/dp/B0951DNDQ8?th=1?ie=UTF8&tag=giftable02-20)
 
 Take your sobriety journey to the next level with the groundbreaking Wearable Sober Coin Chip. This unique and innovative wristband lets you chart your progress in real-time and visually reminds you of your achievements.
 
@@ -321,11 +321,11 @@ Think of it as karate belts meet sobriety chips/coins. Each band represents a mi
 
 ✔️ Inspirational coin chips
 
-[Buy from Amazon](https://www.amazon.com/Viceband-Sobriety-Wearable-Silicone-Progression/dp/B0951DNDQ8?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Viceband-Sobriety-Wearable-Silicone-Progression/dp/B0951DNDQ8?th=1?ie=UTF8&tag=giftable02-20)
 
-### [18\. Daily Flip Calendar](https://www.amazon.com/RYVE-Motivational-Desk-Calendar-Inspirational/dp/B085MJGYH4?ie=UTF8&tag=avadalove-20) 
+### [18\. Daily Flip Calendar](https://www.amazon.com/RYVE-Motivational-Desk-Calendar-Inspirational/dp/B085MJGYH4?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/RYVE-Motivational-Desk-Calendar-Inspirational/dp/B085MJGYH4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/RYVE-Motivational-Desk-Calendar-Inspirational/dp/B085MJGYH4?ie=UTF8&tag=giftable02-20)
 
 Maximize your daily potential with the Daily Flip Calendar - your guide to success and empowerment. This unique desk calendar is more than just a simple date tracker, it's a powerful tool designed to help women stay motivated and empowered daily.
 
@@ -339,11 +339,11 @@ What distinguishes this calendar is its emphasis on daily positive affirmations 
 
 ✔️ Compact and convenient for daily use
 
-[Buy from Amazon](https://www.amazon.com/RYVE-Motivational-Desk-Calendar-Inspirational/dp/B085MJGYH4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/RYVE-Motivational-Desk-Calendar-Inspirational/dp/B085MJGYH4?ie=UTF8&tag=giftable02-20)
 
-### [19\. Stainless Steel Pendant](https://www.amazon.com/HZMAN-Serenity-Stainless-Pendant-Necklace/dp/B078ZS6NMJ/r?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. Stainless Steel Pendant](https://www.amazon.com/HZMAN-Serenity-Stainless-Pendant-Necklace/dp/B078ZS6NMJ/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HZMAN-Serenity-Stainless-Pendant-Necklace/dp/B078ZS6NMJ/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HZMAN-Serenity-Stainless-Pendant-Necklace/dp/B078ZS6NMJ/r?th=1?ie=UTF8&tag=giftable02-20)
 
 Regarding durability and style, the Stainless Steel Tree of Life Pendant with Serenity Prayer Carved Imprint Necklace is unmatched.
 
@@ -357,11 +357,11 @@ This pendant is made of high-quality stainless steel and is meant to last a life
 
 ✔️ Pendant symbolizes growth, strength, and connection to nature
 
-[Buy from Amazon](https://www.amazon.com/HZMAN-Serenity-Stainless-Pendant-Necklace/dp/B078ZS6NMJ/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HZMAN-Serenity-Stainless-Pendant-Necklace/dp/B078ZS6NMJ/r?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. Yearly Coins](https://www.amazon.com/Women-Recovery-Medallion-Sobriety-Years/dp/B083199CVC/?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Yearly Coins](https://www.amazon.com/Women-Recovery-Medallion-Sobriety-Years/dp/B083199CVC/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Women-Recovery-Medallion-Sobriety-Years/dp/B083199CVC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Women-Recovery-Medallion-Sobriety-Years/dp/B083199CVC/?th=1?ie=UTF8&tag=giftable02-20)
 
 Mark your progress and accomplishment with Yearly Coins - the ultimate sobriety chip for women in recovery.
 
@@ -375,11 +375,11 @@ These unique sobriety chips are 40mm in size, 3mm thick, and weigh 25 grams, ind
 
 ✔️ Features updated version of iconic Rosie the Riveter with Strength tattoo
 
-[Buy from Amazon](https://www.amazon.com/Women-Recovery-Medallion-Sobriety-Years/dp/B083199CVC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Women-Recovery-Medallion-Sobriety-Years/dp/B083199CVC/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [21\. Jewelry Women](https://www.amazon.com/SEIRAA-Alcoholics-Bookmark-Anniversary-Recovery/dp/B086MRWD6K?th=1?ie=UTF8&tag=avadalove-20) 
+### [21\. Jewelry Women](https://www.amazon.com/SEIRAA-Alcoholics-Bookmark-Anniversary-Recovery/dp/B086MRWD6K?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/SEIRAA-Alcoholics-Bookmark-Anniversary-Recovery/dp/B086MRWD6K?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SEIRAA-Alcoholics-Bookmark-Anniversary-Recovery/dp/B086MRWD6K?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your jewelry game with our stunning Jewelry Women collection! Featuring high-quality pieces suitable for any event, this magnificent addition lets you exhibit your precious coins in flair.
 
@@ -393,7 +393,7 @@ This bookmark is made of stainless steel and alloy and is intended to last a lif
 
 ✔️ High-quality stainless materials are built to last
 
-[Buy from Amazon](https://www.amazon.com/SEIRAA-Alcoholics-Bookmark-Anniversary-Recovery/dp/B086MRWD6K?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SEIRAA-Alcoholics-Bookmark-Anniversary-Recovery/dp/B086MRWD6K?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\.  Coin Holder Display](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1024832620/aa-coin-holder-display-one-day-at-a-time?g)
 
@@ -431,9 +431,9 @@ Each card comes with an additional kraft envelope, making it simple to mail. Fur
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1341188794/proud-of-you-for-staying-sober-sobriety?g)
 
-### [24\. Encouragement Cards](https://www.amazon.com/Sober-Meditation-Cards-Relaxation-Encouragement/dp/B092MX9895/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Encouragement Cards](https://www.amazon.com/Sober-Meditation-Cards-Relaxation-Encouragement/dp/B092MX9895/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sober-Meditation-Cards-Relaxation-Encouragement/dp/B092MX9895/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sober-Meditation-Cards-Relaxation-Encouragement/dp/B092MX9895/?th=1?ie=UTF8&tag=giftable02-20)
 
 Achieve daily calm and tranquility with the Encouragement Cards - the perfect method.
 
@@ -447,7 +447,7 @@ These meditation card decks feature a wide choice of stories and affirmations to
 
 ✔️ Make a supportive gift for loved ones who seeks for self-care
 
-[Buy from Amazon](https://www.amazon.com/Sober-Meditation-Cards-Relaxation-Encouragement/dp/B092MX9895/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sober-Meditation-Cards-Relaxation-Encouragement/dp/B092MX9895/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Wooden Sobriety Block](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/572691898/aa-recovery-block-alcoholics-anonymous)
 
@@ -485,9 +485,9 @@ This necklace is available in polished stainless steel or 14K yellow gold over s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1219539787/men-sobriety-anniversary-gift-new)
 
-### [27\. Recovery AA NA T-Shirt](https://www.amazon.com/Sobriety-Gifts-Women-Recovery-T-Shirt/dp/B09FG867W4/r?ie=UTF8&tag=avadalove-20)
+### [27\. Recovery AA NA T-Shirt](https://www.amazon.com/Sobriety-Gifts-Women-Recovery-T-Shirt/dp/B09FG867W4/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sobriety-Gifts-Women-Recovery-T-Shirt/dp/B09FG867W4/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sobriety-Gifts-Women-Recovery-T-Shirt/dp/B09FG867W4/r?ie=UTF8&tag=giftable02-20)
 
 No matter what you're wearing, the Recovery AA NA T-Shirt is sure to enhance your overall style.
 
@@ -501,11 +501,11 @@ This t-shirt is made of 100% cotton and comes in a variety of plain colors that 
 
 ✔️ Boasts a comfortable fit that is perfect for everyday wear
 
-[Buy from Amazon](https://www.amazon.com/Sobriety-Gifts-Women-Recovery-T-Shirt/dp/B09FG867W4/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sobriety-Gifts-Women-Recovery-T-Shirt/dp/B09FG867W4/r?ie=UTF8&tag=giftable02-20)
 
-### [28\. Bear Shaped Keepsake Stainless](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B0BHY8MX83/?ie=UTF8&tag=avadalove-20)
+### [28\. Bear Shaped Keepsake Stainless](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B0BHY8MX83/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B0BHY8MX83/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B0BHY8MX83/?ie=UTF8&tag=giftable02-20)
 
 For a thoughtful and stylish present, consider the Bear Shaped Keepsake Stainless - it comes complete with a PU leather keychain.
 
@@ -519,7 +519,7 @@ With its simple Pull On closure, you can keep it close to you at all times as a 
 
 ✔️ Thoughtful combo makes it the perfect gift for any occasion
 
-[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B0BHY8MX83/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B0BHY8MX83/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Sobriety Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1228293374/sobriety-gift-genuine-crystals-sobriety)
 
@@ -539,9 +539,9 @@ This bracelet, made of high-quality jewels, is an elegant and modest item that c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1228293374/sobriety-gift-genuine-crystals-sobriety)
 
-### [30\. Teen Girls Ring](https://www.amazon.com/Enough-Sterling-Silver-Encouragement-Jewelry/dp/B08H51TZWK?ie=UTF8&tag=avadalove-20)
+### [30\. Teen Girls Ring](https://www.amazon.com/Enough-Sterling-Silver-Encouragement-Jewelry/dp/B08H51TZWK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enough-Sterling-Silver-Encouragement-Jewelry/dp/B08H51TZWK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enough-Sterling-Silver-Encouragement-Jewelry/dp/B08H51TZWK?ie=UTF8&tag=giftable02-20)
 
 Need a reminder to embrace your individuality? The Teen Girls Ring has you covered.
 
@@ -555,11 +555,11 @@ Need a reminder to embrace your individuality? The Teen Girls Ring has you cover
 
 ✔️ Simple yet profound message of empowerment engraved on the ring
 
-[Buy from Amazon](https://www.amazon.com/Enough-Sterling-Silver-Encouragement-Jewelry/dp/B08H51TZWK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enough-Sterling-Silver-Encouragement-Jewelry/dp/B08H51TZWK?ie=UTF8&tag=giftable02-20)
 
-### [31\. Sober Beaded Bracelet](https://www.amazon.com/TIIMG-Beaded-Bracelet-AA/dp/B07SXF1YYL/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Sober Beaded Bracelet](https://www.amazon.com/TIIMG-Beaded-Bracelet-AA/dp/B07SXF1YYL/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TIIMG-Beaded-Bracelet-AA/dp/B07SXF1YYL/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TIIMG-Beaded-Bracelet-AA/dp/B07SXF1YYL/?th=1?ie=UTF8&tag=giftable02-20)
 
 On the path to sobriety and looking for a stylish accessory? Check out the Sober Beaded Bracelet.
 
@@ -573,11 +573,11 @@ This bracelet is available in two lengths: 14 cm (5.5 inches) and 19 cm (7.5 inc
 
 ✔️ Easy-to-match accessory that can be worn with any outfit
 
-[Buy from Amazon](https://www.amazon.com/TIIMG-Beaded-Bracelet-AA/dp/B07SXF1YYL/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TIIMG-Beaded-Bracelet-AA/dp/B07SXF1YYL/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Cosmetic Bag](https://www.amazon.com/Sobriety-Addiction-Recovery-Appreciation-Christmas/dp/B0B5JWMWCP?ie=UTF8&tag=avadalove-20)
+### [32\. Cosmetic Bag](https://www.amazon.com/Sobriety-Addiction-Recovery-Appreciation-Christmas/dp/B0B5JWMWCP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sobriety-Addiction-Recovery-Appreciation-Christmas/dp/B0B5JWMWCP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sobriety-Addiction-Recovery-Appreciation-Christmas/dp/B0B5JWMWCP?ie=UTF8&tag=giftable02-20)
 
 Organize your beauty products and travel in style with the vibrant and trendy Cotton Canvas Cosmetic Bag. This double-sided patterned cosmetics bag is constructed of soft and sturdy cotton canvas, making it ideal for everyday use.
 
@@ -591,7 +591,7 @@ Its 10" x 6.7" inch dimensions make it small enough to fit in your handbag or ca
 
 ✔️ Hold all your essential beauty products
 
-[Buy from Amazon](https://www.amazon.com/Sobriety-Addiction-Recovery-Appreciation-Christmas/dp/B0B5JWMWCP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sobriety-Addiction-Recovery-Appreciation-Christmas/dp/B0B5JWMWCP?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Sunflower Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1182783970/proud-of-you-sunflower-necklace-sobriety)
 

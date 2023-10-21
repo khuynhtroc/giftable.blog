@@ -15,9 +15,9 @@ Are you a fan of the popular online game Among Us? Do you love everything relate
 
 Get ready to dive into the colorful and mysterious world of Among Us with these fantastic products that capture the essence of the game. Whether heading to school, work, or a gaming session with friends, this list of 35 Among Us accessories will add a touch of fun and excitement to your day.
 
-### [1\. Hooded Sweatshirt](https://www.amazon.com/Among-Us-Hoodie-Sleeve-Sweatshirt/dp/B09X1L6T67/?ie=UTF8&tag=avadalove-20)
+### [1\. Hooded Sweatshirt](https://www.amazon.com/Among-Us-Hoodie-Sleeve-Sweatshirt/dp/B09X1L6T67/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Among-Us-Hoodie-Sleeve-Sweatshirt/dp/B09X1L6T67/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Among-Us-Hoodie-Sleeve-Sweatshirt/dp/B09X1L6T67/?ie=UTF8&tag=giftable02-20)
 
 Are you tired of being a crewmate? Ready to embrace your inner imposter in style? Look no further than this Among Us Hooded Sweatshirt!
 
@@ -31,7 +31,7 @@ This hoodie is like a warm hug from your fellow imposters. With its soft and plu
 
 ✔️ Perfect for Among Us fan
 
-[Buy from Amazon](https://www.amazon.com/Among-Us-Hoodie-Sleeve-Sweatshirt/dp/B09X1L6T67/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Among-Us-Hoodie-Sleeve-Sweatshirt/dp/B09X1L6T67/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Funny Doormat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1429342034/)
 
@@ -51,9 +51,9 @@ Made with high-quality materials, this doormat is built to withstand the element
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1429342034/)
 
-### [3\. Invitation Card Gift](https://www.amazon.com/LOONYX-Birthday-Invitation-Envelopes-Supplies/dp/B0BZTZNVKW/?ie=UTF8&tag=avadalove-20)
+### [3\. Invitation Card Gift](https://www.amazon.com/LOONYX-Birthday-Invitation-Envelopes-Supplies/dp/B0BZTZNVKW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LOONYX-Birthday-Invitation-Envelopes-Supplies/dp/B0BZTZNVKW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LOONYX-Birthday-Invitation-Envelopes-Supplies/dp/B0BZTZNVKW/?ie=UTF8&tag=giftable02-20)
 
 This LOONYX Birthday Invitation Card Gift is the perfect way to invite guests to your special celebration. The set includes 25 invitations, envelopes, and additional supplies like thank-you cards, address labels, and seals.
 
@@ -67,11 +67,11 @@ The invitations feature a beautiful and colorful design, with plenty of space to
 
 ✔️ Beautiful and colorful design
 
-[Buy from Amazon](https://www.amazon.com/LOONYX-Birthday-Invitation-Envelopes-Supplies/dp/B0BZTZNVKW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LOONYX-Birthday-Invitation-Envelopes-Supplies/dp/B0BZTZNVKW/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Unisex T-Shirt](https://www.amazon.com/Impostor-Unisex-T-Shirt-Social-Distance/dp/B08X4W691V/?ie=UTF8&tag=avadalove-20)
+### [4\. Unisex T-Shirt](https://www.amazon.com/Impostor-Unisex-T-Shirt-Social-Distance/dp/B08X4W691V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Impostor-Unisex-T-Shirt-Social-Distance/dp/B08X4W691V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Impostor-Unisex-T-Shirt-Social-Distance/dp/B08X4W691V/?ie=UTF8&tag=giftable02-20)
 
 The Impostor Unisex T-Shirt is a must-have for fans of the famous and fun game "Among Us." This shirt features a fun and eye-catching design that showcases the iconic impostor character and the text "Social Distance Expert."
 
@@ -85,7 +85,7 @@ It is made from soft, comfortable fabric, ensuring a great fit and feel. Whether
 
 ✔️ Eye-catching design
 
-[Buy from Amazon](https://www.amazon.com/Impostor-Unisex-T-Shirt-Social-Distance/dp/B08X4W691V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Impostor-Unisex-T-Shirt-Social-Distance/dp/B08X4W691V/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Embroidered Baseball Cap](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1049014306/)
 
@@ -105,9 +105,9 @@ With its attention to detail and customization options, this Embroidered Basebal
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1049014306/)
 
-### [6\. Buildable Action Figure](https://www.amazon.com/Among-Craftable-Buildable-Action-Figure/dp/B097C21PYQ/?ie=UTF8&tag=avadalove-20)
+### [6\. Buildable Action Figure](https://www.amazon.com/Among-Craftable-Buildable-Action-Figure/dp/B097C21PYQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Among-Craftable-Buildable-Action-Figure/dp/B097C21PYQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Among-Craftable-Buildable-Action-Figure/dp/B097C21PYQ/?ie=UTF8&tag=giftable02-20)
 
 This Buildable Action Figure offers great value for its price, providing hours of entertainment for fans of Among Us. The building blocks are sturdy and easy to assemble, allowing you to create your unique crewmate.
 
@@ -121,11 +121,11 @@ Its compact size makes it portable, so you can take it wherever you go. Whether 
 
 ✔️ Interactive building experience
 
-[Buy from Amazon](https://www.amazon.com/Among-Craftable-Buildable-Action-Figure/dp/B097C21PYQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Among-Craftable-Buildable-Action-Figure/dp/B097C21PYQ/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Long Sleeve Shirt](https://www.amazon.com/Tik-US-Sleeve-Print-Short/dp/B09FY12DSM/?ie=UTF8&tag=avadalove-20)
+### [7\. Long Sleeve Shirt](https://www.amazon.com/Tik-US-Sleeve-Print-Short/dp/B09FY12DSM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tik-US-Sleeve-Print-Short/dp/B09FY12DSM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tik-US-Sleeve-Print-Short/dp/B09FY12DSM/?ie=UTF8&tag=giftable02-20)
 
 This Long Sleeve Shirt is a trendy and stylish piece of clothing that offers excellent value for its price. Made from high-quality materials, this shirt is comfortable to wear and provides a great fit.
 
@@ -139,7 +139,7 @@ The long sleeves are **[perfect for cooler weather](/gifts-people-who-always-col
 
 ✔️ Trendy and stylish design
 
-[Buy from Amazon](https://www.amazon.com/Tik-US-Sleeve-Print-Short/dp/B09FY12DSM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tik-US-Sleeve-Print-Short/dp/B09FY12DSM/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Among Us Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1156904644/)
 
@@ -159,9 +159,9 @@ The pendant features the iconic crewmate character, crafted with precision and c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1156904644/)
 
-### [9\. Kids Purse](https://www.amazon.com/Toyuma-Leather-Wallets-Aesthetic-Minimalist/dp/B09W2DGDLW/?ie=UTF8&tag=avadalove-20)
+### [9\. Kids Purse](https://www.amazon.com/Toyuma-Leather-Wallets-Aesthetic-Minimalist/dp/B09W2DGDLW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toyuma-Leather-Wallets-Aesthetic-Minimalist/dp/B09W2DGDLW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toyuma-Leather-Wallets-Aesthetic-Minimalist/dp/B09W2DGDLW/?ie=UTF8&tag=giftable02-20)
 
 The Kids Purse by Toyuma is a stylish and functional accessory that every little one will adore. Its minimalist design and aesthetic appeal make it the perfect gift for your beloved child.
 
@@ -175,11 +175,11 @@ The compact size is just right for little hands to hold while providing enough s
 
 ✔️ Made of high-quality leather
 
-[Buy from Amazon](https://www.amazon.com/Toyuma-Leather-Wallets-Aesthetic-Minimalist/dp/B09W2DGDLW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toyuma-Leather-Wallets-Aesthetic-Minimalist/dp/B09W2DGDLW/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Plush Backpack Hanger](https://www.amazon.com/Among-US-Plush-Backpack-Hangers/dp/B0955VZ4C1/?ie=UTF8&tag=avadalove-20)
+### [10\. Plush Backpack Hanger](https://www.amazon.com/Among-US-Plush-Backpack-Hangers/dp/B0955VZ4C1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Among-US-Plush-Backpack-Hangers/dp/B0955VZ4C1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Among-US-Plush-Backpack-Hangers/dp/B0955VZ4C1/?ie=UTF8&tag=giftable02-20)
 
 The Plush Backpack Hangers inspired by Among Us characters are the perfect accessory for any fan of the popular game. These adorable hangers are made from soft and plush material, ensuring a comfortable and huggable feel.
 
@@ -193,11 +193,11 @@ Each hanger features a different character design, adding a fun and playful touc
 
 ✔️ Soft and plush material
 
-[Buy from Amazon](https://www.amazon.com/Among-US-Plush-Backpack-Hangers/dp/B0955VZ4C1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Among-US-Plush-Backpack-Hangers/dp/B0955VZ4C1/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Card Collectors Album](https://www.amazon.com/Bheddi-Trading-Superior-Collectors-Holder-Holds/dp/B0BLRYKDVL/?ie=UTF8&tag=avadalove-20)
+### [11\. Card Collectors Album](https://www.amazon.com/Bheddi-Trading-Superior-Collectors-Holder-Holds/dp/B0BLRYKDVL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bheddi-Trading-Superior-Collectors-Holder-Holds/dp/B0BLRYKDVL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bheddi-Trading-Superior-Collectors-Holder-Holds/dp/B0BLRYKDVL/?ie=UTF8&tag=giftable02-20)
 
 Undeniably, Among Us is a super popular game for all the kids. This Card Collectors Album by Bheddi is a must-have for any trading **[card enthusiast](/gifts-for-card-players/)**. This high-quality album provides a superior way to store and display your valuable card collection.
 
@@ -211,11 +211,11 @@ The album features a convenient pocket-style layout, allowing you to quickly sli
 
 ✔️ High-quality and durable construction
 
-[Buy from Amazon](https://www.amazon.com/Bheddi-Trading-Superior-Collectors-Holder-Holds/dp/B0BLRYKDVL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bheddi-Trading-Superior-Collectors-Holder-Holds/dp/B0BLRYKDVL/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Party Supplies Favor](https://www.amazon.com/Supplies-Decorations-Including-Birthday-Balloons/dp/B0BTLW1N2W/?ie=UTF8&tag=avadalove-20)
+### [12\. Party Supplies Favor](https://www.amazon.com/Supplies-Decorations-Including-Birthday-Balloons/dp/B0BTLW1N2W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Supplies-Decorations-Including-Birthday-Balloons/dp/B0BTLW1N2W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Supplies-Decorations-Including-Birthday-Balloons/dp/B0BTLW1N2W/?ie=UTF8&tag=giftable02-20)
 
 This Party Supplies Favor set is a fantastic value for anyone looking to throw a memorable and fun-filled party.
 
@@ -229,11 +229,11 @@ Its vibrant and eye-catching design sets the perfect party atmosphere and create
 
 ✔️ Complete party package with all essential decorations
 
-[Buy from Amazon](https://www.amazon.com/Supplies-Decorations-Including-Birthday-Balloons/dp/B0BTLW1N2W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Supplies-Decorations-Including-Birthday-Balloons/dp/B0BTLW1N2W/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Among Us Card Game](https://www.amazon.com/Matchify-Card-Game-Seriously-Challenge/dp/B09WRHY1D6/?ie=UTF8&tag=avadalove-20)
+### [13\. Among Us Card Game](https://www.amazon.com/Matchify-Card-Game-Seriously-Challenge/dp/B09WRHY1D6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Matchify-Card-Game-Seriously-Challenge/dp/B09WRHY1D6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Matchify-Card-Game-Seriously-Challenge/dp/B09WRHY1D6/?ie=UTF8&tag=giftable02-20)
 
 This Among Us Card Game is an exciting and engaging addition to any game night or gathering. Its clever blend of strategy and deception offers hours of fun and suspense for players of all ages.
 
@@ -247,7 +247,7 @@ The game contains the essence of the popular Among Us video game, allowing playe
 
 ✔️ Captures the essence of the popular Among Us video game
 
-[Buy from Amazon](https://www.amazon.com/Matchify-Card-Game-Seriously-Challenge/dp/B09WRHY1D6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Matchify-Card-Game-Seriously-Challenge/dp/B09WRHY1D6/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Cookie Cutter Bundles](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/870476696/)
 
@@ -267,9 +267,9 @@ This value-packed set includes a variety of fun and unique cookie cutters that a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/870476696/)
 
-### [15\. Stickers For Kids](https://www.amazon.com/Stickers-Waterproof-Aesthetic-Stickers-Skateboard/dp/B09D41D545/?ie=UTF8&tag=avadalove-20)
+### [15\. Stickers For Kids](https://www.amazon.com/Stickers-Waterproof-Aesthetic-Stickers-Skateboard/dp/B09D41D545/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stickers-Waterproof-Aesthetic-Stickers-Skateboard/dp/B09D41D545/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stickers-Waterproof-Aesthetic-Stickers-Skateboard/dp/B09D41D545/?ie=UTF8&tag=giftable02-20)
 
 With 50 unique designs, your child will have plenty of options and can stick these waterproof stickers on everything from skateboards to water bottles.
 
@@ -283,11 +283,11 @@ They will surely be a fantastic value for anyone looking to add fun and flair to
 
 ✔️ Vibrant and fun designs
 
-[Buy from Amazon](https://www.amazon.com/Stickers-Waterproof-Aesthetic-Stickers-Skateboard/dp/B09D41D545/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stickers-Waterproof-Aesthetic-Stickers-Skateboard/dp/B09D41D545/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Shoe Charms](https://www.amazon.com/EYLIBSTYQA-Charms-Crewmates-Button-Trendy/dp/B09YV13HC3/?ie=UTF8&tag=avadalove-20)
+### [16\. Shoe Charms](https://www.amazon.com/EYLIBSTYQA-Charms-Crewmates-Button-Trendy/dp/B09YV13HC3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/EYLIBSTYQA-Charms-Crewmates-Button-Trendy/dp/B09YV13HC3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/EYLIBSTYQA-Charms-Crewmates-Button-Trendy/dp/B09YV13HC3/?ie=UTF8&tag=giftable02-20)
 
 Add some personality to your shoes with these adorable shoe charms! This set includes a variety of cute designs featuring Among Us crewmates, perfect for game fans.
 
@@ -301,7 +301,7 @@ Each charm measures approximately 0.6 inches, adding a playful touch to your foo
 
 ✔️ Cute and colorful designs
 
-[Buy from Amazon](https://www.amazon.com/EYLIBSTYQA-Charms-Crewmates-Button-Trendy/dp/B09YV13HC3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/EYLIBSTYQA-Charms-Crewmates-Button-Trendy/dp/B09YV13HC3/?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Engraved Wooden Spoons](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1196456876/)
 
@@ -321,9 +321,9 @@ Each spoon features a unique engraved pattern, adding a touch of elegance to you
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1196456876/)
 
-### [18\. Imposter Throw Blanket](https://www.amazon.com/Jay-Franco-Among-Imposter-Blanket/dp/B09L5FCNXX/?ie=UTF8&tag=avadalove-20)
+### [18\. Imposter Throw Blanket](https://www.amazon.com/Jay-Franco-Among-Imposter-Blanket/dp/B09L5FCNXX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jay-Franco-Among-Imposter-Blanket/dp/B09L5FCNXX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jay-Franco-Among-Imposter-Blanket/dp/B09L5FCNXX/?ie=UTF8&tag=giftable02-20)
 
 This Imposter Throw Blanket is a must-have for Among Us fans. This cozy and soft blanket is perfect for snuggling up on the couch or adding a fun touch to your bedroom decor.
 
@@ -337,11 +337,11 @@ It features a vibrant design of the iconic Among Us imposter character, making i
 
 ✔️ Soft and cozy material
 
-[Buy from Amazon](https://www.amazon.com/Jay-Franco-Among-Imposter-Blanket/dp/B09L5FCNXX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jay-Franco-Among-Imposter-Blanket/dp/B09L5FCNXX/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Imposter T-Shirt](https://www.amazon.com/Funny-Gamer-Mobile-Imposter-T-Shirt/dp/B08LCV611B/?ie=UTF8&tag=avadalove-20)
+### [19\. Imposter T-Shirt](https://www.amazon.com/Funny-Gamer-Mobile-Imposter-T-Shirt/dp/B08LCV611B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Gamer-Mobile-Imposter-T-Shirt/dp/B08LCV611B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Gamer-Mobile-Imposter-T-Shirt/dp/B08LCV611B/?ie=UTF8&tag=giftable02-20)
 
 Look at this fun T-shirt! This Imposter T-Shirt is a must-have for any Among Us fan's wardrobe. Made from soft and comfortable fabric, this t-shirt features a hilarious design that showcases your love for the game.
 
@@ -355,11 +355,11 @@ With its vibrant colors and high-quality print, it's sure to catch everyone's at
 
 ✔️ Soft and comfortable fabric
 
-[Buy from Amazon](https://www.amazon.com/Funny-Gamer-Mobile-Imposter-T-Shirt/dp/B08LCV611B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Gamer-Mobile-Imposter-T-Shirt/dp/B08LCV611B/?ie=UTF8&tag=giftable02-20)
 
-### [20\. 3D Illusion Lamp](https://www.amazon.com/Illusion-Multiple-Flashing-Brightness-Christmas/dp/B09JCFJRR6/?ie=UTF8&tag=avadalove-20)
+### [20\. 3D Illusion Lamp](https://www.amazon.com/Illusion-Multiple-Flashing-Brightness-Christmas/dp/B09JCFJRR6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Illusion-Multiple-Flashing-Brightness-Christmas/dp/B09JCFJRR6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Illusion-Multiple-Flashing-Brightness-Christmas/dp/B09JCFJRR6/?ie=UTF8&tag=giftable02-20)
 
 The 3D Illusion Lamp is a stunning and unique decorative piece that adds a touch of magic to any space. Its mesmerizing optical illusion effect creates a 3D visual that appears to be floating in mid-air.
 
@@ -373,11 +373,11 @@ The lamp features multiple color options and flashing modes, allowing you to cus
 
 ✔️ Captivating 3D optical illusion
 
-[Buy from Amazon](https://www.amazon.com/Illusion-Multiple-Flashing-Brightness-Christmas/dp/B09JCFJRR6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Illusion-Multiple-Flashing-Brightness-Christmas/dp/B09JCFJRR6/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Among Us Plush](https://www.amazon.com/Just-Toys-LLC-Among-Plush/dp/B0BNJY694S/?ie=UTF8&tag=avadalove-20)
+### [21\. Among Us Plush](https://www.amazon.com/Just-Toys-LLC-Among-Plush/dp/B0BNJY694S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Just-Toys-LLC-Among-Plush/dp/B0BNJY694S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Just-Toys-LLC-Among-Plush/dp/B0BNJY694S/?ie=UTF8&tag=giftable02-20)
 
 The Among Us Plush is an adorable and cuddly toy that brings popular game characters to life. Made with soft and huggable materials, this plush is perfect for Among Us fans.
 
@@ -391,7 +391,7 @@ It measures approx 6 inches tall that can be easily carried around or displayed 
 
 ✔️ Adorable and cuddly design
 
-[Buy from Amazon](https://www.amazon.com/Just-Toys-LLC-Among-Plush/dp/B0BNJY694S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Just-Toys-LLC-Among-Plush/dp/B0BNJY694S/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Among Us Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1427422530/)
 
@@ -411,9 +411,9 @@ The print is vibrant and eye-catching, with precise detailing. With various size
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1427422530/)
 
-### [23\. Decoration Party Supplies](https://www.amazon.com/Birthday-Decorations-Supplies-Including-Bracelets/dp/B09FJLVJCZ/?ie=UTF8&tag=avadalove-20)
+### [23\. Decoration Party Supplies](https://www.amazon.com/Birthday-Decorations-Supplies-Including-Bracelets/dp/B09FJLVJCZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Decorations-Supplies-Including-Bracelets/dp/B09FJLVJCZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Decorations-Supplies-Including-Bracelets/dp/B09FJLVJCZ/?ie=UTF8&tag=giftable02-20)
 
 The Decoration Party Supplies set on Amazon is a must-have for any birthday celebration. It includes everything you need to create a festive and vibrant atmosphere.
 
@@ -427,11 +427,11 @@ The materials are of good quality, ensuring durability throughout the event. The
 
 ✔️ Complete party set
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Decorations-Supplies-Including-Bracelets/dp/B09FJLVJCZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Decorations-Supplies-Including-Bracelets/dp/B09FJLVJCZ/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Flannel Throw Blanket](https://www.amazon.com/Fleece-Throw-Blanket-330GSM-Flannel/dp/B09Y1GPXLW/?ie=UTF8&tag=avadalove-20)
+### [24\. Flannel Throw Blanket](https://www.amazon.com/Fleece-Throw-Blanket-330GSM-Flannel/dp/B09Y1GPXLW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fleece-Throw-Blanket-330GSM-Flannel/dp/B09Y1GPXLW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fleece-Throw-Blanket-330GSM-Flannel/dp/B09Y1GPXLW/?ie=UTF8&tag=giftable02-20)
 
 The Flannel Throw Blanket available on Amazon is a cozy and luxurious addition to any home. Made from high-quality fleece, it offers exceptional warmth and softness. The blanket is suitable for snuggling up on the couch or adding warmth to your bed.
 
@@ -445,11 +445,11 @@ With a weight of 330GSM, it provides optimal comfort without feeling too heavy. 
 
 ✔️ Cozy and luxurious appearance
 
-[Buy from Amazon](https://www.amazon.com/Fleece-Throw-Blanket-330GSM-Flannel/dp/B09Y1GPXLW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fleece-Throw-Blanket-330GSM-Flannel/dp/B09Y1GPXLW/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Cosplay Costumes Bodysuit](https://www.amazon.com/ZZIHAN-Astronaut-Jumpsuits-Halloween-Christmas/dp/B09DGC7FWF/?ie=UTF8&tag=avadalove-20)
+### [25\. Cosplay Costumes Bodysuit](https://www.amazon.com/ZZIHAN-Astronaut-Jumpsuits-Halloween-Christmas/dp/B09DGC7FWF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZZIHAN-Astronaut-Jumpsuits-Halloween-Christmas/dp/B09DGC7FWF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZZIHAN-Astronaut-Jumpsuits-Halloween-Christmas/dp/B09DGC7FWF/?ie=UTF8&tag=giftable02-20)
 
 The Cosplay Costumes Bodysuit available on Amazon is a fantastic choice for anyone looking to bring their favorite character to life. This jumpsuit offers comfort and durability for hours of cosplay fun.
 
@@ -463,7 +463,7 @@ The costume features an astronaut design, perfect for Halloween, Christmas parti
 
 ✔️ Authentic astronaut design
 
-[Buy from Amazon](https://www.amazon.com/ZZIHAN-Astronaut-Jumpsuits-Halloween-Christmas/dp/B09DGC7FWF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZZIHAN-Astronaut-Jumpsuits-Halloween-Christmas/dp/B09DGC7FWF/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Enamel Pin](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/941962235/)
 
@@ -483,9 +483,9 @@ The vibrant enamel colors and polished metal finish create a striking contrast, 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/941962235/)
 
-### [27\. Illusion Night Light](https://www.amazon.com/Gftxvrgea-Optical-Illusion-Creative-Decorations/dp/B0994V8PVV/?ie=UTF8&tag=avadalove-20)
+### [27\. Illusion Night Light](https://www.amazon.com/Gftxvrgea-Optical-Illusion-Creative-Decorations/dp/B0994V8PVV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gftxvrgea-Optical-Illusion-Creative-Decorations/dp/B0994V8PVV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gftxvrgea-Optical-Illusion-Creative-Decorations/dp/B0994V8PVV/?ie=UTF8&tag=giftable02-20)
 
 This Illusion Night Light is a captivating and versatile decorative piece that brings a touch of magic to any space. This optical illusion lamp creates a mesmerizing 3D visual effect with its unique design.
 
@@ -499,11 +499,11 @@ The acrylic panel, illuminated by energy-efficient LED lights, showcases intrica
 
 ✔️ Mesmerizing 3D visual effect
 
-[Buy from Amazon](https://www.amazon.com/Gftxvrgea-Optical-Illusion-Creative-Decorations/dp/B0994V8PVV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gftxvrgea-Optical-Illusion-Creative-Decorations/dp/B0994V8PVV/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Cotton Socks](https://www.amazon.com/Among-Adults-Medium-Stockings-Supply/dp/B08PF7D7FG/?ie=UTF8&tag=avadalove-20)
+### [28\. Cotton Socks](https://www.amazon.com/Among-Adults-Medium-Stockings-Supply/dp/B08PF7D7FG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Among-Adults-Medium-Stockings-Supply/dp/B08PF7D7FG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Among-Adults-Medium-Stockings-Supply/dp/B08PF7D7FG/?ie=UTF8&tag=giftable02-20)
 
 These Among Us cotton socks are a great value for anyone who loves the game. The socks are made from high-quality cotton material that is soft and comfortable.
 
@@ -517,11 +517,11 @@ These socks are perfect for anyone who wants to show off their love for Among Us
 
 ✔️ Fun and unique design
 
-[Buy from Amazon](https://www.amazon.com/Among-Adults-Medium-Stockings-Supply/dp/B08PF7D7FG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Among-Adults-Medium-Stockings-Supply/dp/B08PF7D7FG/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Impostor Bucket Hat](https://www.amazon.com/FIGHTINGGOLD-Impostor-Crewmate-Packable-Fisherman/dp/B0B2N1NPY6/?ie=UTF8&tag=avadalove-20)
+### [29\. Impostor Bucket Hat](https://www.amazon.com/FIGHTINGGOLD-Impostor-Crewmate-Packable-Fisherman/dp/B0B2N1NPY6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FIGHTINGGOLD-Impostor-Crewmate-Packable-Fisherman/dp/B0B2N1NPY6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FIGHTINGGOLD-Impostor-Crewmate-Packable-Fisherman/dp/B0B2N1NPY6/?ie=UTF8&tag=giftable02-20)
 
 The Impostor Bucket Hat is a must-have accessory for Among Us fans' wardrobes. It offers great value with its stylish design and practical features. The hat is made of high-quality materials, ensuring durability and comfort.
 
@@ -535,11 +535,11 @@ It features the iconic Impostor character from the game, making it a fun and eye
 
 ✔️ Stylish Impostor design
 
-[Buy from Amazon](https://www.amazon.com/FIGHTINGGOLD-Impostor-Crewmate-Packable-Fisherman/dp/B0B2N1NPY6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FIGHTINGGOLD-Impostor-Crewmate-Packable-Fisherman/dp/B0B2N1NPY6/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Game Backpack](https://www.amazon.com/Itsuki-Nakano-Elementary-Large-capacity-Lightweight/dp/B0BG2GNQ58/?ie=UTF8&tag=avadalove-20)
+### [30\. Game Backpack](https://www.amazon.com/Itsuki-Nakano-Elementary-Large-capacity-Lightweight/dp/B0BG2GNQ58/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Itsuki-Nakano-Elementary-Large-capacity-Lightweight/dp/B0BG2GNQ58/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Itsuki-Nakano-Elementary-Large-capacity-Lightweight/dp/B0BG2GNQ58/?ie=UTF8&tag=giftable02-20)
 
 The Game Backpack is a fantastic choice for gamers looking for a functional and stylish bag. With its sleek design and spacious interior, it offers great value for the price.
 
@@ -553,11 +553,11 @@ It also has padded shoulder straps and a breathable back panel for comfort durin
 
 ✔️ Authentic astronaut design
 
-[Buy from Amazon](https://www.amazon.com/Itsuki-Nakano-Elementary-Large-capacity-Lightweight/dp/B0BG2GNQ58/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Itsuki-Nakano-Elementary-Large-capacity-Lightweight/dp/B0BG2GNQ58/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Hooded Sweatshirt](https://www.amazon.com/Among-Us-Hoodie-Impostor-Sweatshirt/dp/B0BNC93B53/?ie=UTF8&tag=avadalove-20)
+### [31\. Hooded Sweatshirt](https://www.amazon.com/Among-Us-Hoodie-Impostor-Sweatshirt/dp/B0BNC93B53/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Among-Us-Hoodie-Impostor-Sweatshirt/dp/B0BNC93B53/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Among-Us-Hoodie-Impostor-Sweatshirt/dp/B0BNC93B53/?ie=UTF8&tag=giftable02-20)
 
 Looking for a comfortable and stylish hoodie that shows off your love for Among Us? Look no further than this Among Us Hoodie Impostor Sweatshirt!
 
@@ -571,11 +571,11 @@ The design features the iconic red Impostor character, making it a great gift fo
 
 ✔️ Stylish Impostor design
 
-[Buy from Amazon](https://www.amazon.com/Among-Us-Hoodie-Impostor-Sweatshirt/dp/B0BNC93B53/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Among-Us-Hoodie-Impostor-Sweatshirt/dp/B0BNC93B53/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Shoe Accessories Charms](https://www.amazon.com/27Pcs-Accessories-Charms-Adults-Cartoon/dp/B09WVS94PB/?ie=UTF8&tag=avadalove-20)
+### [32\. Shoe Accessories Charms](https://www.amazon.com/27Pcs-Accessories-Charms-Adults-Cartoon/dp/B09WVS94PB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/27Pcs-Accessories-Charms-Adults-Cartoon/dp/B09WVS94PB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/27Pcs-Accessories-Charms-Adults-Cartoon/dp/B09WVS94PB/?ie=UTF8&tag=giftable02-20)
 
 Enhance your shoe collection with these adorable Shoe Accessories Charms! This set includes 27 charming and fun accessories perfect for adding a touch of personality to your footwear.
 
@@ -589,11 +589,11 @@ Whether you're a kid or an adult, these cartoon-inspired charms will bring a pla
 
 ✔️ Fun and playful designs
 
-[Buy from Amazon](https://www.amazon.com/27Pcs-Accessories-Charms-Adults-Cartoon/dp/B09WVS94PB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/27Pcs-Accessories-Charms-Adults-Cartoon/dp/B09WVS94PB/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Fidgets Pack](https://www.amazon.com/JSC-Pop-Fidget-Toys-Entertaining/dp/B09JZZSD6H/?ie=UTF8&tag=avadalove-20)
+### [33\. Fidgets Pack](https://www.amazon.com/JSC-Pop-Fidget-Toys-Entertaining/dp/B09JZZSD6H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JSC-Pop-Fidget-Toys-Entertaining/dp/B09JZZSD6H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JSC-Pop-Fidget-Toys-Entertaining/dp/B09JZZSD6H/?ie=UTF8&tag=giftable02-20)
 
 Come with this Fidgets Pack for a fun and engaging way to keep your hands busy. This pack includes a variety of entertaining fidget toys that are perfect for relieving stress and anxiety.
 
@@ -607,7 +607,7 @@ With 30 different toys, you'll always have options to fidget with. These toys ar
 
 ✔️ Wide variety of fidget toys
 
-[Buy from Amazon](https://www.amazon.com/JSC-Pop-Fidget-Toys-Entertaining/dp/B09JZZSD6H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JSC-Pop-Fidget-Toys-Entertaining/dp/B09JZZSD6H/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Kids Birthday Invitation](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/575266750/)
 
@@ -627,9 +627,9 @@ The pack includes 20 invitations, each measuring 5x7 inches, providing ample spa
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/575266750/)
 
-### [35\. Crewmate Figures](https://www.amazon.com/Crewmate-Figures-Collectibles-Clogged-Impostors/dp/B09SB87SY2/?ie=UTF8&tag=avadalove-20)
+### [35\. Crewmate Figures](https://www.amazon.com/Crewmate-Figures-Collectibles-Clogged-Impostors/dp/B09SB87SY2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crewmate-Figures-Collectibles-Clogged-Impostors/dp/B09SB87SY2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crewmate-Figures-Collectibles-Clogged-Impostors/dp/B09SB87SY2/?ie=UTF8&tag=giftable02-20)
 
 Are you a fan of Among Us? These Crewmate Figures are a must-have for any Among Us enthusiast. The set includes 12 adorable crewmate figures, each standing approximately 3 inches tall.
 
@@ -643,4 +643,4 @@ These collectibles are made from high-quality PVC material, ensuring durability 
 
 ✔️ Adorable and detailed designs
 
-[Buy from Amazon](https://www.amazon.com/Crewmate-Figures-Collectibles-Clogged-Impostors/dp/B09SB87SY2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crewmate-Figures-Collectibles-Clogged-Impostors/dp/B09SB87SY2/?ie=UTF8&tag=giftable02-20)

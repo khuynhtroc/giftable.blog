@@ -53,9 +53,9 @@ This sculpture is the right size for a desk or tabletop display, measuring 14.8 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1065219640/a4-a5-fall-autumn-of-new-horizons)
 
-### [3\. Pumpkin Cocotte](https://www.amazon.com/dp/B0B77Z4LMJ/?ie=UTF8&tag=avadalove-20)
+### [3\. Pumpkin Cocotte](https://www.amazon.com/dp/B0B77Z4LMJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0B77Z4LMJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0B77Z4LMJ/?ie=UTF8&tag=giftable02-20)
 
 Take your fall cooking to the next level with this Pumpkin Cocotte. Made with enameled cast iron, this cocotte delivers superior heat distribution and retention, perfect for hearty stews, soups, and casseroles.
 
@@ -69,11 +69,11 @@ One of the best things about this Pumpkin Cocotte is that it's ready to use righ
 
 ✔️ Enameled cast iron delivers superior heat distribution
 
-[Buy from Amazon](https://www.amazon.com/dp/B0B77Z4LMJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0B77Z4LMJ/?ie=UTF8&tag=giftable02-20)
 
-### [4\. 1000 Piece Puzzle from Galison](https://www.amazon.com/dp/0735375283?ie=UTF8&tag=avadalove-20)
+### [4\. 1000 Piece Puzzle from Galison](https://www.amazon.com/dp/0735375283?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/0735375283?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/0735375283?ie=UTF8&tag=giftable02-20)
 
 Whether you're an experienced puzzler or a novice, the "1000 Piece Puzzle from Galison" will be a pleasant challenge. With 1000 pieces and a lovely design, this puzzle will keep you occupied for hours.
 
@@ -87,11 +87,11 @@ This puzzle is the perfect size for a coffee table or workstation, measuring 20 
 
 ✔️ Provides hours of entertainment and a fun way to pass the time
 
-[Buy from Amazon](https://www.amazon.com/dp/0735375283?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/0735375283?ie=UTF8&tag=giftable02-20)
 
-### [5\. Winter Long Sleeve](https://www.amazon.com/Dokotoo-Oversized-Hoodies-Cardigan-Sweater/dp/B078KCSJYM/?ie=UTF8&tag=avadalove-20) 
+### [5\. Winter Long Sleeve](https://www.amazon.com/Dokotoo-Oversized-Hoodies-Cardigan-Sweater/dp/B078KCSJYM/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Dokotoo-Oversized-Hoodies-Cardigan-Sweater/dp/B078KCSJYM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dokotoo-Oversized-Hoodies-Cardigan-Sweater/dp/B078KCSJYM/?ie=UTF8&tag=giftable02-20)
 
 Stay cozy and stylish all winter long with our Winter Long Sleeve!
 
@@ -105,7 +105,7 @@ The package includes one piece of this Plain Fleece Fluffy Open Front Cardigan C
 
 ✔️ Perfect for any occasion and can keep you feeling snug and stylish all year round
 
-[Buy from Amazon](https://www.amazon.com/Dokotoo-Oversized-Hoodies-Cardigan-Sweater/dp/B078KCSJYM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dokotoo-Oversized-Hoodies-Cardigan-Sweater/dp/B078KCSJYM/?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Pumpkin Pattern Door Mat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1092223961/welcome-pumpkin-pattern-door-mat-fall?s)
 
@@ -125,9 +125,9 @@ It's the perfect size for any doorway, measuring 18 inches wide and 30 inches lo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1092223961/welcome-pumpkin-pattern-door-mat-fall?s)
 
-### [7\. Ceramic Ring Dish](https://www.amazon.com/Religious-Christian-Ceramic-Within-Christian-Sister/dp/B09HQRTHHR/?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Ceramic Ring Dish](https://www.amazon.com/Religious-Christian-Ceramic-Within-Christian-Sister/dp/B09HQRTHHR/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Religious-Christian-Ceramic-Within-Christian-Sister/dp/B09HQRTHHR/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Religious-Christian-Ceramic-Within-Christian-Sister/dp/B09HQRTHHR/?th=1?ie=UTF8&tag=giftable02-20)
 
 Keep your rings, earrings, and other small trinkets safe and stylish with Ceramic Ring Dish. This beautifully crafted dish is perfect for your dressing table or nightstand.
 
@@ -141,11 +141,11 @@ This lightweight and compact ring dish, measuring 4.1 x 4.1 x 0.8 inches and wei
 
 ✔️ Lightweight and compact
 
-[Buy from Amazon](https://www.amazon.com/Religious-Christian-Ceramic-Within-Christian-Sister/dp/B09HQRTHHR/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Religious-Christian-Ceramic-Within-Christian-Sister/dp/B09HQRTHHR/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [8\. Fall Lighted Maple Tree](https://www.amazon.com/Fall-Maple-Tree-Thanksgiving-Centerpieces/dp/B09BL1SNVF/?th=1?ie=UTF8&tag=avadalove-20) 
+### [8\. Fall Lighted Maple Tree](https://www.amazon.com/Fall-Maple-Tree-Thanksgiving-Centerpieces/dp/B09BL1SNVF/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Fall-Maple-Tree-Thanksgiving-Centerpieces/dp/B09BL1SNVF/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fall-Maple-Tree-Thanksgiving-Centerpieces/dp/B09BL1SNVF/?th=1?ie=UTF8&tag=giftable02-20)
 
 Seeking a distinctive and eye-catching way to incorporate the beauty of autumn into your home? Take a look at the "Fall Lighted Maple Tree".
 
@@ -159,7 +159,7 @@ This tree stands 24 inches tall and is decorated with 24 LED lamps and 6 acorn d
 
 ✔️ Perfect gift for the fall season and can be used for Thanksgiving decorations
 
-[Buy from Amazon](https://www.amazon.com/Fall-Maple-Tree-Thanksgiving-Centerpieces/dp/B09BL1SNVF/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fall-Maple-Tree-Thanksgiving-Centerpieces/dp/B09BL1SNVF/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Fall Leaves iPhone](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/876071587/fall-leaves-iphone-14-13-12-11-pro-max)
 
@@ -179,9 +179,9 @@ This case is made of a combination of TPU, soft silicone, and hard plastic compo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/876071587/fall-leaves-iphone-14-13-12-11-pro-max)
 
-### [10\. Wooden Spoons and Forks Set](https://www.amazon.com/Wooden-Spoons-Forks-Set-Accessories/dp/B094DC2LMF/r?ie=UTF8&tag=avadalove-20)
+### [10\. Wooden Spoons and Forks Set](https://www.amazon.com/Wooden-Spoons-Forks-Set-Accessories/dp/B094DC2LMF/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wooden-Spoons-Forks-Set-Accessories/dp/B094DC2LMF/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wooden-Spoons-Forks-Set-Accessories/dp/B094DC2LMF/r?ie=UTF8&tag=giftable02-20)
 
 Need a gift that's both functional and beautiful? This set of Wooden Spoons and Forks fits the bill perfectly. Expert artisans handcraft each piece and takes around 4 hours to complete.
 
@@ -195,11 +195,11 @@ This set comprises four wooden utensils, including two leaf-shaped spoons ideal 
 
 ✔️ Makes a thoughtful and meaningful gift for any occasion, particularly for Mother's Day
 
-[Buy from Amazon](https://www.amazon.com/Wooden-Spoons-Forks-Set-Accessories/dp/B094DC2LMF/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wooden-Spoons-Forks-Set-Accessories/dp/B094DC2LMF/r?ie=UTF8&tag=giftable02-20)
 
-### [11\. Colors of Fall Road Trip Guide](https://www.amazon.com/dp/1682681386/?ie=UTF8&tag=avadalove-20)
+### [11\. Colors of Fall Road Trip Guide](https://www.amazon.com/dp/1682681386/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/1682681386/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/1682681386/?ie=UTF8&tag=giftable02-20)
 
 Are you on the hunt for the perfect guide to explore the breathtaking fall scenery of New England? Then, check the "Colors of Fall Road Trip Guide".
 
@@ -213,11 +213,11 @@ Start your journey with a Covered Bridge Tour of Southwestern New Hampshire, whe
 
 ✔️ Making for a truly unforgettable road trip experience
 
-[Buy from Amazon](https://www.amazon.com/dp/1682681386/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/1682681386/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Body-Hand Care Moisturizing](https://www.amazon.com/Scented-Cracked-Moisturizing-Moisturizer-Hydration/dp/B094JJNY19/r?ie=UTF8&tag=avadalove-20)
+### [12\. Body-Hand Care Moisturizing](https://www.amazon.com/Scented-Cracked-Moisturizing-Moisturizer-Hydration/dp/B094JJNY19/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scented-Cracked-Moisturizing-Moisturizer-Hydration/dp/B094JJNY19/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scented-Cracked-Moisturizing-Moisturizer-Hydration/dp/B094JJNY19/r?ie=UTF8&tag=giftable02-20)
 
 Need a moisturizer that can do it all for your hands and body? Try our Body-Hand Care Moisturizing cream for optimal results.
 
@@ -231,11 +231,11 @@ Each of our ten natural smells is meticulously formulated utilizing only the bes
 
 ✔️ Absorbs quickly and deeply into the skin
 
-[Buy from Amazon](https://www.amazon.com/Scented-Cracked-Moisturizing-Moisturizer-Hydration/dp/B094JJNY19/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scented-Cracked-Moisturizing-Moisturizer-Hydration/dp/B094JJNY19/r?ie=UTF8&tag=giftable02-20)
 
-### [13\. Grapefruit Essential Oil](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK/r?ie=UTF8&tag=avadalove-20)
+### [13\. Grapefruit Essential Oil](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK/r?ie=UTF8&tag=giftable02-20)
 
 Like to bring the fresh, energizing aroma of citrus into your home? Take a look at Grapefruit Essential Oil!
 
@@ -249,7 +249,7 @@ Grapefruit Essential Oil offers a variety of uses, whether diffused or used topi
 
 ✔️ Uplifting atmosphere of comfort and tranquility in any room
 
-[Buy from Amazon](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK/r?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Pumpkin Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1256706033/fall-mug-autumn-leaves-pumpkins-please)
 
@@ -269,9 +269,9 @@ Unlike other mugs that use vinyl which can peel off, we sublimate the print dire
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1256706033/fall-mug-autumn-leaves-pumpkins-please)
 
-### [15\. Peach Amber Candles](https://www.amazon.com/Scented-Candles-Aromatherapy-Christmas-Birthday/dp/B09C351R8W/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Peach Amber Candles](https://www.amazon.com/Scented-Candles-Aromatherapy-Christmas-Birthday/dp/B09C351R8W/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scented-Candles-Aromatherapy-Christmas-Birthday/dp/B09C351R8W/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scented-Candles-Aromatherapy-Christmas-Birthday/dp/B09C351R8W/?th=1?ie=UTF8&tag=giftable02-20)
 
 Browsing for a natural, long-burning candle to help you unwind and relax at the end of the day? Take a look at the Peach Amber Candle!
 
@@ -285,11 +285,11 @@ This hand-poured candle delivers its full aromatic scent swiftly and efficiently
 
 ✔️ Provides calming benefits that help relieve stress and anxiety
 
-[Buy from Amazon](https://www.amazon.com/Scented-Candles-Aromatherapy-Christmas-Birthday/dp/B09C351R8W/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scented-Candles-Aromatherapy-Christmas-Birthday/dp/B09C351R8W/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Door County Coffee](https://www.amazon.com/dp/B00EW0RZGG?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Door County Coffee](https://www.amazon.com/dp/B00EW0RZGG?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B00EW0RZGG?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B00EW0RZGG?th=1?ie=UTF8&tag=giftable02-20)
 
 If you enjoy coffee and are seeking something different, you must try Door County Coffee! This delectable 8 oz bag of medium roast ground flavored coffee will stimulate your taste senses and leave you feeling rejuvenated and refreshed.
 
@@ -305,11 +305,11 @@ You'll have enough great coffee to last you for weeks with enough coffee to prod
 
 ✔️ Resulting in a delicious and flavorful cup of coffee
 
-[Buy from Amazon](https://www.amazon.com/dp/B00EW0RZGG?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B00EW0RZGG?th=1?ie=UTF8&tag=giftable02-20)
 
-### [17\. Room Diffuser with Grapefruit](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK?ie=UTF8&tag=avadalove-20)
+### [17\. Room Diffuser with Grapefruit](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK?ie=UTF8&tag=giftable02-20)
 
 This Grapefruit Room Diffuser is excellent for adding a refreshing and stimulating smell to your home or business.
 
@@ -323,7 +323,7 @@ Grapefruit aroma is a fresh, somewhat bitter perfume, making it an excellent cho
 
 ✔️ The sleek and stylish design of the diffuser adds a touch of sophistication to any space
 
-[Buy from Amazon](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Grapefruit-Diffuser-grapefruit-100ml-Scented/dp/B01LRQ2XUK?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Mini Fall Gift Basket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1056310940/mini-fall-gift-basket)
 
@@ -361,9 +361,9 @@ Fall is a time of manifestation and letting go, a balance of fire and water. Thi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/217505651/autumn-mists-a-scented-seasonal-oil)
 
-### [20\. Shower Steamers Aromatherapy](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-Essential/dp/B07L5QGF38?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Shower Steamers Aromatherapy](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-Essential/dp/B07L5QGF38?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-Essential/dp/B07L5QGF38?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-Essential/dp/B07L5QGF38?th=1?ie=UTF8&tag=giftable02-20)
 
 Whenever you're searching for a quick and easy method to reap the advantages of aromatherapy, these Shower Steamers Aromatherapy melts are the way to go.
 
@@ -377,11 +377,11 @@ Each melt is meant to slowly dissolve in the steam of your shower, releasing a c
 
 ✔️ Leaving you feeling refreshed and rejuvenated
 
-[Buy from Amazon](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-Essential/dp/B07L5QGF38?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-Essential/dp/B07L5QGF38?th=1?ie=UTF8&tag=giftable02-20)
 
-### [21\. Sherpa Wearable Blanket](https://www.amazon.com/dp/B07S651GSW/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Sherpa Wearable Blanket](https://www.amazon.com/dp/B07S651GSW/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07S651GSW/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07S651GSW/?th=1?ie=UTF8&tag=giftable02-20)
 
 The ultimate in comfort and design, the Sherpa Wearable Blanket. This imported blanket, made of microfibre and sherpa, is a must-have for anybody who enjoys snuggling up and relaxing.
 
@@ -395,7 +395,7 @@ The Sherpa Wearable Blanket is made of high-quality microfibre and is deliciousl
 
 ✔️ Luxuriously soft and gentle on the skin
 
-[Buy from Amazon](https://www.amazon.com/dp/B07S651GSW/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07S651GSW/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Autumn Terracota Bridal Bouquet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1062120996/autumn-terracota-bridal-bouquet-burnt)
 
@@ -649,9 +649,9 @@ These coasters are attractive and functional, making them an ideal poolside addi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1245347760/fall-drink-coasters-handmade-with-real)
 
-### [36\. Personalized Pumpkin Patch Sign](https://www.amazon.com/dp/B0CGRKZMBP?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [36\. Personalized Pumpkin Patch Sign](https://www.amazon.com/dp/B0CGRKZMBP?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGRKZMBP?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGRKZMBP?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Celebrate the changing seasons with our Personalized Pumpkin Patch Sign.
 
@@ -667,11 +667,11 @@ It’s an adorable, warm addition to your home decor that highlights the essence
 
 ✔️ Reusable across seasons
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGRKZMBP?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGRKZMBP?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [37\. Fall Plaid Pumpkin Signs](https://www.amazon.com/dp/B0CGX8JSDR?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [37\. Fall Plaid Pumpkin Signs](https://www.amazon.com/dp/B0CGX8JSDR?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGX8JSDR?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGX8JSDR?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Imagine the warmth of the fall season, perfectly encapsulated within an item. The Fall Plaid Pumpkin Signs does exactly that.
 
@@ -687,11 +687,11 @@ Its quaint design charmingly represents the colors and patterns traditionally as
 
 ✔️ Versatile decor placement
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGX8JSDR?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGX8JSDR?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [38\. Fall Pumpkin Door Hanger](https://www.amazon.com/dp/B0CGXJGNSD?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [38\. Fall Pumpkin Door Hanger](https://www.amazon.com/dp/B0CGXJGNSD?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGXJGNSD?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGXJGNSD?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Welcome your guests with a delightful hint of autumn at your doorstep. The Fall Pumpkin Door Hanger embodies the essence of the season in a stylish and distinct package.
 
@@ -707,11 +707,11 @@ Its vibrant colors represent the richness of autumn, making it an eye-catching d
 
 ✔️ Unique design
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGXJGNSD?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGXJGNSD?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [39\. Personalized Pumpkin Shaped Wood Sign](https://www.amazon.com/dp/B0CGZSB3CX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [39\. Personalized Pumpkin Shaped Wood Sign](https://www.amazon.com/dp/B0CGZSB3CX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGZSB3CX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGZSB3CX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 The Personalized Pumpkin Shaped Wood Sign offers a unique twist on fall gifts.
 
@@ -727,11 +727,11 @@ It effortlessly merges personalized charm with the classic symbol of autumn, the
 
 ✔️ Perfect for fall decor
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGZSB3CX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGZSB3CX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [40\. Humpty Dumpty Had A Great Fall T-Shirt](https://www.amazon.com/dp/B0CJF7X6P8?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [40\. Humpty Dumpty Had A Great Fall T-Shirt](https://www.amazon.com/dp/B0CJF7X6P8?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CJF7X6P8?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CJF7X6P8?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Celebrate the fall season with a dash of humor using this unique t-shirt. The humpty dumpty had a great fall shirt is a lighthearted gift perfect for commemorating autumn.
 
@@ -747,6 +747,6 @@ Its distinct design will most definitely bring upon laughs and enjoyable convers
 
 ✔️ Ideal for Autumn season
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CJF7X6P8?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CJF7X6P8?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Fall gifts are all about celebrating the sights, scents, and flavors of autumn, from cozy flannel sheets to handcrafted autumn-themed jewelry.

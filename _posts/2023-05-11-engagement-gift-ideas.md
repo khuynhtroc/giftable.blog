@@ -179,9 +179,9 @@ This ceramic mug is a must-have for anyone that likes to travel or keep some of 
 
 [Buy from Loveable](https://shop.loveable.ai/products/making-memories-since-custom-map-personalized-mug-205hnmu016?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
-### [10\. Engaged AF Soy Wax Candle](https://www.amazon.com/Engagement-Couples-Engaged-Unique-Wedding/dp/B098QFM61W/?ie=UTF8&tag=avadalove-20)
+### [10\. Engaged AF Soy Wax Candle](https://www.amazon.com/Engagement-Couples-Engaged-Unique-Wedding/dp/B098QFM61W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engagement-Couples-Engaged-Unique-Wedding/dp/B098QFM61W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engagement-Couples-Engaged-Unique-Wedding/dp/B098QFM61W/?ie=UTF8&tag=giftable02-20)
 
 This **[unique personalized candle](/personalized-candles/)** creates a unique scented experience. Our handmade candles are made from natural soy wax and scented with essential oils and fresh herbs to create a truly fragrant experience. Each candle has been handmade by our skilled team and comes gift wrapped in a white box, complete with an appealing appearance.
 
@@ -195,7 +195,7 @@ Enjoy the scent and remember to keep a burning candle to ensure fresh scents. Be
 
 ✔️ Perfect gift for newly engaged couples.
 
-[Buy from Amazon](https://www.amazon.com/Engagement-Couples-Engaged-Unique-Wedding/dp/B098QFM61W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engagement-Couples-Engaged-Unique-Wedding/dp/B098QFM61W/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Personalized Mug](https://shop.loveable.ai/collections/mugs/products/mr-mrs-est-personalized-mug-anniversary-gift?variant=43166761484520?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
@@ -215,9 +215,9 @@ They're great for drinking or keeping a hot beverage warm. With your custom name
 
 [Buy from Loveable](https://shop.loveable.ai/collections/mugs/products/mr-mrs-est-personalized-mug-anniversary-gift?variant=43166761484520?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
-### [12\. Soy Wax Candle](https://www.amazon.com/Sweet-Water-Decor-Sandalwood-Engagement/dp/B08TMKWPJS/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+### [12\. Soy Wax Candle](https://www.amazon.com/Sweet-Water-Decor-Sandalwood-Engagement/dp/B08TMKWPJS/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sweet-Water-Decor-Sandalwood-Engagement/dp/B08TMKWPJS/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sweet-Water-Decor-Sandalwood-Engagement/dp/B08TMKWPJS/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 Handcrafted in the USA, the soy wax candle features the perfect blend of scents, with notes of tropical fruits, sugared citrus, and mountain greens. Aromatherapy candles have been shown to help reduce stress.
 
@@ -231,7 +231,7 @@ This candle can be burned 4 hours at a time. With its signature features, it is 
 
 ✔️ Provides a cozy and soothing atmosphere.
 
-[Buy from Amazon](https://www.amazon.com/Sweet-Water-Decor-Sandalwood-Engagement/dp/B08TMKWPJS/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sweet-Water-Decor-Sandalwood-Engagement/dp/B08TMKWPJS/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Personalized Bridal Canvas Prints](https://shop.loveable.ai/collections/canvas/products/customized-map-she-said-yes-personalized-bridal-shower-gifts-canvas-prints-206hnthca227?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
@@ -251,9 +251,9 @@ Whether you’re planning a destination wedding or elopement, you and your new s
 
 [Buy from Loveable](https://shop.loveable.ai/collections/canvas/products/customized-map-she-said-yes-personalized-bridal-shower-gifts-canvas-prints-206hnthca227?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
-### [14\. Wedding Gifts Wine Bag](https://www.amazon.com/Wedding-Gifts-Bag%EF%BC%881-Engagement-Gift-J14/dp/B099N77GGD?ie=UTF8&tag=avadalove-20)
+### [14\. Wedding Gifts Wine Bag](https://www.amazon.com/Wedding-Gifts-Bag%EF%BC%881-Engagement-Gift-J14/dp/B099N77GGD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wedding-Gifts-Bag%EF%BC%881-Engagement-Gift-J14/dp/B099N77GGD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wedding-Gifts-Bag%EF%BC%881-Engagement-Gift-J14/dp/B099N77GGD?ie=UTF8&tag=giftable02-20)
 
 The wedding gifts wine bag is ideal for presenting wine as a gift during the wedding ceremony and reception. The wedding wine gifts wine gift bag has a large opening and can be used for holding bottles, glasses, and cups.
 
@@ -267,11 +267,11 @@ It can be folded up and stored easily and then displayed on the wedding table. E
 
 ✔️ Can be personalized for a special touch.
 
-[Buy from Amazon](https://www.amazon.com/Wedding-Gifts-Bag%EF%BC%881-Engagement-Gift-J14/dp/B099N77GGD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wedding-Gifts-Bag%EF%BC%881-Engagement-Gift-J14/dp/B099N77GGD?ie=UTF8&tag=giftable02-20)
 
-### [15\. Luggage Tags & Passport Holder Set](http://b08dbtkr91/?1?ie=UTF8&tag=avadalove-20)
+### [15\. Luggage Tags & Passport Holder Set](http://b08dbtkr91/?1?ie=UTF8&tag=giftable02-20)
 
-[](http://b08dbtkr91/?1?ie=UTF8&tag=avadalove-20)
+[](http://b08dbtkr91/?1?ie=UTF8&tag=giftable02-20)
 
 Whether you're celebrating a milestone with a wedding, anniversary, newlywed, bride & groom, honeymoon, or marriage, this, tag and passport holder will be the perfect gift.
 
@@ -285,11 +285,11 @@ Made from leather, this item is extremely durable and extremely suitable for lon
 
 ✔️ Can be personalized for a stylish and unique touch.
 
-[Buy from Amazon](http://b08dbtkr91/?1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](http://b08dbtkr91/?1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Wedding Planner & Organizer](https://www.amazon.com/Your-Perfect-Day-Wedding-Planner/dp/B07XLQD1ZV/?ie=UTF8&tag=avadalove-20)
+### [16\. Wedding Planner & Organizer](https://www.amazon.com/Your-Perfect-Day-Wedding-Planner/dp/B07XLQD1ZV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Your-Perfect-Day-Wedding-Planner/dp/B07XLQD1ZV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Your-Perfect-Day-Wedding-Planner/dp/B07XLQD1ZV/?ie=UTF8&tag=giftable02-20)
 
 A wedding plan book is an essential wedding planning tool that is great for organizing ideas and keeping track of time. It is also the perfect gift idea for those couples getting ready for their big day! This product includes a wedding planner that includes a detailed timeline with more than 132 pages full of detailed information on the wedding process and all the decisions that must be made along the way.
 
@@ -303,11 +303,11 @@ It also has a beautiful countdown calendar that is bound in coordinating papers 
 
 ✔️ Offers guidance and helpful resources.
 
-[Buy from Amazon](https://www.amazon.com/Your-Perfect-Day-Wedding-Planner/dp/B07XLQD1ZV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Your-Perfect-Day-Wedding-Planner/dp/B07XLQD1ZV/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Funny Coffee Mug](https://www.amazon.com/Engaged-Birthday-Festival-Christmas-Engagement/dp/B07RWV5L2G/?ie=UTF8&tag=avadalove-20)
+### [17\. Funny Coffee Mug](https://www.amazon.com/Engaged-Birthday-Festival-Christmas-Engagement/dp/B07RWV5L2G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engaged-Birthday-Festival-Christmas-Engagement/dp/B07RWV5L2G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engaged-Birthday-Festival-Christmas-Engagement/dp/B07RWV5L2G/?ie=UTF8&tag=giftable02-20)
 
 Get your hands on the Funny Coffee Mug and be ready to have a laugh! This mug has been made of porcelain, which is sturdy and won't crack or break easily. It has a black interior, with a white printed design featuring a funny saying.
 
@@ -321,7 +321,7 @@ So, what are you waiting for? Grab one of these mugs today and have a fun mornin
 
 ✔️ Brings a smile to your face with witty designs.
 
-[Buy from Amazon](https://www.amazon.com/Engaged-Birthday-Festival-Christmas-Engagement/dp/B07RWV5L2G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engaged-Birthday-Festival-Christmas-Engagement/dp/B07RWV5L2G/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Personalized Canvas Prints](https://shop.loveable.ai/collections/canvas/products/hello-will-you-i-do-map-customized-photo-with-name-personalized-canvas-prints?variant=43023507914984?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
@@ -359,9 +359,9 @@ Grab it and drink it; customize a white 11oz or 15oz mug with one of your prefer
 
 [Buy from Loveable](https://loveable.ai/products/couple-coffee-mug-husband-and-wife-mugs-couple-his-and-her-coffee-mug-novelty-gift-present-for-valentines-day-wedding-engagement-anniversary-newlyweds-for-couples-209ihpthmu193?variant=43833724403944?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
-### [20\. Wedding Planning Glass Set](https://www.amazon.com/Wedding-Planning-Engagement-Anniversary-Newlyweds/dp/B0948875N6/?ie=UTF8&tag=avadalove-20)
+### [20\. Wedding Planning Glass Set](https://www.amazon.com/Wedding-Planning-Engagement-Anniversary-Newlyweds/dp/B0948875N6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wedding-Planning-Engagement-Anniversary-Newlyweds/dp/B0948875N6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wedding-Planning-Engagement-Anniversary-Newlyweds/dp/B0948875N6/?ie=UTF8&tag=giftable02-20)
 
 This is a great idea for a gift for the couple who recently got engaged. This elegant set is made of hand-blown glass. The funny text will be printed on the glass to make a spotlight, and they come together to make a beautiful and lasting keepsake.
 
@@ -375,11 +375,11 @@ They also make great housewarming gifts for newlyweds. Especially, because of ma
 
 ✔️ Makes a thoughtful and practical gift for the couple.
 
-[Buy from Amazon](https://www.amazon.com/Wedding-Planning-Engagement-Anniversary-Newlyweds/dp/B0948875N6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wedding-Planning-Engagement-Anniversary-Newlyweds/dp/B0948875N6/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Wine and Whiskey Glass Gift Set](https://www.amazon.com/Boyfriend-Girlfriend-Wine-Whiskey-Glass/dp/B0987YPYD6/ref=cm_cr_arp_d_pdt_img_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+### [21\. Wine and Whiskey Glass Gift Set](https://www.amazon.com/Boyfriend-Girlfriend-Wine-Whiskey-Glass/dp/B0987YPYD6/ref=cm_cr_arp_d_pdt_img_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Boyfriend-Girlfriend-Wine-Whiskey-Glass/dp/B0987YPYD6/ref=cm_cr_arp_d_pdt_img_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Boyfriend-Girlfriend-Wine-Whiskey-Glass/dp/B0987YPYD6/ref=cm_cr_arp_d_pdt_img_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 This set is a must-have in every wedding registry. This unique wedding gift is a combination of our popular whiskey and wine glass set and a matching bottle stopper.
 
@@ -393,11 +393,11 @@ It's an elegant gift set that will make it easy for your fiancé or husband to s
 
 ✔️ Perfect for entertaining or enjoying a quiet evening at home.
 
-[Buy from Amazon](https://www.amazon.com/Boyfriend-Girlfriend-Wine-Whiskey-Glass/dp/B0987YPYD6/ref=cm_cr_arp_d_pdt_img_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Boyfriend-Girlfriend-Wine-Whiskey-Glass/dp/B0987YPYD6/ref=cm_cr_arp_d_pdt_img_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-### [22\. Funny Couple Stainless Steel Insulated Wine Tumbler](https://www.amazon.com/Boyfriend-Girlfriend-Engagement-Christmas-Bachlorette/dp/B081L9CV24/?ie=UTF8&tag=avadalove-20)
+### [22\. Funny Couple Stainless Steel Insulated Wine Tumbler](https://www.amazon.com/Boyfriend-Girlfriend-Engagement-Christmas-Bachlorette/dp/B081L9CV24/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Boyfriend-Girlfriend-Engagement-Christmas-Bachlorette/dp/B081L9CV24/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Boyfriend-Girlfriend-Engagement-Christmas-Bachlorette/dp/B081L9CV24/?ie=UTF8&tag=giftable02-20)
 
 This stainless steel tumbler is made to keep drinks hot for up to 40 minutes. With double walls and a vacuum insulated lid, your beverage will remain at your preferred temperature, no matter where you are.
 
@@ -411,11 +411,11 @@ Perfect for a romantic evening or an outdoor event, the tumbler keeps liquids ho
 
 ✔️ Durable and portable for on-the-go enjoyment.
 
-[Buy from Amazon](https://www.amazon.com/Boyfriend-Girlfriend-Engagement-Christmas-Bachlorette/dp/B081L9CV24/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Boyfriend-Girlfriend-Engagement-Christmas-Bachlorette/dp/B081L9CV24/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Romantic Love Picture Frame](https://www.amazon.com/Engagement-Wedding-Gifts-Engaged-Couples/dp/B086SJP2WR?ie=UTF8&tag=avadalove-20)
+### [23\. Romantic Love Picture Frame](https://www.amazon.com/Engagement-Wedding-Gifts-Engaged-Couples/dp/B086SJP2WR?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engagement-Wedding-Gifts-Engaged-Couples/dp/B086SJP2WR?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engagement-Wedding-Gifts-Engaged-Couples/dp/B086SJP2WR?ie=UTF8&tag=giftable02-20)
 
 This romantic Love picture frame will add a smile to your day by capturing the moments of true love in your lifetime. This frame is handcrafted with solid pine wood and can be engraved with a single line of text and then adorned with a beautiful heart-shaped symbol.
 
@@ -429,11 +429,11 @@ This will be an ideal gift to show your love and appreciation to your lovers. It
 
 ✔️ Makes a heartfelt gift for a loved one.
 
-[Buy from Amazon](https://www.amazon.com/Engagement-Wedding-Gifts-Engaged-Couples/dp/B086SJP2WR?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engagement-Wedding-Gifts-Engaged-Couples/dp/B086SJP2WR?ie=UTF8&tag=giftable02-20)
 
-### [24\. Engagement Picture Frame](https://www.amazon.com/Engagement-Picture-Couples-Unique-Engaged/dp/B096YZH9WQ?ie=UTF8&tag=avadalove-20)
+### [24\. Engagement Picture Frame](https://www.amazon.com/Engagement-Picture-Couples-Unique-Engaged/dp/B096YZH9WQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engagement-Picture-Couples-Unique-Engaged/dp/B096YZH9WQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engagement-Picture-Couples-Unique-Engaged/dp/B096YZH9WQ?ie=UTF8&tag=giftable02-20)
 
 The perfect gift idea for a couple's first home together. This gorgeous handmade wooden picture frame is engraved with an agreement to be the wife of your lovers. It will become a treasured wedding keepsake for years to come, making it an ideal gift.
 
@@ -447,11 +447,11 @@ The wood grain pattern was specially hand-picked for each frame to achieve the n
 
 ✔️ Makes a thoughtful and sentimental gift.
 
-[Buy from Amazon](https://www.amazon.com/Engagement-Picture-Couples-Unique-Engaged/dp/B096YZH9WQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engagement-Picture-Couples-Unique-Engaged/dp/B096YZH9WQ?ie=UTF8&tag=giftable02-20)
 
-### [25\. Ring Jewelry Dish Tray](https://www.amazon.com/Sweet-Water-Decor-Engagement-Accessories/dp/B07FM3NKMF?ie=UTF8&tag=avadalove-20)
+### [25\. Ring Jewelry Dish Tray](https://www.amazon.com/Sweet-Water-Decor-Engagement-Accessories/dp/B07FM3NKMF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sweet-Water-Decor-Engagement-Accessories/dp/B07FM3NKMF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sweet-Water-Decor-Engagement-Accessories/dp/B07FM3NKMF?ie=UTF8&tag=giftable02-20)
 
 This ring tray is a unique piece of jewelry that can be used to display your jewelry and keep them safe and organized. It makes a perfect gift for any occasion such as engagement, weddings, showers and so much more.
 
@@ -465,11 +465,11 @@ It's perfect for women, men, and even kids. Especially, it is made from ceramic 
 
 ✔️ Makes a decorative and functional addition to a vanity or dresser.
 
-[Buy from Amazon](https://www.amazon.com/Sweet-Water-Decor-Engagement-Accessories/dp/B07FM3NKMF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sweet-Water-Decor-Engagement-Accessories/dp/B07FM3NKMF?ie=UTF8&tag=giftable02-20)
 
-### [26\. The Wedding Planner Checklist](https://www.amazon.com/Wedding-Planner-Checklist-Portable-Organizing/dp/1441321543?ie=UTF8&tag=avadalove-20)
+### [26\. The Wedding Planner Checklist](https://www.amazon.com/Wedding-Planner-Checklist-Portable-Organizing/dp/1441321543?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wedding-Planner-Checklist-Portable-Organizing/dp/1441321543?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wedding-Planner-Checklist-Portable-Organizing/dp/1441321543?ie=UTF8&tag=giftable02-20)
 
 This wedding planner checklist will guide you in compiling the essential information you need to stay organized during your wedding planning process.
 
@@ -483,11 +483,11 @@ The handy fill-in list and chart format let you compile the essential informatio
 
 ✔️ Provides a comprehensive and convenient resource.
 
-[Buy from Amazon](https://www.amazon.com/Wedding-Planner-Checklist-Portable-Organizing/dp/1441321543?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wedding-Planner-Checklist-Portable-Organizing/dp/1441321543?ie=UTF8&tag=giftable02-20)
 
-### [27\. Wedding Day Countdown Calendar](https://www.amazon.com/Ganz-ER49764-Wedding-Countdown-Calendar/dp/B01N6QCA5B/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+### [27\. Wedding Day Countdown Calendar](https://www.amazon.com/Ganz-ER49764-Wedding-Countdown-Calendar/dp/B01N6QCA5B/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ganz-ER49764-Wedding-Countdown-Calendar/dp/B01N6QCA5B/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ganz-ER49764-Wedding-Countdown-Calendar/dp/B01N6QCA5B/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 This wedding day countdown calendar is so cute that you may not want to share it! This cleverly designed six-piece wooden block countdown calendar features a variety of charming Mr and Mrs blocks that are filled with numbers.
 
@@ -501,7 +501,7 @@ Each number is clearly marked on the side of the blocks, and measures approximat
 
 ✔️ Can be customized with personal touches and milestones.
 
-[Buy from Amazon](https://www.amazon.com/Ganz-ER49764-Wedding-Countdown-Calendar/dp/B01N6QCA5B/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ganz-ER49764-Wedding-Countdown-Calendar/dp/B01N6QCA5B/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Personalized Canvas Prints](https://shop.loveable.ai/collections/canvas/products/hello-will-you-i-do-map-customized-photo-with-name-personalized-canvas-prints-206hnthca226?variant=43368113144040?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
@@ -521,9 +521,9 @@ Choose your favorite picture, then choose your frame, and let your imagination r
 
 [Buy from Loveable](https://shop.loveable.ai/collections/canvas/products/hello-will-you-i-do-map-customized-photo-with-name-personalized-canvas-prints-206hnthca226?variant=43368113144040?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
-### [29\. Insulated Picnic Backpack](https://www.amazon.com/DELUXY-Backpack-Wedding-Engagement-Anniversary/dp/B08Y987N1Z/?ie=UTF8&tag=avadalove-20)
+### [29\. Insulated Picnic Backpack](https://www.amazon.com/DELUXY-Backpack-Wedding-Engagement-Anniversary/dp/B08Y987N1Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DELUXY-Backpack-Wedding-Engagement-Anniversary/dp/B08Y987N1Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DELUXY-Backpack-Wedding-Engagement-Anniversary/dp/B08Y987N1Z/?ie=UTF8&tag=giftable02-20)
 
 A thoughtful gift that will never be forgotten. When you're attending your wedding or honeymoon, treat yourself or the person you're sending this gift to for something special. Pack up a picnic for the two of you with this insulated backpack.
 
@@ -537,11 +537,11 @@ This backpack features easy access, zippered front pocket for your snacks, and a
 
 ✔️ All-in-One solution with storage compartments.
 
-[Buy from Amazon](https://www.amazon.com/DELUXY-Backpack-Wedding-Engagement-Anniversary/dp/B08Y987N1Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DELUXY-Backpack-Wedding-Engagement-Anniversary/dp/B08Y987N1Z/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Honeymoon Gift Set](https://www.amazon.com/Engagement-Newlywed-Honeymoon-Essentials-Anniversary/dp/B09R4SSB18?ie=UTF8&tag=avadalove-20)
+### [30\. Honeymoon Gift Set](https://www.amazon.com/Engagement-Newlywed-Honeymoon-Essentials-Anniversary/dp/B09R4SSB18?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engagement-Newlywed-Honeymoon-Essentials-Anniversary/dp/B09R4SSB18?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engagement-Newlywed-Honeymoon-Essentials-Anniversary/dp/B09R4SSB18?ie=UTF8&tag=giftable02-20)
 
 A gift set for the couple who wants to celebrate their special day with luxurious, high-quality products. They are made using the highest quality vegan leather, including Exquisite Marbled Gift Box, OSE Bath Bombs, Gold Lavender Candle, Wine Glass, Luggage Tags, and Passport Holder. .
 
@@ -553,11 +553,11 @@ A gift set for the couple who wants to celebrate their special day with luxuriou
 
 ✔️ Creates lasting memories of the special occasion.
 
-[Buy from Amazon](https://www.amazon.com/Engagement-Newlywed-Honeymoon-Essentials-Anniversary/dp/B09R4SSB18?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engagement-Newlywed-Honeymoon-Essentials-Anniversary/dp/B09R4SSB18?ie=UTF8&tag=giftable02-20)
 
-### [31\. Round Ring Holder](https://www.amazon.com/Waterford-751-433-95-00-Round-Ring-Holder/dp/B00015CEL2?ie=UTF8&tag=avadalove-20)
+### [31\. Round Ring Holder](https://www.amazon.com/Waterford-751-433-95-00-Round-Ring-Holder/dp/B00015CEL2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Waterford-751-433-95-00-Round-Ring-Holder/dp/B00015CEL2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Waterford-751-433-95-00-Round-Ring-Holder/dp/B00015CEL2?ie=UTF8&tag=giftable02-20)
 
 This elegant, handmade crystal ring holder is a perfect addition to your jewelry collection. Crafted of pure lead crystal, this ring stand is beautiful and durable. Use it to keep your favorite rings in place. With 2.5 inches of height, it will fit most rings, including men's large and extra-large.
 
@@ -573,11 +573,11 @@ Apologies for the oversight. Here are the revised pros with only capitalized wor
 
 ✔️ Adds a decorative touch to any vanity or dresser.
 
-[Buy from Amazon](https://www.amazon.com/Waterford-751-433-95-00-Round-Ring-Holder/dp/B00015CEL2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Waterford-751-433-95-00-Round-Ring-Holder/dp/B00015CEL2?ie=UTF8&tag=giftable02-20)
 
-### [32\. Engagement Map Print Personalized](https://www.amazon.com/Personalized-Engagement-Watercolor-Wedding-Unique/dp/B083XS7PL9/?ie=UTF8&tag=avadalove-20)
+### [32\. Engagement Map Print Personalized](https://www.amazon.com/Personalized-Engagement-Watercolor-Wedding-Unique/dp/B083XS7PL9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Engagement-Watercolor-Wedding-Unique/dp/B083XS7PL9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Engagement-Watercolor-Wedding-Unique/dp/B083XS7PL9/?ie=UTF8&tag=giftable02-20)
 
 Let her know she's your top choice by making this gift for her! Show how much you care with the perfect personalized gift for your loved one. She’ll be thrilled to receive a unique, original gift of your handiwork! With the gift of time, your artistic talents will come to life with a professionally printed canvas print.
 
@@ -591,11 +591,11 @@ Especially, this picture can be personalized with your lover's name and the date
 
 ✔️ Meaningful keepsake to commemorate your special moment.
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Engagement-Watercolor-Wedding-Unique/dp/B083XS7PL9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Engagement-Watercolor-Wedding-Unique/dp/B083XS7PL9/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Engagement Ring Dish](https://www.amazon.com/Engagement-Ceramic-Trinket-Honeymoon-Newlyweds/dp/B098F11CQD?ie=UTF8&tag=avadalove-20)
+### [33\. Engagement Ring Dish](https://www.amazon.com/Engagement-Ceramic-Trinket-Honeymoon-Newlyweds/dp/B098F11CQD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engagement-Ceramic-Trinket-Honeymoon-Newlyweds/dp/B098F11CQD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engagement-Ceramic-Trinket-Honeymoon-Newlyweds/dp/B098F11CQD?ie=UTF8&tag=giftable02-20)
 
 A romantic honeymoon wedding is a momentous occasion that should be enjoyed by all. The engagement ring dish allows you to take along your special diamond solitaire with you, ensuring you won't forget about it, or risk losing it.
 
@@ -609,11 +609,11 @@ The heartwarming design will surely bring a smile to your loved one’s face and
 
 ✔️ Convenient and Accessible spot to keep your ring.
 
-[Buy from Amazon](https://www.amazon.com/Engagement-Ceramic-Trinket-Honeymoon-Newlyweds/dp/B098F11CQD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engagement-Ceramic-Trinket-Honeymoon-Newlyweds/dp/B098F11CQD?ie=UTF8&tag=giftable02-20)
 
-### [34\. Ceramic Marble Cups](https://www.amazon.com/Jumway-Mrs-Coffee-Mugs-Anniversary/dp/B07HGQ9QF5?ie=UTF8&tag=avadalove-20)
+### [34\. Ceramic Marble Cups](https://www.amazon.com/Jumway-Mrs-Coffee-Mugs-Anniversary/dp/B07HGQ9QF5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jumway-Mrs-Coffee-Mugs-Anniversary/dp/B07HGQ9QF5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jumway-Mrs-Coffee-Mugs-Anniversary/dp/B07HGQ9QF5?ie=UTF8&tag=giftable02-20)
 
 To celebrate your love and the momentous occasion of becoming husband and wife, we offer this ceramic cup. It will show the beautiful image of two hearts entwined with love and will bring good luck for the life together.
 
@@ -627,7 +627,7 @@ This will cherish all the best moments you and your lover have together. Besides
 
 ✔️ Heat-resistant properties keep beverages hot longer.
 
-[Buy from Amazon](https://www.amazon.com/Jumway-Mrs-Coffee-Mugs-Anniversary/dp/B07HGQ9QF5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jumway-Mrs-Coffee-Mugs-Anniversary/dp/B07HGQ9QF5?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Customized Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1200259863/engagement-gift-customized-gift-best)
 
@@ -683,9 +683,9 @@ Use these personalized planter gifts to make your lovers feel appreciated, or se
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1067639622/personalized-planter-engagement-gift-3)
 
-### [38\. Engagement Picture Frame](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/?ie=UTF8&tag=avadalove-20)
+### [38\. Engagement Picture Frame](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/?ie=UTF8&tag=giftable02-20)
 
 An engagement picture frame is a special frame designed to showcase and preserve memorable engagement photos. It provides a beautiful and decorative display for the couple's cherished moments captured during their engagement.
 
@@ -699,7 +699,7 @@ Whether it's a classic silver frame, a rustic wooden frame, or a modern and slee
 
 ✔️ Makes for a thoughtful and sentimental gift option.
 
-[Buy from Amazon](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/?ie=UTF8&tag=giftable02-20)
 
 ### [39\. Personalized-bride-gift-box-set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1003519270/future-mrs-mug-personalized-bride-gift)
 
@@ -827,9 +827,9 @@ The cutting board provides ample space for chopping, slicing, and dicing a varie
 
 [Buy from Loveable](https://loveable.ai/products/recipe-for-a-happy-marriage-take-love-and-loyalty-and-mix-thoroughly-for-new-married-couple-for-fiance-wood-cutting-board-wedding-gift-for-husband-wife-romantic-gift-for-her-him-305icnbnwb594?variant=44504959779048?utm_source=avada&ranking=&utm_source=&utm_campaign=unusual-engagement-present-ideas-that-are-perfect-for-any-couples)
 
-### [46\. Engagement One Line Drawing](https://www.amazon.com/dp/B0C6995NGY?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [46\. Engagement One Line Drawing](https://www.amazon.com/dp/B0C6995NGY?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0C6995NGY?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0C6995NGY?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Ready to turn your engagement photo into a captivating work of art? Experience the magic of the Engagement One Line Drawing.
 
@@ -843,11 +843,11 @@ This artwork was meticulously created and is offered in a range of sizes to fit 
 
 ✔️ High-quality craftsmanship ensures a long-lasting and visually stunning piece.
 
-[Buy from Amazon](https://www.amazon.com/dp/B0C6995NGY?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0C6995NGY?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [47\. Personalized Engaged Wooden Block](https://www.amazon.com/dp/B0CD7V4WDJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [47\. Personalized Engaged Wooden Block](https://www.amazon.com/dp/B0CD7V4WDJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CD7V4WDJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CD7V4WDJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Dive into the world of customized gifts with the Personalized Engaged Wooden Block, a top-tier product that raises the bar for thoughtful celebratory presents. This souvenir is more than just an item; it's a tangible representation of a cherished memory, making it a piece worth investing in.
 
@@ -863,11 +863,11 @@ Each wooden block is meticulously handcrafted, offering a rustic charm that is h
 
 ✔️ Perfect keepsake for special occasions
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CD7V4WDJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CD7V4WDJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [48\. Shape Acrylic Plaque](https://www.amazon.com/dp/B0CCV7JT99?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [48\. Shape Acrylic Plaque](https://www.amazon.com/dp/B0CCV7JT99?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CCV7JT99?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CCV7JT99?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Commemorate your walk down the aisle with an elegant accessory that uniquely echoes the day's magic - the Shape Acrylic Plaque. This personalized keepsake is a sublime addition to your wedding collection that encapsulates the essence of your bridal journey.
 
@@ -883,11 +883,11 @@ The Shape Acrylic Plaque is designed with premium materials and superior workman
 
 ✔️ Elegantly designed for brides
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CCV7JT99?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CCV7JT99?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [49\. Personalized Engagement Wood Sign](https://www.amazon.com/dp/B0CHB8X8F1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [49\. Personalized Engagement Wood Sign](https://www.amazon.com/dp/B0CHB8X8F1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CHB8X8F1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CHB8X8F1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Celebrate and honor the momentous occasion of engagement with this Personalized Engagement Wood Sign.
 
@@ -903,7 +903,7 @@ Bearing more than just the announcement, this sign is a tribute to the journey o
 
 ✔️ Commemorates an important event
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CHB8X8F1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CHB8X8F1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 When it comes to celebrating an engagement, finding the perfect present for the happy couple can be a daunting task. While traditional gifts like champagne flutes or photo frames are always appreciated, sometimes it's nice to think outside the box and surprise the newly engaged couple with something truly unique.
 

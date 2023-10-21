@@ -15,9 +15,9 @@ Are you a big fan of "The Office" TV show? If you are an office worker, you may 
 
 Owning a gift to brighten up your workplace and bring a sense of humor to a boring and formal area to cherish your colleagues. These presents will support you to connect to the characters in the TV show and bring you into funny jokes with friends. So, don't wait for anymore. Scroll down the screen and grab a desirable gift for yourself and a loved one.
 
-### [1\. Free Spinning Executive Pen](https://www.amazon.com/novium-Interstellar-Futuristic-Aerospace-Aesthetic/dp/B09DKXVWV4/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Free Spinning Executive Pen](https://www.amazon.com/novium-Interstellar-Futuristic-Aerospace-Aesthetic/dp/B09DKXVWV4/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/novium-Interstellar-Futuristic-Aerospace-Aesthetic/dp/B09DKXVWV4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/novium-Interstellar-Futuristic-Aerospace-Aesthetic/dp/B09DKXVWV4/?th=1?ie=UTF8&tag=giftable02-20)
 
 Are your loved one indulging in The Office TV show? And you want to improve the workplace for him/her. This pen is a great gift to make any idea come true and bring an elegant addition to his/her workplace.
 
@@ -31,11 +31,11 @@ With its durable construction and quality materials, it's built to last and prov
 
 ✔️ Feature aerospace aesthetics to bring a new style to your workplace
 
-[Buy from Amazon](https://www.amazon.com/novium-Interstellar-Futuristic-Aerospace-Aesthetic/dp/B09DKXVWV4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/novium-Interstellar-Futuristic-Aerospace-Aesthetic/dp/B09DKXVWV4/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. The Office Us TV Series Special Edition Set](https://www.amazon.com/Fisher-Price-Little-People-Office-Figures/dp/B07Y17KDJ6?ie=UTF8&tag=avadalove-20)
+### [2\. The Office Us TV Series Special Edition Set](https://www.amazon.com/Fisher-Price-Little-People-Office-Figures/dp/B07Y17KDJ6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Little-People-Office-Figures/dp/B07Y17KDJ6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Little-People-Office-Figures/dp/B07Y17KDJ6?ie=UTF8&tag=giftable02-20)
 
 Quickly grab this special edition set to delight a fan of The Office TV show. The gift will bring a smile to his/her's face immediately and cherish them for years to come.
 
@@ -51,11 +51,11 @@ Each figure is designed with charming and accurate details, from Michael's World
 
 ✔️ Thoughtful gift for a TV show lover
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Little-People-Office-Figures/dp/B07Y17KDJ6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Little-People-Office-Figures/dp/B07Y17KDJ6?ie=UTF8&tag=giftable02-20)
 
-### [3\. The Office Ankle Sock Set](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY/r?ie=UTF8&tag=avadalove-20)
+### [3\. The Office Ankle Sock Set](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY/r?ie=UTF8&tag=giftable02-20)
 
 Is your loved one a big fan of The Office? Let's consider this sock set to give her/him. This gift is inspired by this humorous TV show to amaze your beloved and keep their mood positive every day.
 
@@ -69,11 +69,11 @@ Each set includes five pairs of socks, giving you a different style to wear for 
 
 ✔️ Diverse designs to give you many alternatives from day to day
 
-[Buy from Amazon](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY/r?ie=UTF8&tag=giftable02-20)
 
-### [4\. Neck Back Massager Pillow](https://www.amazon.com/Shiatsu-Neck-Back-Massager-Pillow/dp/B07DR9SPGT?ie=UTF8&tag=avadalove-20)
+### [4\. Neck Back Massager Pillow](https://www.amazon.com/Shiatsu-Neck-Back-Massager-Pillow/dp/B07DR9SPGT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Shiatsu-Neck-Back-Massager-Pillow/dp/B07DR9SPGT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Shiatsu-Neck-Back-Massager-Pillow/dp/B07DR9SPGT?ie=UTF8&tag=giftable02-20)
 
 Do you know someone who spends long hours sitting at a desk? So why not give the gift of relaxation and stress relief? The Shiatsu Massager Pillow is the perfect gift for any office worker in your life. Get yours today!
 
@@ -89,11 +89,11 @@ The Shiatsu Neck and Back Massager Pillow have four deep-kneading massage nodes 
 
 ✔️ Compact and lightweight design makes it easy to store and travel with
 
-[Buy from Amazon](https://www.amazon.com/Shiatsu-Neck-Back-Massager-Pillow/dp/B07DR9SPGT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Shiatsu-Neck-Back-Massager-Pillow/dp/B07DR9SPGT?ie=UTF8&tag=giftable02-20)
 
-### [5\. Music Bedside Lamp with Wireless Charger](https://www.amazon.com/EZVALO-Wireless-Portable-Bluetooth-Dimmable/dp/B08VD26L2F?ie=UTF8&tag=avadalove-20)
+### [5\. Music Bedside Lamp with Wireless Charger](https://www.amazon.com/EZVALO-Wireless-Portable-Bluetooth-Dimmable/dp/B08VD26L2F?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/EZVALO-Wireless-Portable-Bluetooth-Dimmable/dp/B08VD26L2F?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/EZVALO-Wireless-Portable-Bluetooth-Dimmable/dp/B08VD26L2F?ie=UTF8&tag=giftable02-20)
 
 The EZVALO lamp is the perfect office gift for fans of music and ambiance. It's also a thoughtful and practical gift for your coworkers, friends, or loved ones who work from home.
 
@@ -109,11 +109,11 @@ This lamp features multiple functions, including dimmable LED lights, a wireless
 
 ✔️ Portable and easy to bring along anywhere
 
-[Buy from Amazon](https://www.amazon.com/EZVALO-Wireless-Portable-Bluetooth-Dimmable/dp/B08VD26L2F?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/EZVALO-Wireless-Portable-Bluetooth-Dimmable/dp/B08VD26L2F?ie=UTF8&tag=giftable02-20)
 
-### [6\. The Office TV Show Alphabet Tote Bag](https://www.amazon.com/Tuilia-Alphabet-Natural-Reusable-Eco-Friendly/dp/B08L4B5BWM?ie=UTF8&tag=avadalove-20)
+### [6\. The Office TV Show Alphabet Tote Bag](https://www.amazon.com/Tuilia-Alphabet-Natural-Reusable-Eco-Friendly/dp/B08L4B5BWM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tuilia-Alphabet-Natural-Reusable-Eco-Friendly/dp/B08L4B5BWM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tuilia-Alphabet-Natural-Reusable-Eco-Friendly/dp/B08L4B5BWM?ie=UTF8&tag=giftable02-20)
 
 Introducing this Tote Bag, the perfect eco-friendly and reusable bag for any office or daily use. Its unique alphabet design allows you to express your individuality while staying environmentally conscious.
 
@@ -129,11 +129,11 @@ Made of natural cotton, the Tuilia Alphabet Natural Tote Bag is durable and can 
 
 ✔️ Spacious interior fits daily necessities
 
-[Buy from Amazon](https://www.amazon.com/Tuilia-Alphabet-Natural-Reusable-Eco-Friendly/dp/B08L4B5BWM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tuilia-Alphabet-Natural-Reusable-Eco-Friendly/dp/B08L4B5BWM?ie=UTF8&tag=giftable02-20)
 
-### [7\. Coffee Mug Warmer](https://www.amazon.com/Coffee-Warmer-Temperature-Settings-Heating/dp/B0BGBS644Q/?ie=UTF8&tag=avadalove-20)
+### [7\. Coffee Mug Warmer](https://www.amazon.com/Coffee-Warmer-Temperature-Settings-Heating/dp/B0BGBS644Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coffee-Warmer-Temperature-Settings-Heating/dp/B0BGBS644Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coffee-Warmer-Temperature-Settings-Heating/dp/B0BGBS644Q/?ie=UTF8&tag=giftable02-20)
 
 Imagine the smile on your loved one's face as they take a sip of their perfectly warm coffee while reminiscing about their favorite episodes of The Office. Let's get this warmer to make it come true.
 
@@ -149,11 +149,11 @@ With three temperature settings, it allows you to customize the warmth of your d
 
 ✔️ Compact size makes it easy to use in any setting
 
-[Buy from Amazon](https://www.amazon.com/Coffee-Warmer-Temperature-Settings-Heating/dp/B0BGBS644Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coffee-Warmer-Temperature-Settings-Heating/dp/B0BGBS644Q/?ie=UTF8&tag=giftable02-20)
 
-### [8\. LED Light-Up Word Clock](https://www.amazon.com/Sharper-Image-Electronic-Display-Contemporary/dp/B07CD7S9PZ/?ie=UTF8&tag=avadalove-20)
+### [8\. LED Light-Up Word Clock](https://www.amazon.com/Sharper-Image-Electronic-Display-Contemporary/dp/B07CD7S9PZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sharper-Image-Electronic-Display-Contemporary/dp/B07CD7S9PZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sharper-Image-Electronic-Display-Contemporary/dp/B07CD7S9PZ/?ie=UTF8&tag=giftable02-20)
 
 Looking for a unique and creative gift for The Office fan in your life? This clock is amazing for telling time and displays the time in a fun and interesting way.
 
@@ -167,11 +167,11 @@ This word clock is practical, with its contemporary design and large display mak
 
 ✔️ Lighting up words to indicate the time
 
-[Buy from Amazon](https://www.amazon.com/Sharper-Image-Electronic-Display-Contemporary/dp/B07CD7S9PZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sharper-Image-Electronic-Display-Contemporary/dp/B07CD7S9PZ/?ie=UTF8&tag=giftable02-20)
 
-### [9\. CushZone Foot Rest](https://www.amazon.com/CushZone-Adjustable-Office-Computer-Accessories/dp/B0B7HZNMPZ?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. CushZone Foot Rest](https://www.amazon.com/CushZone-Adjustable-Office-Computer-Accessories/dp/B0B7HZNMPZ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CushZone-Adjustable-Office-Computer-Accessories/dp/B0B7HZNMPZ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CushZone-Adjustable-Office-Computer-Accessories/dp/B0B7HZNMPZ?th=1?ie=UTF8&tag=giftable02-20)
 
 Introducing the CushZone Foot Rest, the perfect gift for The Office fans who value comfort and relaxation. This footrest provides a solution to a common issue faced by many office workers.
 
@@ -187,11 +187,11 @@ The footrest is fully adjustable to suit your needs, allowing you to find the pe
 
 ✔️ Lightweight and portable for convenience
 
-[Buy from Amazon](https://www.amazon.com/CushZone-Adjustable-Office-Computer-Accessories/dp/B0B7HZNMPZ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CushZone-Adjustable-Office-Computer-Accessories/dp/B0B7HZNMPZ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [10\. Thank You Gifts Coworker Keychain](https://www.amazon.com/Coworker-Supervisor-Appreciation-Retirement-Christmas/dp/B097JGTZ1D/?ie=UTF8&tag=avadalove-20)
+### [10\. Thank You Gifts Coworker Keychain](https://www.amazon.com/Coworker-Supervisor-Appreciation-Retirement-Christmas/dp/B097JGTZ1D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Supervisor-Appreciation-Retirement-Christmas/dp/B097JGTZ1D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Supervisor-Appreciation-Retirement-Christmas/dp/B097JGTZ1D/?ie=UTF8&tag=giftable02-20)
 
 This keychain is a fantastic gift for any The Office fan. It can serve as a daily reminder of their favorite show and its associated memories.
 
@@ -205,11 +205,11 @@ Pros:
 
 ✔️ Comes with a sturdy keyring for secure attachment of keys
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Supervisor-Appreciation-Retirement-Christmas/dp/B097JGTZ1D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Supervisor-Appreciation-Retirement-Christmas/dp/B097JGTZ1D/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Can’t Remember Note Pad](https://www.amazon.com/Cant-Remember-Daily-Planner-Note/dp/1441319638/?ie=UTF8&tag=avadalove-20)
+### [11\. Can’t Remember Note Pad](https://www.amazon.com/Cant-Remember-Daily-Planner-Note/dp/1441319638/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cant-Remember-Daily-Planner-Note/dp/1441319638/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cant-Remember-Daily-Planner-Note/dp/1441319638/?ie=UTF8&tag=giftable02-20)
 
 This Can't Remember Sh\*t Daily Planner Note Pad will delight any fan of The Office who needs to get their life together. It's not just a simple notepad, but a tool to help keep them organized and reduce stress.
 
@@ -225,11 +225,11 @@ The pad is compact, measuring 6 x 9 inches, making it easy to carry around in a 
 
 ✔️ Includes 30 daily planner sheets with to-do lists and note sections
 
-[Buy from Amazon](https://www.amazon.com/Cant-Remember-Daily-Planner-Note/dp/1441319638/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cant-Remember-Daily-Planner-Note/dp/1441319638/?ie=UTF8&tag=giftable02-20)
 
-### [12\. 50 US States Push Pins](https://www.amazon.com/States-Push-Pins-Mark-Travel/dp/B0BD433GY6?ie=UTF8&tag=avadalove-20)
+### [12\. 50 US States Push Pins](https://www.amazon.com/States-Push-Pins-Mark-Travel/dp/B0BD433GY6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/States-Push-Pins-Mark-Travel/dp/B0BD433GY6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/States-Push-Pins-Mark-Travel/dp/B0BD433GY6?ie=UTF8&tag=giftable02-20)
 
 Looking for a thoughtful gift for The Office fan in your life? Perfect for marking travel destinations or favorite places, these push pins add a personal touch to any map or bulletin board.
 
@@ -243,11 +243,11 @@ This set includes 50 push pins, each featuring the shape of a different US state
 
 ✔️ Comes in a reusable container for easy storage and transport
 
-[Buy from Amazon](https://www.amazon.com/States-Push-Pins-Mark-Travel/dp/B0BD433GY6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/States-Push-Pins-Mark-Travel/dp/B0BD433GY6?ie=UTF8&tag=giftable02-20)
 
-### [13\. Coworker Keychain Gifts](https://www.amazon.com/Coworker-Appreciation-Christmas-Supervisor-Retirement/dp/B08NDN9QZP/?ie=UTF8&tag=avadalove-20)
+### [13\. Coworker Keychain Gifts](https://www.amazon.com/Coworker-Appreciation-Christmas-Supervisor-Retirement/dp/B08NDN9QZP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coworker-Appreciation-Christmas-Supervisor-Retirement/dp/B08NDN9QZP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coworker-Appreciation-Christmas-Supervisor-Retirement/dp/B08NDN9QZP/?ie=UTF8&tag=giftable02-20)
 
 This keychain is more than just a simple accessory - it's a symbol of the special connection you share with your colleague and a reminder of the moments you've shared together.
 
@@ -261,11 +261,11 @@ Measuring 2.75 inches in length and made from durable materials, this keychain i
 
 ✔️ Practical and thoughtful gift for any fan of the show
 
-[Buy from Amazon](https://www.amazon.com/Coworker-Appreciation-Christmas-Supervisor-Retirement/dp/B08NDN9QZP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coworker-Appreciation-Christmas-Supervisor-Retirement/dp/B08NDN9QZP/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Plant Propagation Station](https://www.amazon.com/Propagation-Plant-Hydroponics-Decoration-Accessories/dp/B096VDR4TM/?th=1?ie=UTF8&tag=avadalove-20)
+### [14\. Plant Propagation Station](https://www.amazon.com/Propagation-Plant-Hydroponics-Decoration-Accessories/dp/B096VDR4TM/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Propagation-Plant-Hydroponics-Decoration-Accessories/dp/B096VDR4TM/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Propagation-Plant-Hydroponics-Decoration-Accessories/dp/B096VDR4TM/?th=1?ie=UTF8&tag=giftable02-20)
 
 Why not add some greenery to your office space? The Plant Propagation Station is the perfect solution for plant lovers and The Office fans alike!
 
@@ -281,11 +281,11 @@ With its sleek and modern design, this propagation station is an excellent addit
 
 ✔️ Made of high-quality materials for durability
 
-[Buy from Amazon](https://www.amazon.com/Propagation-Plant-Hydroponics-Decoration-Accessories/dp/B096VDR4TM/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Propagation-Plant-Hydroponics-Decoration-Accessories/dp/B096VDR4TM/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [15\. Snacks Box Variety Pack Care Package](https://www.amazon.com/Christmas-basket-Variety-Snack-Package/dp/B08BPJYFBV?ie=UTF8&tag=avadalove-20)
+### [15\. Snacks Box Variety Pack Care Package](https://www.amazon.com/Christmas-basket-Variety-Snack-Package/dp/B08BPJYFBV?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-basket-Variety-Snack-Package/dp/B08BPJYFBV?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-basket-Variety-Snack-Package/dp/B08BPJYFBV?ie=UTF8&tag=giftable02-20)
 
 This delicious assortment of treats is sure to delight anyone who loves the hit TV show. And it's a nice way to show your appreciation for your coworkers, friends, or family members.
 
@@ -299,11 +299,11 @@ With a generous size of 12 x 9 x 3 inches, this snack box contains a total of 30
 
 ✔️ Sturdy and reusable storage box
 
-[Buy from Amazon](https://www.amazon.com/Christmas-basket-Variety-Snack-Package/dp/B08BPJYFBV?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-basket-Variety-Snack-Package/dp/B08BPJYFBV?ie=UTF8&tag=giftable02-20)
 
-### [16\. Boriwat Back Massager](https://www.amazon.com/Massager-Massagers-Shiatsu-Massage-Shoulder/dp/B09JT15JQF?ie=UTF8&tag=avadalove-20)
+### [16\. Boriwat Back Massager](https://www.amazon.com/Massager-Massagers-Shiatsu-Massage-Shoulder/dp/B09JT15JQF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Massager-Massagers-Shiatsu-Massage-Shoulder/dp/B09JT15JQF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Massager-Massagers-Shiatsu-Massage-Shoulder/dp/B09JT15JQF?ie=UTF8&tag=giftable02-20)
 
 Beyond its obvious benefits of easing tension and relaxing muscles, this massager can also improve your mood and promote a sense of well-being.
 
@@ -317,11 +317,11 @@ This massager boasts a variety of impressive features, including a compact desig
 
 ✔️ Heat function adds an extra level of relaxation
 
-[Buy from Amazon](https://www.amazon.com/Massager-Massagers-Shiatsu-Massage-Shoulder/dp/B09JT15JQF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Massager-Massagers-Shiatsu-Massage-Shoulder/dp/B09JT15JQF?ie=UTF8&tag=giftable02-20)
 
-### [17\. Bladeless Neck Fan](https://www.amazon.com/Bladeless-Airflow-Portable-Hands-Free-Small/dp/B08B3PWN1L/?ie=UTF8&tag=avadalove-20)
+### [17\. Bladeless Neck Fan](https://www.amazon.com/Bladeless-Airflow-Portable-Hands-Free-Small/dp/B08B3PWN1L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bladeless-Airflow-Portable-Hands-Free-Small/dp/B08B3PWN1L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bladeless-Airflow-Portable-Hands-Free-Small/dp/B08B3PWN1L/?ie=UTF8&tag=giftable02-20)
 
 Come with this innovative Bladeless Neck Fan! Perfect for office workers, this fan not only keeps you cool but also adds a touch of fun to your day.
 
@@ -337,11 +337,11 @@ This fan features three adjustable speeds, so you can customize the airflow to m
 
 ✔️ Three adjustable speeds and long battery life offer customizable comfort all day long
 
-[Buy from Amazon](https://www.amazon.com/Bladeless-Airflow-Portable-Hands-Free-Small/dp/B08B3PWN1L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bladeless-Airflow-Portable-Hands-Free-Small/dp/B08B3PWN1L/?ie=UTF8&tag=giftable02-20)
 
-### [18\. The Wearable Blanket](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B08R7T4ZHS?th=1?ie=UTF8&tag=avadalove-20) 
+### [18\. The Wearable Blanket](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B08R7T4ZHS?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B08R7T4ZHS?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B08R7T4ZHS?th=1?ie=UTF8&tag=giftable02-20)
 
 With its innovative design, this blanket offers benefits that are not easily seen, making it a must-have for any The Office fan.
 
@@ -355,11 +355,11 @@ Measuring 50 x 60 inches, this wearable blanket is the perfect size for snugglin
 
 ✔️ Great for use in the office or while traveling
 
-[Buy from Amazon](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B08R7T4ZHS?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B08R7T4ZHS?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. Disney Tote Travel Bag Cats Print](https://www.amazon.com/Disney-Tote-Travel-Cats-Print/dp/B07ZBQ7ZFP?ie=UTF8&tag=avadalove-20)
+### [19\. Disney Tote Travel Bag Cats Print](https://www.amazon.com/Disney-Tote-Travel-Cats-Print/dp/B07ZBQ7ZFP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Disney-Tote-Travel-Cats-Print/dp/B07ZBQ7ZFP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Disney-Tote-Travel-Cats-Print/dp/B07ZBQ7ZFP?ie=UTF8&tag=giftable02-20)
 
 This tote bag not only features a cute design with famous feline Disney characters, but it's also perfect for carrying all of your daily essentials, whether you're heading to the office or out running errands.
 
@@ -375,7 +375,7 @@ The tote bag's spacious interior and sturdy construction make it an excellent ch
 
 ✔️ Durable straps and lightweight design for comfortable carrying
 
-[Buy from Amazon](https://www.amazon.com/Disney-Tote-Travel-Cats-Print/dp/B07ZBQ7ZFP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Disney-Tote-Travel-Cats-Print/dp/B07ZBQ7ZFP?ie=UTF8&tag=giftable02-20)
 
 ### [20\. The Office Music Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1302144224/the-office-music-box-theme-music-chest)
 
@@ -469,9 +469,9 @@ The sign measures 8x10 inches and is made from high-quality materials that ensur
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1405768892/personalized-door-sign-from-the-show-the)
 
-### [25\. Modern LED Table Lamp](https://www.amazon.com/EIDEARAY-Dimmable-Control-Charging-Minimalist/dp/B0B93DHNBX?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Modern LED Table Lamp](https://www.amazon.com/EIDEARAY-Dimmable-Control-Charging-Minimalist/dp/B0B93DHNBX?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/EIDEARAY-Dimmable-Control-Charging-Minimalist/dp/B0B93DHNBX?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/EIDEARAY-Dimmable-Control-Charging-Minimalist/dp/B0B93DHNBX?th=1?ie=UTF8&tag=giftable02-20)
 
 This lamp is ideal to provide a warm and cozy glow in any space. Besides, it also offers a variety of features that make it a must-have for any home or office.
 
@@ -487,11 +487,11 @@ With its sleek and minimalist design, this lamp will add a touch of sophisticati
 
 ✔️ Energy-saving LED bulb provides long-lasting illumination
 
-[Buy from Amazon](https://www.amazon.com/EIDEARAY-Dimmable-Control-Charging-Minimalist/dp/B0B93DHNBX?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/EIDEARAY-Dimmable-Control-Charging-Minimalist/dp/B0B93DHNBX?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. HP Printer Paper](https://www.amazon.com/HP-Printer-Paper-Office20-Letter/dp/B004YC0XZC?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. HP Printer Paper](https://www.amazon.com/HP-Printer-Paper-Office20-Letter/dp/B004YC0XZC?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HP-Printer-Paper-Office20-Letter/dp/B004YC0XZC?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HP-Printer-Paper-Office20-Letter/dp/B004YC0XZC?th=1?ie=UTF8&tag=giftable02-20)
 
 This versatile paper is perfect for printing everything from memos and letters to reports and presentations, making it an essential office supply for any fan of The Office.
 
@@ -507,11 +507,11 @@ Not only is it specifically designed to deliver sharp and clear text, but it's a
 
 ✔️ Double-sided printing without any bleeding or smudging
 
-[Buy from Amazon](https://www.amazon.com/HP-Printer-Paper-Office20-Letter/dp/B004YC0XZC?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HP-Printer-Paper-Office20-Letter/dp/B004YC0XZC?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Metal Boss Lady Pen Set](https://www.amazon.com/Sweet-Water-Decor-Inspirational-Motivational/dp/B07Y6XL3VL?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Metal Boss Lady Pen Set](https://www.amazon.com/Sweet-Water-Decor-Inspirational-Motivational/dp/B07Y6XL3VL?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sweet-Water-Decor-Inspirational-Motivational/dp/B07Y6XL3VL?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sweet-Water-Decor-Inspirational-Motivational/dp/B07Y6XL3VL?th=1?ie=UTF8&tag=giftable02-20)
 
 This Sweet Water Decor pen set is more than just a writing tool, it's a motivational daily companion for The Office fans.
 
@@ -525,11 +525,11 @@ The set includes three ballpoint pens with black ink and phrases that read "The 
 
 ✔️ Clear plastic box for presentation and storage
 
-[Buy from Amazon](https://www.amazon.com/Sweet-Water-Decor-Inspirational-Motivational/dp/B07Y6XL3VL?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sweet-Water-Decor-Inspirational-Motivational/dp/B07Y6XL3VL?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\. The Office Clue Edition](https://www.amazon.com/dp/B001SN8GA4?ie=UTF8&tag=avadalove-20)
+### [28\. The Office Clue Edition](https://www.amazon.com/dp/B001SN8GA4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B001SN8GA4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B001SN8GA4?ie=UTF8&tag=giftable02-20)
 
 With its unique blend of The Office fandom and classic board game mechanics, this game is sure to be a hit with any fan of the show.
 
@@ -545,11 +545,11 @@ In The Office Clue Edition, players must solve the mystery of who killed Toby Fl
 
 ✔️ Classic board game mechanics with a fresh twist
 
-[Buy from Amazon](https://www.amazon.com/dp/B001SN8GA4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B001SN8GA4?ie=UTF8&tag=giftable02-20)
 
-### [29\. Hand Massager](https://www.amazon.com/CINCOM-Rechargeable-Massager-Compression-Arthritis/dp/B0872Y3HJC/?ie=UTF8&tag=avadalove-20)
+### [29\. Hand Massager](https://www.amazon.com/CINCOM-Rechargeable-Massager-Compression-Arthritis/dp/B0872Y3HJC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CINCOM-Rechargeable-Massager-Compression-Arthritis/dp/B0872Y3HJC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CINCOM-Rechargeable-Massager-Compression-Arthritis/dp/B0872Y3HJC/?ie=UTF8&tag=giftable02-20)
 
 Get and imagine the look on your loved one's face as they enjoy a relaxing massage after a long day at the office while reminiscing about their favorite characters and moments from The Office. It is happy, right?
 
@@ -565,11 +565,11 @@ With its sleek and ergonomic design, this massager fits comfortably in the palm 
 
 ✔️ Compact and portable for use anywhere and anytime.
 
-[Buy from Amazon](https://www.amazon.com/CINCOM-Rechargeable-Massager-Compression-Arthritis/dp/B0872Y3HJC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CINCOM-Rechargeable-Massager-Compression-Arthritis/dp/B0872Y3HJC/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Advent Calendar The Office](https://www.amazon.com/dp/B0863D5CXN?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Advent Calendar The Office](https://www.amazon.com/dp/B0863D5CXN?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0863D5CXN?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0863D5CXN?th=1?ie=UTF8&tag=giftable02-20)
 
 This delightful advent calendar, which will bring joy and anticipation to any fan's holiday season. With 24 doors to open, this calendar offers a fun and interactive way to count down to Christmas.
 
@@ -583,11 +583,11 @@ But this advent calendar isn't just about the fun of discovering each day's surp
 
 ✔️ Wide variety of surprises, including stickers, pins, and ornaments
 
-[Buy from Amazon](https://www.amazon.com/dp/B0863D5CXN?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0863D5CXN?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Funko Pop TV The Office](https://www.amazon.com/dp/B07NSW1R3T?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Funko Pop TV The Office](https://www.amazon.com/dp/B07NSW1R3T?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07NSW1R3T?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07NSW1R3T?th=1?ie=UTF8&tag=giftable02-20)
 
 This figure of Dwight Schrute from The Office is the perfect addition to any fan's collection.
 
@@ -603,7 +603,7 @@ In addition to its emotional benefits, this figure is also a high-quality collec
 
 ✔️ Perfect addition to any The Office fan's collection.
 
-[Buy from Amazon](https://www.amazon.com/dp/B07NSW1R3T?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07NSW1R3T?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Serenity by Jan Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1107339221/serenity-by-jan-thats-what-she-said-that)
 
@@ -643,9 +643,9 @@ This high-quality trophy is made with durable materials and features intricate d
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/794201063/hottest-in-the-office-dundie-award)
 
-### [34\. The Office Stickers 50 Pack](https://www.amazon.com/dp/B082W176MH?ie=UTF8&tag=avadalove-20)
+### [34\. The Office Stickers 50 Pack](https://www.amazon.com/dp/B082W176MH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B082W176MH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B082W176MH?ie=UTF8&tag=giftable02-20)
 
 Introducing the perfect way to show off your love for The Office with these hilarious and creative stickers! Whether you're a die-hard fan or just someone who appreciates the show's humor, these stickers will surely make you smile.
 
@@ -661,11 +661,11 @@ Measuring 3 inches each, these vinyl stickers are durable and perfect for decora
 
 ✔️ Can make an excellent office gift for fans of The Office
 
-[Buy from Amazon](https://www.amazon.com/dp/B082W176MH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B082W176MH?ie=UTF8&tag=giftable02-20)
 
-### [35\. Sequin Pillow Covers](https://www.amazon.com/JYVNCZ-Michael-Merchandise-Reversible-Birthday/dp/B0BG96ZHTG/?ie=UTF8&tag=avadalove-20) 
+### [35\. Sequin Pillow Covers](https://www.amazon.com/JYVNCZ-Michael-Merchandise-Reversible-Birthday/dp/B0BG96ZHTG/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/JYVNCZ-Michael-Merchandise-Reversible-Birthday/dp/B0BG96ZHTG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JYVNCZ-Michael-Merchandise-Reversible-Birthday/dp/B0BG96ZHTG/?ie=UTF8&tag=giftable02-20)
 
 Featuring iconic quotes and images from the show, these covers will instantly transport you to the Scranton branch of Dunder Mifflin. In addition, these pillow covers will impress with their unique design and cozy feel in a The Office fan.
 
@@ -679,4 +679,4 @@ These pillow covers are durable and easy to care for, making them the perfect ad
 
 ✔️ Available in multiple sizes to fit any pillow
 
-[Buy from Amazon](https://www.amazon.com/JYVNCZ-Michael-Merchandise-Reversible-Birthday/dp/B0BG96ZHTG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JYVNCZ-Michael-Merchandise-Reversible-Birthday/dp/B0BG96ZHTG/?ie=UTF8&tag=giftable02-20)
