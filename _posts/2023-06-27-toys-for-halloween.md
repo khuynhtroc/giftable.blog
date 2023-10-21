@@ -5,10 +5,10 @@ date: 2023-06-27 00:00:00 +0000
 last-modify-at: 
 permalink: "/toys-for-halloween/"
 categories: Occasions Halloween
-tags: Toys Kids
+tags: toys kids
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/toys-for-halloween-1 (1).jpg"
+    alt: "Best Toys for Halloween That Kids Will Love"                                
 ---   
 
 Dive into our virtual haunted emporium and discover many toys that will transport you to a realm of ghoulish delight. From creepy crawlies and eerie dolls to spine-tingling action figures and mystical playsets, our selection will **[ignite your imagination](/art-gifts-for-kids/)** and bring your Halloween fantasies to life. Our team of experts has carefully chosen each toy, who have immersed themselves in the supernatural realm, to bring you the most thrilling and authentic experiences. Our reviewers have put these products through their paces, ensuring that only the most enchanting and high-quality toys make it to our shelves.
@@ -17,9 +17,9 @@ For the tiniest ghouls and ghosts, we offer a charming assortment of **[infant H
 
 Join us on this incredibly fantastic journey, and let our toys for Halloween ignite your imagination. Whether seeking the perfect costume for your infant or adding extra spookiness to your **[Halloween decor](/cool-halloween-decorations/)**, our 35 handpicked products will exceed your expectations. Embrace the spirit of Halloween and let our expertly curated collection enchant and thrill you like never before. Don't miss out on the magic – browse our selection today and embark on a hauntingly delightful adventure!
 
-### [1\. Halloween Dolphin Coloring Squishies Set](https://www.amazon.com/MGparty-Halloween-Coloring-Squishies-Painting/dp/B09ZPB8WC5/?ie=UTF8&tag=avadalove-20)
+### [1\. Halloween Dolphin Coloring Squishies Set](https://www.amazon.com/MGparty-Halloween-Coloring-Squishies-Painting/dp/B09ZPB8WC5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MGparty-Halloween-Coloring-Squishies-Painting/dp/B09ZPB8WC5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MGparty-Halloween-Coloring-Squishies-Painting/dp/B09ZPB8WC5/?ie=UTF8&tag=giftable02-20)
 
 The set includes various Halloween-themed shapes, providing a spooktacular canvas for artistic exploration.
 
@@ -35,11 +35,11 @@ Each squishy is made from high-quality, soft material that provides a satisfying
 
 ✔️ Compact size makes them portable for on-the-go fun
 
-[Buy from Amazon](https://www.amazon.com/MGparty-Halloween-Coloring-Squishies-Painting/dp/B09ZPB8WC5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MGparty-Halloween-Coloring-Squishies-Painting/dp/B09ZPB8WC5/?ie=UTF8&tag=giftable02-20)
 
-### [2\. TeeTurtle Reversible Octopus Plush](https://www.amazon.com/TeeTurtle-Original-Reversible-Octopus-Patented/dp/B092NTS6S8/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. TeeTurtle Reversible Octopus Plush](https://www.amazon.com/TeeTurtle-Original-Reversible-Octopus-Patented/dp/B092NTS6S8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TeeTurtle-Original-Reversible-Octopus-Patented/dp/B092NTS6S8/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TeeTurtle-Original-Reversible-Octopus-Patented/dp/B092NTS6S8/?th=1?ie=UTF8&tag=giftable02-20)
 
 The TeeTurtle Reversible Octopus Plush is made with high-quality, soft material that is perfect for snuggling and cuddling. Its compact size makes it easy to carry around, whether you're at home, in the office, or on the go.
 
@@ -53,11 +53,11 @@ The TeeTurtle Reversible Octopus Plush is made with high-quality, soft material 
 
 ✔️ Provides a fun and interactive way to express emotions
 
-[Buy from Amazon](https://www.amazon.com/TeeTurtle-Original-Reversible-Octopus-Patented/dp/B092NTS6S8/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TeeTurtle-Original-Reversible-Octopus-Patented/dp/B092NTS6S8/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Halloween Squishies Toy Set](https://www.amazon.com/Halloween-Squishies-Pumpkin-Vampire-Skeleton/dp/B098B5DT63/?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Halloween Squishies Toy Set](https://www.amazon.com/Halloween-Squishies-Pumpkin-Vampire-Skeleton/dp/B098B5DT63/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Squishies-Pumpkin-Vampire-Skeleton/dp/B098B5DT63/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Squishies-Pumpkin-Vampire-Skeleton/dp/B098B5DT63/?th=1?ie=UTF8&tag=giftable02-20)
 
 Whether you're looking for a stress-relieving squeeze or a fun sensory experience, these squishies have got you covered. They are also compact and lightweight, making them easy to carry in your bag or pocket, so you can have a spooktacular time wherever you go.
 
@@ -71,11 +71,11 @@ Whether you're looking for a stress-relieving squeeze or a fun sensory experienc
 
 ✔️ Portable size for on-the-go enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Squishies-Pumpkin-Vampire-Skeleton/dp/B098B5DT63/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Squishies-Pumpkin-Vampire-Skeleton/dp/B098B5DT63/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [4\. Halloween Stretchy Skeletons Set](https://www.amazon.com/Halloween-Stretchy-Skeleton-Assorted-squishy/dp/B0969R7ZLG/r?ie=UTF8&tag=avadalove-20)
+### [4\. Halloween Stretchy Skeletons Set](https://www.amazon.com/Halloween-Stretchy-Skeleton-Assorted-squishy/dp/B0969R7ZLG/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Stretchy-Skeleton-Assorted-squishy/dp/B0969R7ZLG/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Stretchy-Skeleton-Assorted-squishy/dp/B0969R7ZLG/r?ie=UTF8&tag=giftable02-20)
 
 The Halloween Stretchy Skeletons Set offers a tactile and sensory experience that will keep you engaged for hours.
 
@@ -91,11 +91,11 @@ Each skeleton is made from high-quality, durable materials that can withstand th
 
 ✔️ Versatile for Halloween decorations, party favors, and more
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Stretchy-Skeleton-Assorted-squishy/dp/B0969R7ZLG/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Stretchy-Skeleton-Assorted-squishy/dp/B0969R7ZLG/r?ie=UTF8&tag=giftable02-20)
 
-### [5\. Fortune Teller Crystal Ball](https://www.amazon.com/Mr-Predicto-Fortune-Telling-Ball/dp/B07CZLYK8V/?ie=UTF8&tag=avadalove-20)
+### [5\. Fortune Teller Crystal Ball](https://www.amazon.com/Mr-Predicto-Fortune-Telling-Ball/dp/B07CZLYK8V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mr-Predicto-Fortune-Telling-Ball/dp/B07CZLYK8V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mr-Predicto-Fortune-Telling-Ball/dp/B07CZLYK8V/?ie=UTF8&tag=giftable02-20)
 
 This interactive fortune telling ball is packed with features to enhance your fortune-telling experience.
 
@@ -111,11 +111,11 @@ It boasts a user-friendly design with a large, easy-to-read LED screen that disp
 
 ✔️ Compact and portable size, perfect for on-the-go fortune telling
 
-[Buy from Amazon](https://www.amazon.com/Mr-Predicto-Fortune-Telling-Ball/dp/B07CZLYK8V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mr-Predicto-Fortune-Telling-Ball/dp/B07CZLYK8V/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Wizard Magical Toy](https://www.amazon.com/CQMNYDBD-Accessories-Witchcraft-Collection-Halloween/dp/B0B4GCP76C/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. Wizard Magical Toy](https://www.amazon.com/CQMNYDBD-Accessories-Witchcraft-Collection-Halloween/dp/B0B4GCP76C/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CQMNYDBD-Accessories-Witchcraft-Collection-Halloween/dp/B0B4GCP76C/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CQMNYDBD-Accessories-Witchcraft-Collection-Halloween/dp/B0B4GCP76C/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Wizard Witch Toy Magical Accessories Collection is the perfect choice for anyone seeking to delve into the world of witchcraft.
 
@@ -131,11 +131,11 @@ Grab your broomstick and prepare to cast spells and brew potions with this extra
 
 ✔️ Great value for money with multiple accessories included in the set
 
-[Buy from Amazon](https://www.amazon.com/CQMNYDBD-Accessories-Witchcraft-Collection-Halloween/dp/B0B4GCP76C/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CQMNYDBD-Accessories-Witchcraft-Collection-Halloween/dp/B0B4GCP76C/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. Electronic Interactive Hammering Toy](https://www.amazon.com/LUKAT-Electronic-Interactive-Hammering-Pounding/dp/B094QSBTN6/?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Electronic Interactive Hammering Toy](https://www.amazon.com/LUKAT-Electronic-Interactive-Hammering-Pounding/dp/B094QSBTN6/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LUKAT-Electronic-Interactive-Hammering-Pounding/dp/B094QSBTN6/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LUKAT-Electronic-Interactive-Hammering-Pounding/dp/B094QSBTN6/?th=1?ie=UTF8&tag=giftable02-20)
 
 The LUKAT Electronic Interactive Hammering Toy is a must-have for young children who love to explore, create, and have fun. With its interactive features, durable construction, and educational benefits, this toy is sure to captivate and engage your little one's imagination.
 
@@ -149,11 +149,11 @@ The LUKAT Electronic Interactive Hammering Toy is a must-have for young children
 
 ✔️ Promotes motor skills, hand-eye coordination, and color recognition
 
-[Buy from Amazon](https://www.amazon.com/LUKAT-Electronic-Interactive-Hammering-Pounding/dp/B094QSBTN6/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LUKAT-Electronic-Interactive-Hammering-Pounding/dp/B094QSBTN6/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [8\. Mothman Plush Toy](https://www.amazon.com/COSKINGLAND-Mothman-Plush-Toy-Halloween/dp/B0C4YK22XK/?th=1?ie=UTF8&tag=avadalove-20)
+### [8\. Mothman Plush Toy](https://www.amazon.com/COSKINGLAND-Mothman-Plush-Toy-Halloween/dp/B0C4YK22XK/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/COSKINGLAND-Mothman-Plush-Toy-Halloween/dp/B0C4YK22XK/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/COSKINGLAND-Mothman-Plush-Toy-Halloween/dp/B0C4YK22XK/?th=1?ie=UTF8&tag=giftable02-20)
 
 With its soft and huggable design, the Mothman Plush Toy is perfect for cuddling and displaying. Its attention to detail, from the wide-eyed expression to the intricate wings, makes it a standout piece for any collection.
 
@@ -167,11 +167,11 @@ With its soft and huggable design, the Mothman Plush Toy is perfect for cuddling
 
 ✔️ Perfect gift for fans of the supernatural and Halloween enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/COSKINGLAND-Mothman-Plush-Toy-Halloween/dp/B0C4YK22XK/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/COSKINGLAND-Mothman-Plush-Toy-Halloween/dp/B0C4YK22XK/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [9\. Fake Spider Surprise Box](https://www.amazon.com/Fudragtn-Spider-Handmade-Surprise-Halloween/dp/B09YSWBTXP/?ie=UTF8&tag=avadalove-20)
+### [9\. Fake Spider Surprise Box](https://www.amazon.com/Fudragtn-Spider-Handmade-Surprise-Halloween/dp/B09YSWBTXP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fudragtn-Spider-Handmade-Surprise-Halloween/dp/B09YSWBTXP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fudragtn-Spider-Handmade-Surprise-Halloween/dp/B09YSWBTXP/?ie=UTF8&tag=giftable02-20)
 
 The Fake Spider Surprise Box is a cleverly designed toy that appears harmless from the outside. However, once you lift the lid, a creepy spider springs out, startling anyone nearby. It's the perfect prank to play on Halloween or any other occasion when you want to give someone a good scare.
 
@@ -187,11 +187,11 @@ This surprise box measures approximately 3.5 x 3.5 x 2 inches, making it compact
 
 ✔️ Versatile toy for Halloween parties, pranks, or entertaining guests
 
-[Buy from Amazon](https://www.amazon.com/Fudragtn-Spider-Handmade-Surprise-Halloween/dp/B09YSWBTXP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fudragtn-Spider-Handmade-Surprise-Halloween/dp/B09YSWBTXP/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Luminous Mochi Squishy Toys](https://www.amazon.com/Ganjiang-Halloween-Luminous-Hallowen-Stuffers/dp/B0B5567LVX/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Luminous Mochi Squishy Toys](https://www.amazon.com/Ganjiang-Halloween-Luminous-Hallowen-Stuffers/dp/B0B5567LVX/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ganjiang-Halloween-Luminous-Hallowen-Stuffers/dp/B0B5567LVX/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ganjiang-Halloween-Luminous-Hallowen-Stuffers/dp/B0B5567LVX/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Luminous Mochi Squishy Toys are a must-have for any Halloween enthusiast. These bracelets come in a pack of 20 and feature a variety of vibrant colors.
 
@@ -207,11 +207,11 @@ Each bracelet measures approximately 8 inches in length, making them suitable fo
 
 ✔️ Suitable for both kids and adults, making them versatile for any age group
 
-[Buy from Amazon](https://www.amazon.com/Ganjiang-Halloween-Luminous-Hallowen-Stuffers/dp/B0B5567LVX/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ganjiang-Halloween-Luminous-Hallowen-Stuffers/dp/B0B5567LVX/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [11\. TeeTurtle Reversible Octopus Plush](https://www.amazon.com/TeeTurtle-Original-Reversible-Patented-Halloween/dp/B09TG87775/?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. TeeTurtle Reversible Octopus Plush](https://www.amazon.com/TeeTurtle-Original-Reversible-Patented-Halloween/dp/B09TG87775/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TeeTurtle-Original-Reversible-Patented-Halloween/dp/B09TG87775/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TeeTurtle-Original-Reversible-Patented-Halloween/dp/B09TG87775/?th=1?ie=UTF8&tag=giftable02-20)
 
 The TeeTurtle Original Reversible Octopus Plush features a soft and huggable design, making it perfect for snuggling and comforting moments.
 
@@ -227,11 +227,11 @@ With a simple flip, you can change its facial expression, allowing you to convey
 
 ✔️ Suitable for all ages, from kids to adults, spreading joy everywhere
 
-[Buy from Amazon](https://www.amazon.com/TeeTurtle-Original-Reversible-Patented-Halloween/dp/B09TG87775/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TeeTurtle-Original-Reversible-Patented-Halloween/dp/B09TG87775/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [12\. Color Changing Stretchable Figurines](https://www.amazon.com/Niskaqsn-Changing-Stretchable-Figurines-Halloween/dp/B0B8W9PCTC/?ie=UTF8&tag=avadalove-20)
+### [12\. Color Changing Stretchable Figurines](https://www.amazon.com/Niskaqsn-Changing-Stretchable-Figurines-Halloween/dp/B0B8W9PCTC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Niskaqsn-Changing-Stretchable-Figurines-Halloween/dp/B0B8W9PCTC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Niskaqsn-Changing-Stretchable-Figurines-Halloween/dp/B0B8W9PCTC/?ie=UTF8&tag=giftable02-20)
 
 The Color Changing Stretchable Figurines bring an element of surprise and delight to your Halloween decor.
 
@@ -245,11 +245,11 @@ Measuring approximately 4 inches in height, these stretchable figurines are the 
 
 ✔️ Compact size makes them versatile for various decorative setups
 
-[Buy from Amazon](https://www.amazon.com/Niskaqsn-Changing-Stretchable-Figurines-Halloween/dp/B0B8W9PCTC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Niskaqsn-Changing-Stretchable-Figurines-Halloween/dp/B0B8W9PCTC/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Creative Monsters Building Set](https://www.amazon.com/LEGO-Creative-Monsters-Building-Children/dp/B09JKWVNTZ/?ie=UTF8&tag=avadalove-20)
+### [13\. Creative Monsters Building Set](https://www.amazon.com/LEGO-Creative-Monsters-Building-Children/dp/B09JKWVNTZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEGO-Creative-Monsters-Building-Children/dp/B09JKWVNTZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEGO-Creative-Monsters-Building-Children/dp/B09JKWVNTZ/?ie=UTF8&tag=giftable02-20)
 
 The Creative Monsters Building Set includes a wide range of LEGO bricks and special pieces, providing you with the tools to bring your wildest monster ideas to life. The set also comes with an instruction booklet to get you started on your building journey.
 
@@ -263,11 +263,11 @@ The Creative Monsters Building Set includes a wide range of LEGO bricks and spec
 
 ✔️ Provides endless hours of fun for LEGO enthusiasts of all ages
 
-[Buy from Amazon](https://www.amazon.com/LEGO-Creative-Monsters-Building-Children/dp/B09JKWVNTZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEGO-Creative-Monsters-Building-Children/dp/B09JKWVNTZ/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Screaming Ghostface Plush Toy](https://www.amazon.com/LKMYHY-Screaming-Ghostface-Halloween-Plushies/dp/B0C61T9GV8/?ie=UTF8&tag=avadalove-20)
+### [14\. Screaming Ghostface Plush Toy](https://www.amazon.com/LKMYHY-Screaming-Ghostface-Halloween-Plushies/dp/B0C61T9GV8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LKMYHY-Screaming-Ghostface-Halloween-Plushies/dp/B0C61T9GV8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LKMYHY-Screaming-Ghostface-Halloween-Plushies/dp/B0C61T9GV8/?ie=UTF8&tag=giftable02-20)
 
 Featuring a classic Ghostface design from the popular horror franchise, this Screaming Ghostface Plush Toy adds a touch of Halloween spirit to your collection.
 
@@ -283,11 +283,11 @@ Its soft and huggable material makes it perfect for snuggling up with, while its
 
 ✔️ Compact size at 10 inches tall, perfect for Halloween decor or gifting
 
-[Buy from Amazon](https://www.amazon.com/LKMYHY-Screaming-Ghostface-Halloween-Plushies/dp/B0C61T9GV8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LKMYHY-Screaming-Ghostface-Halloween-Plushies/dp/B0C61T9GV8/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Halloween Sensory Toy Set](https://www.amazon.com/Halloween-Sensory-Autistic-Children-Toddlers/dp/B0B5PB9NNG/?ie=UTF8&tag=avadalove-20)
+### [15\. Halloween Sensory Toy Set](https://www.amazon.com/Halloween-Sensory-Autistic-Children-Toddlers/dp/B0B5PB9NNG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Sensory-Autistic-Children-Toddlers/dp/B0B5PB9NNG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Sensory-Autistic-Children-Toddlers/dp/B0B5PB9NNG/?ie=UTF8&tag=giftable02-20)
 
 With a variety of textures, shapes, and colors, this Halloween Sensory Toy Set offers a sensory experience that will captivate children and toddlers alike.
 
@@ -303,11 +303,11 @@ From squishy spiders to stretchy skeletons, each toy in the set is carefully cra
 
 ✔️ Compact and portable design for on-the-go sensory play
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Sensory-Autistic-Children-Toddlers/dp/B0B5PB9NNG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Sensory-Autistic-Children-Toddlers/dp/B0B5PB9NNG/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Bouncy Pals Skeleton Hopping Horse](https://www.amazon.com/iPlay-iLearn-Skeleton-Halloween-Inflatable/dp/B08XV1JYLZ/?ie=UTF8&tag=avadalove-20)
+### [16\. Bouncy Pals Skeleton Hopping Horse](https://www.amazon.com/iPlay-iLearn-Skeleton-Halloween-Inflatable/dp/B08XV1JYLZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/iPlay-iLearn-Skeleton-Halloween-Inflatable/dp/B08XV1JYLZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/iPlay-iLearn-Skeleton-Halloween-Inflatable/dp/B08XV1JYLZ/?ie=UTF8&tag=giftable02-20)
 
 The Bouncy Pals Skeleton Hopping Horse is a must-have for energetic kids who love to bounce and play. Designed as a whimsical hopping horse, this toy combines fun and exercise in one exciting package.
 
@@ -323,11 +323,11 @@ The soft and bouncy construction provides hours of entertainment while helping t
 
 ✔️ Promotes physical activity and development of essential motor skills
 
-[Buy from Amazon](https://www.amazon.com/iPlay-iLearn-Skeleton-Halloween-Inflatable/dp/B08XV1JYLZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/iPlay-iLearn-Skeleton-Halloween-Inflatable/dp/B08XV1JYLZ/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Garten Banban Figures](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KFKXFZ/?ie=UTF8&tag=avadalove-20)
+### [17\. Garten Banban Figures](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KFKXFZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KFKXFZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KFKXFZ/?ie=UTF8&tag=giftable02-20)
 
 This figure is made of high-quality materials, ensuring durability and longevity. The vibrant colors and intricate designs make them visually appealing and eye-catching.
 
@@ -341,11 +341,11 @@ With their compact size, they can easily be placed in various areas of your home
 
 ✔️ Adds a festive and whimsical touch to your holiday decorations
 
-[Buy from Amazon](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KFKXFZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KFKXFZ/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Among Us Halloween Plus](https://www.amazon.com/Just-Toys-LLC-Among-Halloween/dp/B0BGQK9XTX/?ie=UTF8&tag=avadalove-20)
+### [18\. Among Us Halloween Plus](https://www.amazon.com/Just-Toys-LLC-Among-Halloween/dp/B0BGQK9XTX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Just-Toys-LLC-Among-Halloween/dp/B0BGQK9XTX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Just-Toys-LLC-Among-Halloween/dp/B0BGQK9XTX/?ie=UTF8&tag=giftable02-20)
 
 The Among Us Halloween Plus is made from high-quality materials, ensuring its durability and providing a comfortable plush feel. Whether you're a crewmate or an imposter fan, this plush toy is a great collectible to display or play with.
 
@@ -359,11 +359,11 @@ The Among Us Halloween Plus is made from high-quality materials, ensuring its du
 
 ✔️ Perfect for Halloween, as a gift, or as a collectible for Among Us enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Just-Toys-LLC-Among-Halloween/dp/B0BGQK9XTX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Just-Toys-LLC-Among-Halloween/dp/B0BGQK9XTX/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Transformable Skeleton Fidget Toys](https://www.amazon.com/Transformable-Skeleton-Autistic-Children-Fluorescent/dp/B0C1P9ZHTP/?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. Transformable Skeleton Fidget Toys](https://www.amazon.com/Transformable-Skeleton-Autistic-Children-Fluorescent/dp/B0C1P9ZHTP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Transformable-Skeleton-Autistic-Children-Fluorescent/dp/B0C1P9ZHTP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Transformable-Skeleton-Autistic-Children-Fluorescent/dp/B0C1P9ZHTP/?th=1?ie=UTF8&tag=giftable02-20)
 
 With the Transformable Skeleton Fidget Toys, you can explore the wonders of transformation as the skeleton's limbs twist and turn into different positions.
 
@@ -377,11 +377,11 @@ This transformable skeleton measures approximately 10 inches tall and is made fr
 
 ✔️ Compact size makes it easy to carry and play with on the go
 
-[Buy from Amazon](https://www.amazon.com/Transformable-Skeleton-Autistic-Children-Fluorescent/dp/B0C1P9ZHTP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Transformable-Skeleton-Autistic-Children-Fluorescent/dp/B0C1P9ZHTP/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. ArtCreativity Eyeball Bouncy Balls](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=avadalove-20)
+### [20\. ArtCreativity Eyeball Bouncy Balls](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=giftable02-20)
 
 Get ready to add a spooky and playful touch to your Halloween decorations with the ArtCreativity Eyeball Bouncy Balls. These vibrant and eye-catching bouncy balls feature a variety of colorful eyeball designs that are sure to intrigue both kids and adults.
 
@@ -393,11 +393,11 @@ Get ready to add a spooky and playful touch to your Halloween decorations with t
 
 ✔️ Suitable for all ages and perfect for parties, trick-or-treating, and more
 
-[Buy from Amazon](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Colorful Fake Snake Toys](https://www.amazon.com/Plastic-Realistic-Assorted-Colorful-Decoration/dp/B07PG88Y29/?ie=UTF8&tag=avadalove-20)
+### [21\. Colorful Fake Snake Toys](https://www.amazon.com/Plastic-Realistic-Assorted-Colorful-Decoration/dp/B07PG88Y29/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Plastic-Realistic-Assorted-Colorful-Decoration/dp/B07PG88Y29/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Plastic-Realistic-Assorted-Colorful-Decoration/dp/B07PG88Y29/?ie=UTF8&tag=giftable02-20)
 
 Each bug features intricate textures, vibrant colors, and lifelike proportions, making them look like they crawled straight out of nature. With their realistic appearance, they are sure to create a sense of unease and curiosity among your guests.
 
@@ -409,11 +409,11 @@ Each bug features intricate textures, vibrant colors, and lifelike proportions, 
 
 ✔️ Durable plastic construction ensures long-lasting use
 
-[Buy from Amazon](https://www.amazon.com/Plastic-Realistic-Assorted-Colorful-Decoration/dp/B07PG88Y29/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Plastic-Realistic-Assorted-Colorful-Decoration/dp/B07PG88Y29/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Garten Banban Toys Action Figures](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KG1V53/?ie=UTF8&tag=avadalove-20)
+### [22\. Garten Banban Toys Action Figures](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KG1V53/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KG1V53/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KG1V53/?ie=UTF8&tag=giftable02-20)
 
 Are you ready to add a touch of whimsy and charm to your holiday decorations? These adorable figurines are the perfect choice. With their cute and playful designs, they are sure to captivate both children and adults alike.
 
@@ -427,11 +427,11 @@ Each set includes a variety of charming characters, including pumpkins, witches,
 
 ✔️ Versatile and suitable for various uses
 
-[Buy from Amazon](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KG1V53/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Garten-Banban-Figures-Halloween-Thanksgiving/dp/B0C4KG1V53/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Halloween Pinata Assortment](https://www.amazon.com/Halloween-Pinata-Assortment-pieces-Supplies/dp/B07RT3HZLJ/?ie=UTF8&tag=avadalove-20)
+### [23\. Halloween Pinata Assortment](https://www.amazon.com/Halloween-Pinata-Assortment-pieces-Supplies/dp/B07RT3HZLJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Pinata-Assortment-pieces-Supplies/dp/B07RT3HZLJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Pinata-Assortment-pieces-Supplies/dp/B07RT3HZLJ/?ie=UTF8&tag=giftable02-20)
 
 This assortment includes a variety of vibrant and eye-catching designs, featuring classic Halloween symbols like pumpkins, bats, and ghosts. With their generous size and sturdy construction, these pinatas are perfect for filling with an assortment of treats and surprises.
 
@@ -443,11 +443,11 @@ This assortment includes a variety of vibrant and eye-catching designs, featurin
 
 ✔️ Sturdy construction ensures durability during the game
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Pinata-Assortment-pieces-Supplies/dp/B07RT3HZLJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Pinata-Assortment-pieces-Supplies/dp/B07RT3HZLJ/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Teacup Head Gaming Action Figures](https://www.amazon.com/HOLLOW-KNIGHT-Halloween-Thanksgiving-Christmas/dp/B0BNDZXPP6/?ie=UTF8&tag=avadalove-20)
+### [24\. Teacup Head Gaming Action Figures](https://www.amazon.com/HOLLOW-KNIGHT-Halloween-Thanksgiving-Christmas/dp/B0BNDZXPP6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HOLLOW-KNIGHT-Halloween-Thanksgiving-Christmas/dp/B0BNDZXPP6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HOLLOW-KNIGHT-Halloween-Thanksgiving-Christmas/dp/B0BNDZXPP6/?ie=UTF8&tag=giftable02-20)
 
 This plush toy brings to life the iconic character with its attention to detail and high-quality craftsmanship.
 
@@ -463,11 +463,11 @@ Measuring approximately 10 inches tall, this plush toy is the perfect size to di
 
 ✔️ Soft and huggable material ensures a comfortable experience
 
-[Buy from Amazon](https://www.amazon.com/HOLLOW-KNIGHT-Halloween-Thanksgiving-Christmas/dp/B0BNDZXPP6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HOLLOW-KNIGHT-Halloween-Thanksgiving-Christmas/dp/B0BNDZXPP6/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Spooky Pumpkin Building Set](https://www.amazon.com/OLJKUDNS-Halloween-Spooky-Pumpkin-Building/dp/B0C6DTY2RB/?ie=UTF8&tag=avadalove-20)
+### [25\. Spooky Pumpkin Building Set](https://www.amazon.com/OLJKUDNS-Halloween-Spooky-Pumpkin-Building/dp/B0C6DTY2RB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/OLJKUDNS-Halloween-Spooky-Pumpkin-Building/dp/B0C6DTY2RB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/OLJKUDNS-Halloween-Spooky-Pumpkin-Building/dp/B0C6DTY2RB/?ie=UTF8&tag=giftable02-20)
 
 With its vibrant colors and durable construction, the Spooky Pumpkin Building Set is designed to engage and entertain young builders. The pieces easily snap together, allowing children to experiment with different shapes and designs.
 
@@ -481,11 +481,11 @@ With its vibrant colors and durable construction, the Spooky Pumpkin Building Se
 
 ✔️ Vibrant colors add to the Halloween excitement
 
-[Buy from Amazon](https://www.amazon.com/OLJKUDNS-Halloween-Spooky-Pumpkin-Building/dp/B0C6DTY2RB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/OLJKUDNS-Halloween-Spooky-Pumpkin-Building/dp/B0C6DTY2RB/?ie=UTF8&tag=giftable02-20)
 
-### [26\. MGparty Halloween Squishies Set](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. MGparty Halloween Squishies Set](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?th=1?ie=UTF8&tag=giftable02-20)
 
 These soft and squeezable toys are perfect for stress relief, sensory play, or simply as fun Halloween decorations.
 
@@ -501,11 +501,11 @@ Each set includes a variety of squishy toys featuring cute pumpkin and vampire d
 
 ✔️ Lightweight and portable for on-the-go fun
 
-[Buy from Amazon](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Halloween Pumpkin Dig Kit](https://www.amazon.com/XXTOYS-Halloween-Pumpkin-Jack-Lantern/dp/B0B9JHKFW5/?ie=UTF8&tag=avadalove-20)
+### [27\. Halloween Pumpkin Dig Kit](https://www.amazon.com/XXTOYS-Halloween-Pumpkin-Jack-Lantern/dp/B0B9JHKFW5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/XXTOYS-Halloween-Pumpkin-Jack-Lantern/dp/B0B9JHKFW5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/XXTOYS-Halloween-Pumpkin-Jack-Lantern/dp/B0B9JHKFW5/?ie=UTF8&tag=giftable02-20)
 
 This intricately designed pumpkin features a spooky face that will delight both kids and adults alike.
 
@@ -521,11 +521,11 @@ Made with attention to detail, this Halloween pumpkin measures approximately 9 i
 
 ✔️ Easy to set up and adds an instant Halloween flair to any space
 
-[Buy from Amazon](https://www.amazon.com/XXTOYS-Halloween-Pumpkin-Jack-Lantern/dp/B0B9JHKFW5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/XXTOYS-Halloween-Pumpkin-Jack-Lantern/dp/B0B9JHKFW5/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Wednesday Addams Halloween Decoration](https://www.amazon.com/Wednesday-Addams-Family-Halloween-Decoration/dp/B0C4SMPW8D/?ie=UTF8&tag=avadalove-20)
+### [28\. Wednesday Addams Halloween Decoration](https://www.amazon.com/Wednesday-Addams-Family-Halloween-Decoration/dp/B0C4SMPW8D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wednesday-Addams-Family-Halloween-Decoration/dp/B0C4SMPW8D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wednesday-Addams-Family-Halloween-Decoration/dp/B0C4SMPW8D/?ie=UTF8&tag=giftable02-20)
 
 Are you ready to embrace your dark and quirky side this Halloween? This life-sized Wednesday Addams Halloween decoration will instantly transport you to the eerie and mysterious atmosphere of the Addams Family mansion.
 
@@ -541,11 +541,11 @@ Standing at approximately 3 feet tall, this detailed and lifelike decoration cap
 
 ✔️ Versatile decoration suitable for both indoor and outdoor settings
 
-[Buy from Amazon](https://www.amazon.com/Wednesday-Addams-Family-Halloween-Decoration/dp/B0C4SMPW8D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wednesday-Addams-Family-Halloween-Decoration/dp/B0C4SMPW8D/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Spiders Halloween Decorative Supplies](https://www.amazon.com/BEINME-Colorful-Halloween-Decorative-Simulation/dp/B0BJZL269F/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Spiders Halloween Decorative Supplies](https://www.amazon.com/BEINME-Colorful-Halloween-Decorative-Simulation/dp/B0BJZL269F/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BEINME-Colorful-Halloween-Decorative-Simulation/dp/B0BJZL269F/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BEINME-Colorful-Halloween-Decorative-Simulation/dp/B0BJZL269F/?th=1?ie=UTF8&tag=giftable02-20)
 
 Featuring a string of colorful LED lights in the shape of various Halloween icons such as pumpkins, ghosts, and bats, these decorative lights instantly transform any space into a festive and spooky wonderland. The lights are approximately 10 feet long, providing ample length to cover a significant area and create a captivating display.
 
@@ -559,11 +559,11 @@ Featuring a string of colorful LED lights in the shape of various Halloween icon
 
 ✔️ Battery-powered for convenience and flexibility in placement
 
-[Buy from Amazon](https://www.amazon.com/BEINME-Colorful-Halloween-Decorative-Simulation/dp/B0BJZL269F/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BEINME-Colorful-Halloween-Decorative-Simulation/dp/B0BJZL269F/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Assortment Fillers Classroom Rewards](https://www.amazon.com/Halloween-Assortment-Fillers-Classroom-Rewards/dp/B09Y8H6BPB/?ie=UTF8&tag=avadalove-20)
+### [30\. Assortment Fillers Classroom Rewards](https://www.amazon.com/Halloween-Assortment-Fillers-Classroom-Rewards/dp/B09Y8H6BPB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Assortment-Fillers-Classroom-Rewards/dp/B09Y8H6BPB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Assortment-Fillers-Classroom-Rewards/dp/B09Y8H6BPB/?ie=UTF8&tag=giftable02-20)
 
 With a variety of toys and novelties included, this assortment guarantees something for everyone. The set comes with a total of 100 pieces, ensuring that you have enough goodies to share and create lasting memories.
 
@@ -577,11 +577,11 @@ With a variety of toys and novelties included, this assortment guarantees someth
 
 ✔️ Generous quantity of 100 pieces for ample sharing and enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Assortment-Fillers-Classroom-Rewards/dp/B09Y8H6BPB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Assortment-Fillers-Classroom-Rewards/dp/B09Y8H6BPB/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Halloween Assortment Toy Pack](https://www.amazon.com/Halloween-Assortment-Classroom-Treating-Carnival/dp/B09ZPG39CZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Halloween Assortment Toy Pack](https://www.amazon.com/Halloween-Assortment-Classroom-Treating-Carnival/dp/B09ZPG39CZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Assortment-Classroom-Treating-Carnival/dp/B09ZPG39CZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Assortment-Classroom-Treating-Carnival/dp/B09ZPG39CZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 From spooky stickers and fun little games to bouncy balls and glow sticks, each item is carefully chosen to add a touch of Halloween magic to your celebrations. The pack includes a total of 120 pieces, ensuring that you have plenty of goodies to share and enjoy.
 
@@ -595,11 +595,11 @@ From spooky stickers and fun little games to bouncy balls and glow sticks, each 
 
 ✔️ Generous quantity of 120 pieces for ample sharing and excitement
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Assortment-Classroom-Treating-Carnival/dp/B09ZPG39CZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Assortment-Classroom-Treating-Carnival/dp/B09ZPG39CZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Haunted House Building Set](https://www.amazon.com/Loz-Silan-Halloween-Haunted-Building/dp/B0C2BZW51S/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Haunted House Building Set](https://www.amazon.com/Loz-Silan-Halloween-Haunted-Building/dp/B0C2BZW51S/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Loz-Silan-Halloween-Haunted-Building/dp/B0C2BZW51S/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Loz-Silan-Halloween-Haunted-Building/dp/B0C2BZW51S/?th=1?ie=UTF8&tag=giftable02-20)
 
 From the creepy exterior design to the haunted interior rooms, every piece of this set adds to the sense of mystery and excitement.
 
@@ -615,11 +615,11 @@ The set includes multiple rooms, such as a chilling laboratory, a sinister bedro
 
 ✔️ Provides a challenging and engaging building experience
 
-[Buy from Amazon](https://www.amazon.com/Loz-Silan-Halloween-Haunted-Building/dp/B0C2BZW51S/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Loz-Silan-Halloween-Haunted-Building/dp/B0C2BZW51S/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Doors Monster Building Block](https://www.amazon.com/Millionspring-Building-Halloween-Thanksgiving-Christmas/dp/B0BYSJ2HPF/?ie=UTF8&tag=avadalove-20)
+### [33\. Doors Monster Building Block](https://www.amazon.com/Millionspring-Building-Halloween-Thanksgiving-Christmas/dp/B0BYSJ2HPF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Millionspring-Building-Halloween-Thanksgiving-Christmas/dp/B0BYSJ2HPF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Millionspring-Building-Halloween-Thanksgiving-Christmas/dp/B0BYSJ2HPF/?ie=UTF8&tag=giftable02-20)
 
 With its vibrant and colorful pieces, this building set captures the essence of each holiday. The set includes a wide range of components, such as walls, roofs, windows, and festive decorations, giving you endless possibilities to design and customize your own holiday-themed creations.
 
@@ -635,11 +635,11 @@ Whether you're looking to create a spooky scene for Halloween, a warm and inviti
 
 ✔️ Offers a fun and engaging activity for the whole family
 
-[Buy from Amazon](https://www.amazon.com/Millionspring-Building-Halloween-Thanksgiving-Christmas/dp/B0BYSJ2HPF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Millionspring-Building-Halloween-Thanksgiving-Christmas/dp/B0BYSJ2HPF/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Realistic Reindeer Figurine](https://www.amazon.com/sumsync-Realistic-Christmas-Birthday-Halloween/dp/B0BNKXHWC5/?th=1?ie=UTF8&tag=avadalove-20)
+### [34\. Realistic Reindeer Figurine](https://www.amazon.com/sumsync-Realistic-Christmas-Birthday-Halloween/dp/B0BNKXHWC5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/sumsync-Realistic-Christmas-Birthday-Halloween/dp/B0BNKXHWC5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/sumsync-Realistic-Christmas-Birthday-Halloween/dp/B0BNKXHWC5/?th=1?ie=UTF8&tag=giftable02-20)
 
 This lifelike reindeer figurine is the perfect choice. With its stunning details and exquisite craftsmanship, it captures the elegance and grace of these majestic creatures.
 
@@ -655,7 +655,7 @@ The sumsync Realistic Reindeer Figurine stands at an impressive height of 14 inc
 
 ✔️ Adds an elegant and festive touch to any space
 
-[Buy from Amazon](https://www.amazon.com/sumsync-Realistic-Christmas-Birthday-Halloween/dp/B0BNKXHWC5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/sumsync-Realistic-Christmas-Birthday-Halloween/dp/B0BNKXHWC5/?th=1?ie=UTF8&tag=giftable02-20)
 
 ## Bottom Line
 
