@@ -35,9 +35,9 @@ The Build Your Own Charm Bracelet is a thoughtful present because it lets you pe
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/build-your-own-charm-bracelet)
 
-### [2\. Moisturizing Shea Butter Hand Lotion](https://www.amazon.com/Lotion-Cracked-Moisturizing-Moisturizer-Holiday/dp/B09VBMJBFL/?ie=UTF8&tag=avadalove-20)
+### [2\. Moisturizing Shea Butter Hand Lotion](https://www.amazon.com/Lotion-Cracked-Moisturizing-Moisturizer-Holiday/dp/B09VBMJBFL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lotion-Cracked-Moisturizing-Moisturizer-Holiday/dp/B09VBMJBFL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lotion-Cracked-Moisturizing-Moisturizer-Holiday/dp/B09VBMJBFL/?ie=UTF8&tag=giftable02-20)
 
 Gift the magic of silky-smooth hands this Christmas with our Moisturizing Shea Butter Hand Lotion for Dry Cracked Hands. Embrace comfort and softness in every application.
 
@@ -51,11 +51,11 @@ Experience the ultimate relief from dryness with our Moisturizing Shea Butter Ha
 
 ✔️ Luxurious self-care moment
 
-[Buy from Amazon](https://www.amazon.com/Lotion-Cracked-Moisturizing-Moisturizer-Holiday/dp/B09VBMJBFL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lotion-Cracked-Moisturizing-Moisturizer-Holiday/dp/B09VBMJBFL/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Shower Steamers Aromatherapy](https://www.amazon.com/MR-MIRYE-Aromatherapy-Essential-Watermelon/dp/B0C61K6DW9/?ie=UTF8&tag=avadalove-20) 
+### [3\. Shower Steamers Aromatherapy](https://www.amazon.com/MR-MIRYE-Aromatherapy-Essential-Watermelon/dp/B0C61K6DW9/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/MR-MIRYE-Aromatherapy-Essential-Watermelon/dp/B0C61K6DW9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MR-MIRYE-Aromatherapy-Essential-Watermelon/dp/B0C61K6DW9/?ie=UTF8&tag=giftable02-20)
 
 Turn your ordinary shower into a spa-like experience with the invigorating scents of our Shower Steamers Aromatherapy. Spend some time in the comfort of your own bathroom rejuvenating and relaxing.
 
@@ -69,7 +69,7 @@ Let the water activate these delightful tablets, releasing an exquisite blend of
 
 ✔️ Ultimate relaxation at home
 
-[Buy from Amazon](https://www.amazon.com/MR-MIRYE-Aromatherapy-Essential-Watermelon/dp/B0C61K6DW9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MR-MIRYE-Aromatherapy-Essential-Watermelon/dp/B0C61K6DW9/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Gingerbread Cookie Charm](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1497166385/set-of-5-gingerbread-boy-cabochons-slime)
 
@@ -161,9 +161,9 @@ Infuse purpose into every step with the Men's Wishbeads Intention Bracelets. The
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/mens-wishbeads-intention-bracelets)
 
-### [9\. Cool Fidget Gel Pens Gifts](https://www.amazon.com/Fidget-Gel-Pens-Gifts-Men/dp/B0B1VM1C6L/?ie=UTF8&tag=avadalove-20)
+### [9\. Cool Fidget Gel Pens Gifts](https://www.amazon.com/Fidget-Gel-Pens-Gifts-Men/dp/B0B1VM1C6L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fidget-Gel-Pens-Gifts-Men/dp/B0B1VM1C6L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fidget-Gel-Pens-Gifts-Men/dp/B0B1VM1C6L/?ie=UTF8&tag=giftable02-20)
 
 Make scribbles more interesting by adding a creative twist! Cool Fidget Gel Pens Gifts are more than just pens; they're a fun method to beat boredom one click at a time.
 
@@ -177,7 +177,7 @@ Smooth gel ink, bright colors, and a built-in fidget mechanism are all features 
 
 ✔️ Thoughtful stress-relief gift
 
-[Buy from Amazon](https://www.amazon.com/Fidget-Gel-Pens-Gifts-Men/dp/B0B1VM1C6L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fidget-Gel-Pens-Gifts-Men/dp/B0B1VM1C6L/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Owl Soup Bowl](https://www.uncommongoods.com/product/owl-soup-bowl)
 
@@ -231,9 +231,9 @@ Gift this Personalized Title Nickname Black Mug to your anime-loving BFF. With a
 
 [Buy from Loveable](https://loveable.us/products/introverted-but-willing-to-discuss-anime-custom-name-face-personalized-title-nickname-black-mug-11oz-15oz-mugs-christmas-gift-for-bff-for-anime-lovers-fans-coffee-tea-cup-212icnvsmu321?&variant=44156765470952?utm_source=avada&ranking=&utm_source=&utm_campaign=small-christmas-gifts-from-just-5-to-25)
 
-### [13\. Folding Bounce Surprise Gift Box](https://www.amazon.com/dp/B0CFYJFGNB/?ie=UTF8&tag=avadalove-20) 
+### [13\. Folding Bounce Surprise Gift Box](https://www.amazon.com/dp/B0CFYJFGNB/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/dp/B0CFYJFGNB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CFYJFGNB/?ie=UTF8&tag=giftable02-20)
 
 The Folding Bounce Surprise Gift Box elevates presenting to an art form, where anticipation springs to life!
 
@@ -247,7 +247,7 @@ Make every moment memorable with these Christmas gift box. This box, created wit
 
 ✔️ Spark of delight
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CFYJFGNB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CFYJFGNB/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Crocheted Heart](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1397962310/pocket-hug-crocheted-heart-small-gift)
 
@@ -339,9 +339,9 @@ The Personalized Engraved Watch combines exquisite craftsmanship with heartfelt 
 
 [Buy from Loveable](https://loveable.us/products/may-your-faith-always-guide-you-through-each-hour-of-every-day-personalized-engraved-watch-mens-watch-best-gift-for-him-for-husband-for-son-confirmation-gift-303icntlwa454?&variant=44408012800232?utm_source=avada&ranking=&utm_source=&utm_campaign=small-christmas-gifts-from-just-5-to-25)
 
-### [19\. Scentered Aromatherapy Balm Gift Set](https://www.amazon.com/Scentered-Daily-Ritual-Aromatherapy-Stress/dp/B08J7K79M7/?ie=UTF8&tag=avadalove-20)
+### [19\. Scentered Aromatherapy Balm Gift Set](https://www.amazon.com/Scentered-Daily-Ritual-Aromatherapy-Stress/dp/B08J7K79M7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scentered-Daily-Ritual-Aromatherapy-Stress/dp/B08J7K79M7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scentered-Daily-Ritual-Aromatherapy-Stress/dp/B08J7K79M7/?ie=UTF8&tag=giftable02-20)
 
 The Scentered Daily Ritual Aromatherapy Balm Gift Set is a sensory adventure that will enrich their every day.
 
@@ -355,7 +355,7 @@ Offering a variety of scents to fit any mood, the Scentered Aromatherapy Balm Gi
 
 ✔️ Thoughtful stress-relief gift
 
-[Buy from Amazon](https://www.amazon.com/Scentered-Daily-Ritual-Aromatherapy-Stress/dp/B08J7K79M7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scentered-Daily-Ritual-Aromatherapy-Stress/dp/B08J7K79M7/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Luxurious Hand Cream Trio](https://www.uncommongoods.com/product/luxurious-hand-cream-trio/566960000000)
 
@@ -375,9 +375,9 @@ The Luxurious Hand Cream Trio has three nourishing treats. These creams, enriche
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/luxurious-hand-cream-trio/566960000000)
 
-### [21\. Carhartt Men’s Knit Cuffed Beanie](https://www.amazon.com/Carhartt-Acrylic-Watch-Heather-Size/dp/B002G9UE3Q/?ie=UTF8&tag=avadalove-20)
+### [21\. Carhartt Men’s Knit Cuffed Beanie](https://www.amazon.com/Carhartt-Acrylic-Watch-Heather-Size/dp/B002G9UE3Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Carhartt-Acrylic-Watch-Heather-Size/dp/B002G9UE3Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Carhartt-Acrylic-Watch-Heather-Size/dp/B002G9UE3Q/?ie=UTF8&tag=giftable02-20)
 
 Gift coziness and rugged charm with the Carhartt Men's Knit Cuffed Beanie – a winter essential that's both practical and stylish.
 
@@ -391,7 +391,7 @@ The Carhartt Men's Knit Cuffed Beanie is built to withstand chilly days while ke
 
 ✔️ Thoughtful cold-weather gift
 
-[Buy from Amazon](https://www.amazon.com/Carhartt-Acrylic-Watch-Heather-Size/dp/B002G9UE3Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Carhartt-Acrylic-Watch-Heather-Size/dp/B002G9UE3Q/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Treat Cup Gift Card Holders](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1282604550/treat-cup-gift-card-holders-mini-coffee)
 
@@ -429,9 +429,9 @@ The cute Gingerbread Family Jar Ornament captures the essence of family in a fes
 
 [Buy from Loveable](https://loveable.us/products/custom-gingerbread-family-jar-layered-ornament-funny-ornament-christmas-gift-best-gift-ornament-christmas-tree-for-family-211ihnlnom806?&variant=44064634700008?utm_source=avada&ranking=&utm_source=&utm_campaign=small-christmas-gifts-from-just-5-to-25)
 
-### [24\. Hand Repair Set](https://www.amazon.com/Burts-Bees-Repair-Creams-Gloves/dp/B0009F3R7E/?ie=UTF8&tag=avadalove-20)
+### [24\. Hand Repair Set](https://www.amazon.com/Burts-Bees-Repair-Creams-Gloves/dp/B0009F3R7E/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Repair-Creams-Gloves/dp/B0009F3R7E/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-Repair-Creams-Gloves/dp/B0009F3R7E/?ie=UTF8&tag=giftable02-20)
 
 Give the Hand Repair Set as a touch of care, a solution for winter-dried hands that's as comforting as a warm hug.
 
@@ -445,7 +445,7 @@ Burt's Bees' Hand Repair Set pampers hands with a trio of creams and gloves. Thi
 
 ✔️ Thoughtful winter rescue gift
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Repair-Creams-Gloves/dp/B0009F3R7E/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Repair-Creams-Gloves/dp/B0009F3R7E/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Coconut Fiber Hanging Aquatic Planters](https://www.uncommongoods.com/product/coconut-fiber-hanging-aquatic-planters)
 
@@ -465,9 +465,9 @@ The Coconut Fiber Hanging Aquatic Planters add a touch of aquatic splendor to an
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/coconut-fiber-hanging-aquatic-planters)
 
-### [26\. Reindeer Slippers](https://www.amazon.com/Reindeer-Slippers-Christmas-outdoor-Non-Slip/dp/B0BG5Z999K/?ie=UTF8&tag=avadalove-20) 
+### [26\. Reindeer Slippers](https://www.amazon.com/Reindeer-Slippers-Christmas-outdoor-Non-Slip/dp/B0BG5Z999K/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Reindeer-Slippers-Christmas-outdoor-Non-Slip/dp/B0BG5Z999K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Reindeer-Slippers-Christmas-outdoor-Non-Slip/dp/B0BG5Z999K/?ie=UTF8&tag=giftable02-20)
 
 With Reindeer Slippers, you can walk into festive fun, where comfortable comfort meets Christmas cheer with every stride.
 
@@ -481,7 +481,7 @@ Warmth and joy are brought to frigid days by Reindeer Slippers. These lovely ind
 
 ✔️ Non-slip practicality
 
-[Buy from Amazon](https://www.amazon.com/Reindeer-Slippers-Christmas-outdoor-Non-Slip/dp/B0BG5Z999K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Reindeer-Slippers-Christmas-outdoor-Non-Slip/dp/B0BG5Z999K/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Holiday Drawstring Mini Gift Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1523684883/personalized-christmas-favors-or-treats)
 
@@ -501,9 +501,9 @@ The Holiday Drawstring Mini Gift Bag adds a personal touch to gifting. Customiza
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1523684883/personalized-christmas-favors-or-treats)
 
-### [28\. Organic Bubble Bath Bombs](https://www.amazon.com/Surprise-Organic-Birthday-Christmas-Valentines/dp/B0846KG7QK/?ie=UTF8&tag=avadalove-20) 
+### [28\. Organic Bubble Bath Bombs](https://www.amazon.com/Surprise-Organic-Birthday-Christmas-Valentines/dp/B0846KG7QK/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Surprise-Organic-Birthday-Christmas-Valentines/dp/B0846KG7QK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Surprise-Organic-Birthday-Christmas-Valentines/dp/B0846KG7QK/?ie=UTF8&tag=giftable02-20)
 
 Turn their bath into a spa retreat with Organic Bubble Bath Bombs – a fragrant journey to unwind and rejuvenate.
 
@@ -517,7 +517,7 @@ The Organic Bubble Bath Bombs provide an aromatic escape. Handcrafted with organ
 
 ✔️ Spa-like experience
 
-[Buy from Amazon](https://www.amazon.com/Surprise-Organic-Birthday-Christmas-Valentines/dp/B0846KG7QK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Surprise-Organic-Birthday-Christmas-Valentines/dp/B0846KG7QK/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Pinstripe Uniform Friendship Bracelet](https://www.uncommongoods.com/product/mlb-pinstripe-uniform-friendship-bracelet)
 
@@ -609,9 +609,9 @@ This photo frame exudes warmth and charm, showcasing your treasured moments with
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1408183750/pull-out-photo-memory-box-photo-album)
 
-### [34\. Harry Potter Music Box with Hedwig’s Theme](https://www.amazon.com/Harry-Potter-Music-Hedwigs-Theme/dp/B0C9TK291Q/?th=1?ie=UTF8&tag=avadalove-20) 
+### [34\. Harry Potter Music Box with Hedwig’s Theme](https://www.amazon.com/Harry-Potter-Music-Hedwigs-Theme/dp/B0C9TK291Q/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Harry-Potter-Music-Hedwigs-Theme/dp/B0C9TK291Q/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Music-Hedwigs-Theme/dp/B0C9TK291Q/?th=1?ie=UTF8&tag=giftable02-20)
 
 Hedwig's Theme plays as you open the Harry Potter music box, taking you on a nostalgic musical trip to the wizarding world.
 
@@ -625,7 +625,7 @@ The magical tune and ornate details of this music box perfectly convey the spiri
 
 ✔️ A nostalgic trip to Hogwarts
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Music-Hedwigs-Theme/dp/B0C9TK291Q/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Music-Hedwigs-Theme/dp/B0C9TK291Q/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Personalized Family Christmas Ornaments](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/750582887/personalized-family-christmas-ornaments)
 
