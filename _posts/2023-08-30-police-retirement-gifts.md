@@ -89,9 +89,9 @@ The Retirement Apron boasts an eye-catching print that reads "I Do What I Want W
 
 [Buy from Loveable](https://loveable.us/products/retirement-apron-i-do-what-i-want-when-i-want-personalized-apron-best-retirement-gift-for-dad-mom-grandparents-305ihptlar567?&variant=44510076633320?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
-### [5\. Police Officer Gifts Mug](https://www.amazon.com/Police-Officer-Gifts-Mug-Appreciation/dp/B0BXLG5M11/?th=1?ie=UTF8&tag=avadalove-20) 
+### [5\. Police Officer Gifts Mug](https://www.amazon.com/Police-Officer-Gifts-Mug-Appreciation/dp/B0BXLG5M11/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Police-Officer-Gifts-Mug-Appreciation/dp/B0BXLG5M11/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Police-Officer-Gifts-Mug-Appreciation/dp/B0BXLG5M11/?th=1?ie=UTF8&tag=giftable02-20)
 
 Show your appreciation for your father, mother, uncle, or aunt who served in law enforcement by gifting them this unique and thoughtful present the Police Officer Gifts Mug.
 
@@ -105,7 +105,7 @@ The mug's personalized design features captivating police uniform patterns and f
 
 ✔️ Unique and personalized police uniform pattern and texts
 
-[Buy from Amazon](https://www.amazon.com/Police-Officer-Gifts-Mug-Appreciation/dp/B0BXLG5M11/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Police-Officer-Gifts-Mug-Appreciation/dp/B0BXLG5M11/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Congratulation on Your Retirement Cuban Chain](https://loveable.us/products/congratulation-on-your-retirement-may-your-retirement-be-enjoyable-cuban-chain-mens-jewelry-retirement-gift-for-mentor-boss-coworker-for-bff-301icnvsje0017?variant=44221065986280?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
@@ -161,9 +161,9 @@ Its spacious design, featuring 6 card slots, a bill compartment, and 2 interior 
 
 [Buy from Loveable](https://loveable.us/products/retirement-rules-personalized-engrave-leather-wallet-best-retirement-gifts-for-dad-grandpa-husband-303ihpnplw342?variant=44382143873256?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
-### [9\. Bed Flannel Fleece Plush Blankets](https://www.amazon.com/InnoBeta-Retirement-Officers-Flannel-Blankets/dp/B0BC1R86YL/?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Bed Flannel Fleece Plush Blankets](https://www.amazon.com/InnoBeta-Retirement-Officers-Flannel-Blankets/dp/B0BC1R86YL/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/InnoBeta-Retirement-Officers-Flannel-Blankets/dp/B0BC1R86YL/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/InnoBeta-Retirement-Officers-Flannel-Blankets/dp/B0BC1R86YL/?th=1?ie=UTF8&tag=giftable02-20)
 
 Packed with warmth and coziness, this exquisitely crafted blanket is a delightful choice for birthdays, retirements, anniversaries, Father's Day, Christmas, or any special occasion, leaving them feeling cherished and loved.
 
@@ -177,7 +177,7 @@ Measuring a larger size of 50” x 65”, it ensures perfect snuggles. Crafted f
 
 ✔️ Skin-friendly
 
-[Buy from Amazon](https://www.amazon.com/InnoBeta-Retirement-Officers-Flannel-Blankets/dp/B0BC1R86YL/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/InnoBeta-Retirement-Officers-Flannel-Blankets/dp/B0BC1R86YL/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Special T-shirt For Retired Men](https://loveable.us/products/the-man-the-myth-the-legend-has-retired-special-t-shirt-best-retirement-gift-for-husband-for-him-anniversary-gift-funny-gift-for-retired-men-305ihptlts597?variant=44526092353768?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
@@ -215,9 +215,9 @@ The windcatcher, striker, and suspension platform, all made from wood, ensure du
 
 [Buy from Loveable](https://loveable.us/products/the-best-is-yet-to-come-wind-chimes-retirement-gift-307ihplnwi812?&variant=44598506914024?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
-### [12\. Kudos Badge Display Case with Stand](https://www.amazon.com/Kudos-Badge-Display-Case-Stand/dp/B0BNJK8113/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Kudos Badge Display Case with Stand](https://www.amazon.com/Kudos-Badge-Display-Case-Stand/dp/B0BNJK8113/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kudos-Badge-Display-Case-Stand/dp/B0BNJK8113/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kudos-Badge-Display-Case-Stand/dp/B0BNJK8113/?th=1?ie=UTF8&tag=giftable02-20)
 
 This exquisite tabletop display allows you to proudly showcase your cherished police badge while preserving its significance, becoming a captivating centerpiece for conversation and fond reminiscences.
 
@@ -231,7 +231,7 @@ The scratch-resistant, crystal-clear acrylic construction doubles as a photo fra
 
 ✔️ Multi-functional
 
-[Buy from Amazon](https://www.amazon.com/Kudos-Badge-Display-Case-Stand/dp/B0BNJK8113/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kudos-Badge-Display-Case-Stand/dp/B0BNJK8113/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Personalized Square Canvas Poster](https://loveable.us/products/a-happy-retiree-the-best-is-yet-to-come-personalized-square-canvas-poster-best-retirement-gift-for-family-dad-mom-granparents-305ihpnpca577?&variant=44513654604008?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
@@ -251,9 +251,9 @@ This unique gift combines sentimentality with style, allowing you to personalize
 
 [Buy from Loveable](https://loveable.us/products/a-happy-retiree-the-best-is-yet-to-come-personalized-square-canvas-poster-best-retirement-gift-for-family-dad-mom-granparents-305ihpnpca577?&variant=44513654604008?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
-### [14\. Creative Retirement Card Decorations](https://www.amazon.com/Katie-Doodle-Retirement-Party-Decorations/dp/B0896YTJM1/?th=1?ie=UTF8&tag=avadalove-20)
+### [14\. Creative Retirement Card Decorations](https://www.amazon.com/Katie-Doodle-Retirement-Party-Decorations/dp/B0896YTJM1/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Katie-Doodle-Retirement-Party-Decorations/dp/B0896YTJM1/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Katie-Doodle-Retirement-Party-Decorations/dp/B0896YTJM1/?th=1?ie=UTF8&tag=giftable02-20)
 
 Give the gift of memories and celebration with our Creative Retirement Card Decorations, a one-of-a-kind present that encapsulates the essence of a fulfilling career and the start of a new chapter in life.
 
@@ -267,7 +267,7 @@ Professionally printed to fit an 11x17 inch frame, this high-quality poster will
 
 ✔️ Suitable for both men and women
 
-[Buy from Amazon](https://www.amazon.com/Katie-Doodle-Retirement-Party-Decorations/dp/B0896YTJM1/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Katie-Doodle-Retirement-Party-Decorations/dp/B0896YTJM1/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Watch Luxury Box With LED Light](https://loveable.us/products/may-you-be-proud-of-the-work-you-do-watch-luxury-box-with-led-light-gift-for-retirement-306ihpbnwa749?&variant=44580794237160?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
@@ -305,9 +305,9 @@ Crafted with high-quality Acrylic, this plaque offers shatterproof durability an
 
 [Buy from Loveable](https://loveable.us/products/puzzle-never-forget-that-you-are-the-piece-that-made-the-difference-puzzle-acrylic-plaque-personalized-name-officehome-decor-thank-you-gift-for-mentor-boss-principal-teacher-retirement-gift-303icnlnap364?variant=44376867700968?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
-### [17\. Blue Line Police Flag Shot Glasses](https://www.amazon.com/12-Gauge-Shot-Glasses-Set/dp/B088B9979S?ie=UTF8&tag=avadalove-20)
+### [17\. Blue Line Police Flag Shot Glasses](https://www.amazon.com/12-Gauge-Shot-Glasses-Set/dp/B088B9979S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/12-Gauge-Shot-Glasses-Set/dp/B088B9979S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/12-Gauge-Shot-Glasses-Set/dp/B088B9979S?ie=UTF8&tag=giftable02-20)
 
 Beyond aesthetics, these shot glasses carry a heartwarming benefit – a portion of proceeds are donated to Veteran charities, making it a gift that gives back.
 
@@ -321,11 +321,11 @@ These set of 4 shot glasses, modeled after 12-Gauge Shells. Each shot glass, wit
 
 ✔️ Attractive gifting box included
 
-[Buy from Amazon](https://www.amazon.com/12-Gauge-Shot-Glasses-Set/dp/B088B9979S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/12-Gauge-Shot-Glasses-Set/dp/B088B9979S?ie=UTF8&tag=giftable02-20)
 
-### [18\. Funny Socks For Police](https://www.amazon.com/Zmart-Unisex-Police-Retirement-Detective/dp/B0BZW3XDY4/?ie=UTF8&tag=avadalove-20)
+### [18\. Funny Socks For Police](https://www.amazon.com/Zmart-Unisex-Police-Retirement-Detective/dp/B0BZW3XDY4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Zmart-Unisex-Police-Retirement-Detective/dp/B0BZW3XDY4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Zmart-Unisex-Police-Retirement-Detective/dp/B0BZW3XDY4/?ie=UTF8&tag=giftable02-20)
 
 These dark blue socks are adorned with charming police-themed illustrations, accompanied by a witty message: "DO NOT DISTURB, THIS COP IS OFF DUTY". Each pair comes packaged in a convenient plastic zippered bag.
 
@@ -337,7 +337,7 @@ These dark blue socks are adorned with charming police-themed illustrations, acc
 
 ✔️ Hilarious and Unique Design
 
-[Buy from Amazon](https://www.amazon.com/Zmart-Unisex-Police-Retirement-Detective/dp/B0BZW3XDY4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Zmart-Unisex-Police-Retirement-Detective/dp/B0BZW3XDY4/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Personalized Police Sign for Home](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/771223627/personalized-police-sign-for-home-metal)
 
@@ -375,9 +375,9 @@ Measuring 12 inches, this vintage rustic clock boasts a lightly distressed woode
 
 [Buy from Loveable](https://loveable.us/products/who-cares-im-retired-personalized-wooden-acrylic-wall-clock-best-gift-for-retirement-retirement-gift-for-dad-mom-grandpa-grandma-boss-304ihptlwc082?&variant=44431785099496?utm_source=avada&ranking=&utm_source=&utm_campaign=best-police-retirement-gifts-to-buy-online-in-2023)
 
-### [21\. Engraved Flag Military Glass](https://www.amazon.com/Police-Gifts-Men-Women-Permanently/dp/B084YQ8NCN/?ie=UTF8&tag=avadalove-20)
+### [21\. Engraved Flag Military Glass](https://www.amazon.com/Police-Gifts-Men-Women-Permanently/dp/B084YQ8NCN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Police-Gifts-Men-Women-Permanently/dp/B084YQ8NCN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Police-Gifts-Men-Women-Permanently/dp/B084YQ8NCN/?ie=UTF8&tag=giftable02-20)
 
 With the Engraved Flag Military Glass, honor and functionality come together, making it a thoughtful and practical choice for a retired police officer's well-deserved recognition and relaxation.
 
@@ -391,11 +391,11 @@ This unique gift celebrates their honorable service with an exquisitely etched U
 
 ✔️ Convenient dishwasher-safe design
 
-[Buy from Amazon](https://www.amazon.com/Police-Gifts-Men-Women-Permanently/dp/B084YQ8NCN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Police-Gifts-Men-Women-Permanently/dp/B084YQ8NCN/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Police Officers Decanter](https://www.amazon.com/Whiskey-Wine-Decanter-Glasses-Savant/dp/B09H3BK9D3/?th=1?ie=UTF8&tag=avadalove-20)
+### [22\. Police Officers Decanter](https://www.amazon.com/Whiskey-Wine-Decanter-Glasses-Savant/dp/B09H3BK9D3/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whiskey-Wine-Decanter-Glasses-Savant/dp/B09H3BK9D3/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whiskey-Wine-Decanter-Glasses-Savant/dp/B09H3BK9D3/?th=1?ie=UTF8&tag=giftable02-20)
 
 This Police Officers Decanter Set encapsulates the essence of law enforcement while offering a stylish and functional solution for enjoying spirits, making it a truly remarkable gift for any retired police officer.
 
@@ -409,11 +409,11 @@ This exquisite set features an 850ml globe decanter with a beautifully detailed 
 
 ✔️ Exquisite police badge design
 
-[Buy from Amazon](https://www.amazon.com/Whiskey-Wine-Decanter-Glasses-Savant/dp/B09H3BK9D3/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whiskey-Wine-Decanter-Glasses-Savant/dp/B09H3BK9D3/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [23\. Police Playing Cards with Dice](https://www.amazon.com/Police-Playing-Cards-Dice-Officer/dp/B07WZH5LYS/?th=1?ie=UTF8&tag=avadalove-20) 
+### [23\. Police Playing Cards with Dice](https://www.amazon.com/Police-Playing-Cards-Dice-Officer/dp/B07WZH5LYS/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Police-Playing-Cards-Dice-Officer/dp/B07WZH5LYS/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Police-Playing-Cards-Dice-Officer/dp/B07WZH5LYS/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Police Playing Cards with Dice offer an opportunity for retirees to reminisce about their service while enjoying moments of leisure with loved ones, cherishing memories and fostering new connections.
 
@@ -427,7 +427,7 @@ Housed in a beautifully stained wooden box adorned with a striking 3D Metal poli
 
 ✔️ Thoughtful and unique gift for retired police
 
-[Buy from Amazon](https://www.amazon.com/Police-Playing-Cards-Dice-Officer/dp/B07WZH5LYS/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Police-Playing-Cards-Dice-Officer/dp/B07WZH5LYS/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Police Badge Retirement Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/783516395/police-officer-gifts-police-gift-police)
 
@@ -447,9 +447,9 @@ Crafted in solid Sterling Silver, Gold Plated, or luxurious Solid 14k Yellow & W
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/783516395/police-officer-gifts-police-gift-police)
 
-### [25\. Police Car 3D Pop Up Card](https://www.amazon.com/Liif-Greeting-Graduation-Retirement-Congratulations/dp/B088JMDK76/?ie=UTF8&tag=avadalove-20)
+### [25\. Police Car 3D Pop Up Card](https://www.amazon.com/Liif-Greeting-Graduation-Retirement-Congratulations/dp/B088JMDK76/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Liif-Greeting-Graduation-Retirement-Congratulations/dp/B088JMDK76/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Liif-Greeting-Graduation-Retirement-Congratulations/dp/B088JMDK76/?ie=UTF8&tag=giftable02-20)
 
 Surprise a retired police officer with a unique gift that captures the essence of their honorable service - the Police Car 3D Pop Up Card. This card not only showcases a stunning police car pop-up but also conveys your appreciation for their dedicated service.
 
@@ -463,11 +463,11 @@ Crafted with the finest art paper, this card boasts an intricate pop-up design. 
 
 ✔️ Versatile for All Occasions
 
-[Buy from Amazon](https://www.amazon.com/Liif-Greeting-Graduation-Retirement-Congratulations/dp/B088JMDK76/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Liif-Greeting-Graduation-Retirement-Congratulations/dp/B088JMDK76/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Police Coffee Cup](https://www.amazon.com/Younique-Designs-Retired-Officer-Retirement/dp/B07RZYT8DN/?ie=UTF8&tag=avadalove-20)
+### [26\. Police Coffee Cup](https://www.amazon.com/Younique-Designs-Retired-Officer-Retirement/dp/B07RZYT8DN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Younique-Designs-Retired-Officer-Retirement/dp/B07RZYT8DN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Younique-Designs-Retired-Officer-Retirement/dp/B07RZYT8DN/?ie=UTF8&tag=giftable02-20)
 
 As they embark on their well-deserved pension, this delightful cup will serve as a daily reminder of their dedicated service and bring a smile to their face with each sip of coffee or tea.
 
@@ -481,11 +481,11 @@ This beautifully designed mug features the words "Goodbye Tension Hello Pension,
 
 ✔️ High-quality ceramics
 
-[Buy from Amazon](https://www.amazon.com/Younique-Designs-Retired-Officer-Retirement/dp/B07RZYT8DN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Younique-Designs-Retired-Officer-Retirement/dp/B07RZYT8DN/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Happy Retirement Wind Chime](https://www.amazon.com/MONYAO-Retirement-Chime-Happy-Coworker-Butterfly%EF%BC%89/dp/B0C6FJ3BS5/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Happy Retirement Wind Chime](https://www.amazon.com/MONYAO-Retirement-Chime-Happy-Coworker-Butterfly%EF%BC%89/dp/B0C6FJ3BS5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MONYAO-Retirement-Chime-Happy-Coworker-Butterfly%EF%BC%89/dp/B0C6FJ3BS5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MONYAO-Retirement-Chime-Happy-Coworker-Butterfly%EF%BC%89/dp/B0C6FJ3BS5/?th=1?ie=UTF8&tag=giftable02-20)
 
 Surprise your loved ones with this Happy Retirement Wind Chime, a symbol of tranquility and warm wishes for their new chapter in life.
 
@@ -499,7 +499,7 @@ This delightful wind chime features a vibrant butterfly wind spinner and a heart
 
 ✔️ Beautifully presented in a delightful gift box
 
-[Buy from Amazon](https://www.amazon.com/MONYAO-Retirement-Chime-Happy-Coworker-Butterfly%EF%BC%89/dp/B0C6FJ3BS5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MONYAO-Retirement-Chime-Happy-Coworker-Butterfly%EF%BC%89/dp/B0C6FJ3BS5/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Law Enforcement Service Plaque](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1240459140/law-enforcement-service-plaque)
 
@@ -519,9 +519,9 @@ Customized with the officer's name, department and service dates, it encapsulate
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1240459140/law-enforcement-service-plaque)
 
-### [29\. Police Officer Coffee Mug with Lid](https://www.amazon.com/Enforcement-Retirement-Correctional-Graduation-Stainless/dp/B0BY7QP8LK/?ie=UTF8&tag=avadalove-20)
+### [29\. Police Officer Coffee Mug with Lid](https://www.amazon.com/Enforcement-Retirement-Correctional-Graduation-Stainless/dp/B0BY7QP8LK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enforcement-Retirement-Correctional-Graduation-Stainless/dp/B0BY7QP8LK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enforcement-Retirement-Correctional-Graduation-Stainless/dp/B0BY7QP8LK/?ie=UTF8&tag=giftable02-20)
 
 Emblazoned with a striking police thin blue line flag design, this mug celebrates their dedication and service.
 
@@ -535,11 +535,11 @@ This beautifully designed mug features the symbolic thin blue line flag, making 
 
 ✔️ Perfect 12 OZ size
 
-[Buy from Amazon](https://www.amazon.com/Enforcement-Retirement-Correctional-Graduation-Stainless/dp/B0BY7QP8LK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enforcement-Retirement-Correctional-Graduation-Stainless/dp/B0BY7QP8LK/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Clear Desk Decorative Sign](https://www.amazon.com/Retirement-Keepsake-Paperweight-Inspirational-Firefighter/dp/B09QYDQ2F3/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Clear Desk Decorative Sign](https://www.amazon.com/Retirement-Keepsake-Paperweight-Inspirational-Firefighter/dp/B09QYDQ2F3/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Retirement-Keepsake-Paperweight-Inspirational-Firefighter/dp/B09QYDQ2F3/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Retirement-Keepsake-Paperweight-Inspirational-Firefighter/dp/B09QYDQ2F3/?th=1?ie=UTF8&tag=giftable02-20)
 
 Make the retirement of your beloved police officer unforgettable with this Clear Desk Decorative Sign. This elegant sign will remind them of their impactful career and the positive difference they made in the world.
 
@@ -553,11 +553,11 @@ Unveil a sentimental message, "May you be proud of the work you have done, the p
 
 ✔️ Durable acrylic material
 
-[Buy from Amazon](https://www.amazon.com/Retirement-Keepsake-Paperweight-Inspirational-Firefighter/dp/B09QYDQ2F3/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Retirement-Keepsake-Paperweight-Inspirational-Firefighter/dp/B09QYDQ2F3/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Retirement Gift Set For Men](https://www.amazon.com/Retirement-Presents-Insulated-Baseball-Coworkers/dp/B0BQQ9FK7L/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Retirement Gift Set For Men](https://www.amazon.com/Retirement-Presents-Insulated-Baseball-Coworkers/dp/B0BQQ9FK7L/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Retirement-Presents-Insulated-Baseball-Coworkers/dp/B0BQQ9FK7L/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Retirement-Presents-Insulated-Baseball-Coworkers/dp/B0BQQ9FK7L/?th=1?ie=UTF8&tag=giftable02-20)
 
 Packaged in a charming gift box, this set represents a practical and thoughtful gesture, making it an ideal choice for celebrating the special occasion of retirement.
 
@@ -571,11 +571,11 @@ This unique set includes 1 insulated tumbler with a box, 1 pair of full-length l
 
 ✔️ Comfortable and washable accessories
 
-[Buy from Amazon](https://www.amazon.com/Retirement-Presents-Insulated-Baseball-Coworkers/dp/B0BQQ9FK7L/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Retirement-Presents-Insulated-Baseball-Coworkers/dp/B0BQQ9FK7L/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Police Department Wooden Sign](https://www.etsy.com/listing/709486567/police-department-wooden-sign-retirement?ie=UTF8&tag=avadalove-20)
+### [32\. Police Department Wooden Sign](https://www.etsy.com/listing/709486567/police-department-wooden-sign-retirement?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/709486567/police-department-wooden-sign-retirement?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/709486567/police-department-wooden-sign-retirement?ie=UTF8&tag=giftable02-20)
 
 Celebrate the retirement of a valued police officer with this Police Department Wooden Sign, a gift that encapsulates their honorable career and offers a constant reminder of their unwavering commitment to protecting and serving the community.
 
@@ -589,11 +589,11 @@ Made from premium pine wood with a lustrous dark walnut stain, it exudes eleganc
 
 ✔️ Easy Display
 
-[Buy from Amazon](https://www.etsy.com/listing/709486567/police-department-wooden-sign-retirement?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/709486567/police-department-wooden-sign-retirement?ie=UTF8&tag=giftable02-20)
 
-### [33\. Police Car Hanging Ornaments](https://www.amazon.com/ARTSYWIX-Ornaments-Retirement-Graduation-Policeman/dp/B0BZRF6ST2/?th=1?ie=UTF8&tag=avadalove-20)
+### [33\. Police Car Hanging Ornaments](https://www.amazon.com/ARTSYWIX-Ornaments-Retirement-Graduation-Policeman/dp/B0BZRF6ST2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ARTSYWIX-Ornaments-Retirement-Graduation-Policeman/dp/B0BZRF6ST2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ARTSYWIX-Ornaments-Retirement-Graduation-Policeman/dp/B0BZRF6ST2/?th=1?ie=UTF8&tag=giftable02-20)
 
 Gift your cherished retired police officer this thoughtful Police Car Hanging Ornament, and let them carry the symbol of their service and sacrifice with pride and joy.
 
@@ -607,11 +607,11 @@ Crafted from premium transparent plexiglass acrylic, this ornament boasts durabi
 
 ✔️ Vivid and clear printing with a glossy finish
 
-[Buy from Amazon](https://www.amazon.com/ARTSYWIX-Ornaments-Retirement-Graduation-Policeman/dp/B0BZRF6ST2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ARTSYWIX-Ornaments-Retirement-Graduation-Policeman/dp/B0BZRF6ST2/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [34\. Flag Personalized Canvas Wall Art](https://www.amazon.com/Pretty-Perfect-Studio-Personalized-Enforcement/dp/B07Z8GSMS9/?th=1?ie=UTF8&tag=avadalove-20)
+### [34\. Flag Personalized Canvas Wall Art](https://www.amazon.com/Pretty-Perfect-Studio-Personalized-Enforcement/dp/B07Z8GSMS9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pretty-Perfect-Studio-Personalized-Enforcement/dp/B07Z8GSMS9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pretty-Perfect-Studio-Personalized-Enforcement/dp/B07Z8GSMS9/?th=1?ie=UTF8&tag=giftable02-20)
 
 This exceptional canvas art not only embodies their commitment but also adds a touch of elegance to any space. A thoughtful gift that captures a lifetime of service in a single, heartfelt gesture.
 
@@ -625,7 +625,7 @@ The canvas arrives with pre-installed hanging hardware, and is available in vari
 
 ✔️ A heartfelt tribute to their years of service
 
-[Buy from Amazon](https://www.amazon.com/Pretty-Perfect-Studio-Personalized-Enforcement/dp/B07Z8GSMS9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pretty-Perfect-Studio-Personalized-Enforcement/dp/B07Z8GSMS9/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Personalized Police Armor Acrylic Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1437127712/personalized-police-armor-acrylic)
 

@@ -71,9 +71,9 @@ This personalized light features a heartwarming message "Best Friend Forever" al
 
 [Buy from Loveable](https://loveable.us/products/best-friend-forever-i-will-always-have-you-personalized-upload-photo-led-light-best-gift-for-best-friends-for-besties-brothersister-anniversary-gift-305ihpnpll563?variant=44512900415720?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-gifts-for-roommates-on-any-occasions)
 
-### [4\. Makeup Bag Gift](https://www.amazon.com/Change-Graduation-Makeup-Daughter-Roommate/dp/B0BDWY2NB2/?ie=UTF8&tag=avadalove-20)
+### [4\. Makeup Bag Gift](https://www.amazon.com/Change-Graduation-Makeup-Daughter-Roommate/dp/B0BDWY2NB2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Change-Graduation-Makeup-Daughter-Roommate/dp/B0BDWY2NB2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Change-Graduation-Makeup-Daughter-Roommate/dp/B0BDWY2NB2/?ie=UTF8&tag=giftable02-20)
 
 Girls adore makeup, so why not surprise your girly roommate with this makeup bag. Crafted from premium natural linen material, this eco-friendly and durable bag is perfect for storing cosmetics, skincare essentials, or other small items.
 
@@ -89,7 +89,7 @@ Plus, this makeup bag has a captivating world map design, symbolizing the limitl
 
 ✔️ Unique world map design for a touch of adventure
 
-[Buy from Amazon](https://www.amazon.com/Change-Graduation-Makeup-Daughter-Roommate/dp/B0BDWY2NB2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Change-Graduation-Makeup-Daughter-Roommate/dp/B0BDWY2NB2/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. My Friendship Is Like A Candle](https://loveable.us/products/my-friendship-is-like-a-candle-personalized-name-candle-gifts-for-best-friend-gifts-for-birthday-best-friend-gift-friendship-209ihpnpsc252?variant=44173916209384?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-gifts-for-roommates-on-any-occasions) 
 
@@ -111,9 +111,9 @@ The candles come with a beautiful glossy permanent adhesive label that can be cu
 
 [Buy from Loveable](https://loveable.us/products/my-friendship-is-like-a-candle-personalized-name-candle-gifts-for-best-friend-gifts-for-birthday-best-friend-gift-friendship-209ihpnpsc252?variant=44173916209384?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-gifts-for-roommates-on-any-occasions)
 
-### [6\. Roommate Keychain Appreciation Gift](https://www.amazon.com/Roommate-Keychain-Appreciation-Friendship-Graduation/dp/B0BBQ4MWDZ/?ie=UTF8&tag=avadalove-20)
+### [6\. Roommate Keychain Appreciation Gift](https://www.amazon.com/Roommate-Keychain-Appreciation-Friendship-Graduation/dp/B0BBQ4MWDZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Roommate-Keychain-Appreciation-Friendship-Graduation/dp/B0BBQ4MWDZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Roommate-Keychain-Appreciation-Friendship-Graduation/dp/B0BBQ4MWDZ/?ie=UTF8&tag=giftable02-20)
 
 This roommate keychain appreciation gift goes beyond the ordinary with its stamped message "Roomies for Now Homies for Life,".
 
@@ -129,11 +129,11 @@ Measuring 0.47 x 1.97 inches, it's the perfect size to carry around comfortably 
 
 ✔️ Comes beautifully packaged in an elegant velvet bag, ready for gifting
 
-[Buy from Amazon](https://www.amazon.com/Roommate-Keychain-Appreciation-Friendship-Graduation/dp/B0BBQ4MWDZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Roommate-Keychain-Appreciation-Friendship-Graduation/dp/B0BBQ4MWDZ/?ie=UTF8&tag=giftable02-20)
 
-### [7\. I Love My Roommate Shirt](https://www.amazon.com/Love-Roommate-Vintage-Shirt-College/dp/B07FZTXNCK/?ie=UTF8&tag=avadalove-20)
+### [7\. I Love My Roommate Shirt](https://www.amazon.com/Love-Roommate-Vintage-Shirt-College/dp/B07FZTXNCK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Love-Roommate-Vintage-Shirt-College/dp/B07FZTXNCK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Love-Roommate-Vintage-Shirt-College/dp/B07FZTXNCK/?ie=UTF8&tag=giftable02-20)
 
 This stylish graphic tee brings back the cool retro vibes, making it a trendy addition to any college or university outfit.
 
@@ -149,11 +149,11 @@ The shirt is made from high-quality materials like 100% cotton for solid colors 
 
 ✔️ Versatile and stylish addition to any outfit
 
-[Buy from Amazon](https://www.amazon.com/Love-Roommate-Vintage-Shirt-College/dp/B07FZTXNCK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Love-Roommate-Vintage-Shirt-College/dp/B07FZTXNCK/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Inspirational Bracelets](https://www.amazon.com/Fesciory-Inspirational-Personalized-Graduation-Encouragement/dp/B07TTBMGSQ?ie=UTF8&tag=avadalove-20)
+### [8\. Inspirational Bracelets](https://www.amazon.com/Fesciory-Inspirational-Personalized-Graduation-Encouragement/dp/B07TTBMGSQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fesciory-Inspirational-Personalized-Graduation-Encouragement/dp/B07TTBMGSQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fesciory-Inspirational-Personalized-Graduation-Encouragement/dp/B07TTBMGSQ?ie=UTF8&tag=giftable02-20)
 
 This beautiful piece of jewelry will serve as a constant reminder of their resilience and will surely bring a smile to their face every time they wear it!
 
@@ -167,7 +167,7 @@ The bracelet features a secret message stamped on the inside, saying, "You're br
 
 ✔️ A meaningful and encouraging gift for various occasions
 
-[Buy from Amazon](https://www.amazon.com/Fesciory-Inspirational-Personalized-Graduation-Encouragement/dp/B07TTBMGSQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fesciory-Inspirational-Personalized-Graduation-Encouragement/dp/B07TTBMGSQ?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Custom Dorm Welcome Mat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1521395493/dorm-welcome-mat-personalized-roommate)
 
@@ -189,9 +189,9 @@ Made with coir, a durable and natural material, this custom doormat is not only 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1521395493/dorm-welcome-mat-personalized-roommate)
 
-### [10\. New Home Keychain](https://www.amazon.com/Keychain-Housewarming-Homeowner-Keyring-Jewelry/dp/B07T95SFRC/?ie=UTF8&tag=avadalove-20)
+### [10\. New Home Keychain](https://www.amazon.com/Keychain-Housewarming-Homeowner-Keyring-Jewelry/dp/B07T95SFRC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Housewarming-Homeowner-Keyring-Jewelry/dp/B07T95SFRC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Housewarming-Homeowner-Keyring-Jewelry/dp/B07T95SFRC/?ie=UTF8&tag=giftable02-20)
 
 With its adorable 'New Home, New Adventures' design featuring a cute little house charm, this keychain is a delightful way to celebrate their new beginning.
 
@@ -207,11 +207,11 @@ This New Home Keychain is not only a stylish accessory for their house keys but 
 
 ✔️ Practical and useful, as it can be used every day
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Housewarming-Homeowner-Keyring-Jewelry/dp/B07T95SFRC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Housewarming-Homeowner-Keyring-Jewelry/dp/B07T95SFRC/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Best Roomie Ever Mug](https://www.amazon.com/OttoRiven101-Roommate-College-Roommates-Ceramic/dp/B07JFM67ZK/?ie=UTF8&tag=avadalove-20)
+### [11\. Best Roomie Ever Mug](https://www.amazon.com/OttoRiven101-Roommate-College-Roommates-Ceramic/dp/B07JFM67ZK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/OttoRiven101-Roommate-College-Roommates-Ceramic/dp/B07JFM67ZK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/OttoRiven101-Roommate-College-Roommates-Ceramic/dp/B07JFM67ZK/?ie=UTF8&tag=giftable02-20)
 
 Fining the perfect gift to show your appreciation to your amazing roommate? Check this "Best Roomie Ever" mug now! This delightful mug is sure to bring a smile to their face every time they use it.
 
@@ -227,11 +227,11 @@ The "Best Roomie Ever" Mug is a wonderful way to express your gratitude and let 
 
 ✔️ Comes with a lid to keep drinks warm and prevent spills
 
-[Buy from Amazon](https://www.amazon.com/OttoRiven101-Roommate-College-Roommates-Ceramic/dp/B07JFM67ZK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/OttoRiven101-Roommate-College-Roommates-Ceramic/dp/B07JFM67ZK/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Cute Sloth Ring Holder](https://www.amazon.com/Art-Decoration-Stand-Earring-Necklaces-Girlfriend/dp/B07RR7KBTS/?ie=UTF8&tag=avadalove-20)
+### [12\. Cute Sloth Ring Holder](https://www.amazon.com/Art-Decoration-Stand-Earring-Necklaces-Girlfriend/dp/B07RR7KBTS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Art-Decoration-Stand-Earring-Necklaces-Girlfriend/dp/B07RR7KBTS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Art-Decoration-Stand-Earring-Necklaces-Girlfriend/dp/B07RR7KBTS/?ie=UTF8&tag=giftable02-20)
 
 Gift this cute sloth ringhHolder to your roommate and watch their face light up with joy! It's the perfect combination of style and functionality, making it an ideal gift for any occasion.
 
@@ -245,7 +245,7 @@ With its charming design, your roommate can leave the sloth ring holder by the s
 
 ✔️ Made of high-quality resin for durability and longevity
 
-[Buy from Amazon](https://www.amazon.com/Art-Decoration-Stand-Earring-Necklaces-Girlfriend/dp/B07RR7KBTS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Art-Decoration-Stand-Earring-Necklaces-Girlfriend/dp/B07RR7KBTS/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Custom Neon Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1189955105/custom-neon-sign-neon-sign-room-decor)
 
@@ -267,9 +267,9 @@ Each neon sign is meticulously hand-crafted with LED strips, silicon flex tubes,
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1189955105/custom-neon-sign-neon-sign-room-decor)
 
-### [14\. Moon Lamp](https://www.amazon.com/Upgrade-AED-Rechargeable-Birthday-Girlfriend/dp/B08SLW6MZ2/?ie=UTF8&tag=avadalove-20)
+### [14\. Moon Lamp](https://www.amazon.com/Upgrade-AED-Rechargeable-Birthday-Girlfriend/dp/B08SLW6MZ2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Upgrade-AED-Rechargeable-Birthday-Girlfriend/dp/B08SLW6MZ2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Upgrade-AED-Rechargeable-Birthday-Girlfriend/dp/B08SLW6MZ2/?ie=UTF8&tag=giftable02-20)
 
 A unique gift that you cannot go wrong with - the moon lamp! This mesmerizing lamp will leave your roommates in awe as it beautifully lights up the night. Its 3D printed moon surface creates a stunningly realistic moon appearance right in your room.
 
@@ -285,11 +285,11 @@ It comes with an upgraded battery capacity to 500mAH, providing 40% more battery
 
 ✔️ Convenient remote control and tap function for easy color and brightness adjustments
 
-[Buy from Amazon](https://www.amazon.com/Upgrade-AED-Rechargeable-Birthday-Girlfriend/dp/B08SLW6MZ2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Upgrade-AED-Rechargeable-Birthday-Girlfriend/dp/B08SLW6MZ2/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Heart Ceramic Ornament](https://www.amazon.com/Friends-Positive-Message-Thinking-Ceramic/dp/B094YN1NQ6/?ie=UTF8&tag=avadalove-20)
+### [15\. Heart Ceramic Ornament](https://www.amazon.com/Friends-Positive-Message-Thinking-Ceramic/dp/B094YN1NQ6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Friends-Positive-Message-Thinking-Ceramic/dp/B094YN1NQ6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Friends-Positive-Message-Thinking-Ceramic/dp/B094YN1NQ6/?ie=UTF8&tag=giftable02-20)
 
 A simple yet heartfelt gift for your roommie is this heart ceramic ornament with meaning saying. This thoughtful and positive message gift is perfect for roommates who have become like family, or to show appreciation to friends who might be far away.
 
@@ -305,7 +305,7 @@ The 3-inch flat heart-shaped ceramic is made with high-quality white ceramic and
 
 ✔️ Comes with a luxury ribbon bow gift box that's perfect for gifting
 
-[Buy from Amazon](https://www.amazon.com/Friends-Positive-Message-Thinking-Ceramic/dp/B094YN1NQ6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Friends-Positive-Message-Thinking-Ceramic/dp/B094YN1NQ6/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Roommate Picture Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1167068644/friendship-gift-personalized-roommate)
 
@@ -325,9 +325,9 @@ The highlight of this frame is its customization feature. Personalize it with yo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1167068644/friendship-gift-personalized-roommate)
 
-### [17\. Roommate Wine Bag](https://www.amazon.com/Roommate-College-Sorority-Graduation-Drawstring/dp/B0B6SXXZKM?ie=UTF8&tag=avadalove-20)
+### [17\. Roommate Wine Bag](https://www.amazon.com/Roommate-College-Sorority-Graduation-Drawstring/dp/B0B6SXXZKM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Roommate-College-Sorority-Graduation-Drawstring/dp/B0B6SXXZKM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Roommate-College-Sorority-Graduation-Drawstring/dp/B0B6SXXZKM?ie=UTF8&tag=giftable02-20)
 
 If your roommate is a wine lover, we have the perfect gift for them - this roommate wine bag featuring the endearing saying "Best Roommate Ever."
 
@@ -343,7 +343,7 @@ Measuring about 5.5 inches wide and 13.5 inches long, this wine bottle gift bag 
 
 ✔️ Stylish and thoughtful gift for various occasions
 
-[Buy from Amazon](https://www.amazon.com/Roommate-College-Sorority-Graduation-Drawstring/dp/B0B6SXXZKM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Roommate-College-Sorority-Graduation-Drawstring/dp/B0B6SXXZKM?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Personalized Letter Bead Bracelet](https://www.uncommongoods.com/product/personalized-letter-bead-bracelet)
 
@@ -365,9 +365,9 @@ Crafted with care, this bracelet exudes charm with its delicate glass beads and 
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/personalized-letter-bead-bracelet)
 
-### [19\. My Favorite Roommate Gave Me This Shirt](https://www.amazon.com/My-Favorite-Roommate-Shirt-T-Shirt/dp/B08FB7MF64/?ie=UTF8&tag=avadalove-20) 
+### [19\. My Favorite Roommate Gave Me This Shirt](https://www.amazon.com/My-Favorite-Roommate-Shirt-T-Shirt/dp/B08FB7MF64/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/My-Favorite-Roommate-Shirt-T-Shirt/dp/B08FB7MF64/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/My-Favorite-Roommate-Shirt-T-Shirt/dp/B08FB7MF64/?ie=UTF8&tag=giftable02-20)
 
 Let your friend show off your friendship while gifting her this delightful "My Favorite Roommate Gave Me This Shirt" tee. This unique and humorous t-shirt is the perfect way to celebrate the special bond you share with your roommate.
 
@@ -381,11 +381,11 @@ The fun and quirky print on the shirt will make your roommate feel cherished and
 
 ✔️ Durable construction with double-needle sleeve and hem
 
-[Buy from Amazon](https://www.amazon.com/My-Favorite-Roommate-Shirt-T-Shirt/dp/B08FB7MF64/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/My-Favorite-Roommate-Shirt-T-Shirt/dp/B08FB7MF64/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Bluetooth Speaker Night Lights](https://www.amazon.com/Bluetooth-Speaker-Dimmable-Multi-Color-Changing/dp/B07PHX9SY7/?ie=UTF8&tag=avadalove-20)
+### [20\. Bluetooth Speaker Night Lights](https://www.amazon.com/Bluetooth-Speaker-Dimmable-Multi-Color-Changing/dp/B07PHX9SY7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bluetooth-Speaker-Dimmable-Multi-Color-Changing/dp/B07PHX9SY7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bluetooth-Speaker-Dimmable-Multi-Color-Changing/dp/B07PHX9SY7/?ie=UTF8&tag=giftable02-20)
 
 This cool Bluetooth speaker night light will make your roommate's life more enjoyable and convenient.
 
@@ -401,11 +401,11 @@ The sound quality of this Bluetooth speaker is superb, with solid bass and disto
 
 ✔️ Portable and perfect for indoor and outdoor activities
 
-[Buy from Amazon](https://www.amazon.com/Bluetooth-Speaker-Dimmable-Multi-Color-Changing/dp/B07PHX9SY7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bluetooth-Speaker-Dimmable-Multi-Color-Changing/dp/B07PHX9SY7/?ie=UTF8&tag=giftable02-20)
 
-### [21\. The One Where They Were Roommates Mug](https://www.amazon.com/PassionWear-roommates-Roommates-coffee-Roomie/dp/B083Y13YW9/?ie=UTF8&tag=avadalove-20)
+### [21\. The One Where They Were Roommates Mug](https://www.amazon.com/PassionWear-roommates-Roommates-coffee-Roomie/dp/B083Y13YW9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PassionWear-roommates-Roommates-coffee-Roomie/dp/B083Y13YW9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PassionWear-roommates-Roommates-coffee-Roomie/dp/B083Y13YW9/?ie=UTF8&tag=giftable02-20)
 
 A mug might be just a normal daily item, but "The One Where They Were Roommates" mug is a unique and thoughtful gift that will bring joy and memories to your roommates.
 
@@ -419,7 +419,7 @@ Measuring 11 ounces, this ceramic coffee mug boasts high-quality printing that i
 
 ✔️ Dishwasher and microwave safe for convenience
 
-[Buy from Amazon](https://www.amazon.com/PassionWear-roommates-Roommates-coffee-Roomie/dp/B083Y13YW9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PassionWear-roommates-Roommates-coffee-Roomie/dp/B083Y13YW9/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Before You Go Bathroom Gift Set](https://www.uncommongoods.com/product/before-you-go-bathroom-gift-set)
 
@@ -441,9 +441,9 @@ This unique collection features lavender and green tea-scented stink stoppers th
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/before-you-go-bathroom-gift-set)
 
-### [23\. Fleece Wearable Blanket](https://www.amazon.com/Wearable-Blanket-Snuggly-Comfort-Sleeves/dp/B07YTZP47D/?ie=UTF8&tag=avadalove-20)
+### [23\. Fleece Wearable Blanket](https://www.amazon.com/Wearable-Blanket-Snuggly-Comfort-Sleeves/dp/B07YTZP47D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wearable-Blanket-Snuggly-Comfort-Sleeves/dp/B07YTZP47D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wearable-Blanket-Snuggly-Comfort-Sleeves/dp/B07YTZP47D/?ie=UTF8&tag=giftable02-20)
 
 Best roommate gift ideas this winter - a fleece wearable blanket! This versatile and cozy blanket will keep your roommate warm and comfortable on winter days wherever they are.
 
@@ -459,11 +459,11 @@ With a neck opening in the middle, it can be worn as a poncho, providing coverag
 
 ✔️ One size fits all for universal use
 
-[Buy from Amazon](https://www.amazon.com/Wearable-Blanket-Snuggly-Comfort-Sleeves/dp/B07YTZP47D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wearable-Blanket-Snuggly-Comfort-Sleeves/dp/B07YTZP47D/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Clean Dirty Magnet](https://www.amazon.com/KitchenTour-Magnet-Dishwasher-Upgrade-Strong/dp/B078T9P54X/?ie=UTF8&tag=avadalove-20) 
+### [24\. Clean Dirty Magnet](https://www.amazon.com/KitchenTour-Magnet-Dishwasher-Upgrade-Strong/dp/B078T9P54X/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/KitchenTour-Magnet-Dishwasher-Upgrade-Strong/dp/B078T9P54X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KitchenTour-Magnet-Dishwasher-Upgrade-Strong/dp/B078T9P54X/?ie=UTF8&tag=giftable02-20)
 
 Searching for the ideal gift for your roommates? The clean dirty magnet is worth your consideration!
 
@@ -479,7 +479,7 @@ This practical and stylish magnet will end the dishwasher confusion in your shar
 
 ✔️ Strong magnetic back stays put for years
 
-[Buy from Amazon](https://www.amazon.com/KitchenTour-Magnet-Dishwasher-Upgrade-Strong/dp/B078T9P54X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KitchenTour-Magnet-Dishwasher-Upgrade-Strong/dp/B078T9P54X/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Custom Embroidered Roman Numeral Hoodie](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1284728729/custom-embroidered-roman-numeral-hoodie)
 
@@ -501,9 +501,9 @@ Whether it's for birthday or X'mas, this hoodie adds a sentimental touch with it
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1284728729/custom-embroidered-roman-numeral-hoodie)
 
-### [26\. Scalp Massager](https://www.amazon.com/Scalp-Massager-Heads-Relaxing-Scratcher/dp/B07K1NRN5T/?ie=UTF8&tag=avadalove-20) 
+### [26\. Scalp Massager](https://www.amazon.com/Scalp-Massager-Heads-Relaxing-Scratcher/dp/B07K1NRN5T/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Scalp-Massager-Heads-Relaxing-Scratcher/dp/B07K1NRN5T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scalp-Massager-Heads-Relaxing-Scratcher/dp/B07K1NRN5T/?ie=UTF8&tag=giftable02-20)
 
 Get this scalp Massager for your roommates to help them relax and melt the stress away! With 20 prongs, this head massager provides gentle and soothing touches, perfect for people dealing with anxiety and sleep problems.
 
@@ -519,7 +519,7 @@ Using the scalp massager is easy and effective. Simply move it back and forth on
 
 ✔️ Durable metal construction, easy to clean
 
-[Buy from Amazon](https://www.amazon.com/Scalp-Massager-Heads-Relaxing-Scratcher/dp/B07K1NRN5T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scalp-Massager-Heads-Relaxing-Scratcher/dp/B07K1NRN5T/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Singing Nightingale Treasure Box](https://www.uncommongoods.com/product/singing-nightingale-treasure-box)
 
@@ -541,9 +541,9 @@ Inside, a festively be-hatted nightingale comes to life when the box is opened a
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/singing-nightingale-treasure-box)
 
-### [28\. Burt’s Bees Body Care Products](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO/?ie=UTF8&tag=avadalove-20)
+### [28\. Burt’s Bees Body Care Products](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO/?ie=UTF8&tag=giftable02-20)
 
 Burt's Bees is a well-known brand that offers natural and nourishing skincare products.
 
@@ -559,11 +559,11 @@ These all-natural products are formulated to condition, hydrate, and protect the
 
 ✔️ Complete set for head-to-toe skin nourishment
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Popchose Shower Bombs](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=avadalove-20)
+### [29\. Popchose Shower Bombs](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=giftable02-20)
 
 What better to gift your roommate than this delightful set of POPCHOSE shower bombs!
 
@@ -579,7 +579,7 @@ These bath Bombs come with a splitting line, allowing your roommate to divide th
 
 ✔️ Beautifully packaged, making it a thoughtful and luxurious gift
 
-[Buy from Amazon](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/POPCHOSE-Shower-Steamers-Aromatherapy-Appreciation/dp/B0BKH7JVVM/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Personalized Dorm Room Door Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/934413949/dorm-room-door-sign-metal-roommates-name)
 
@@ -601,9 +601,9 @@ The artwork is permanently fused to the face of the sign, creating a beautiful a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/934413949/dorm-room-door-sign-metal-roommates-name)
 
-### [31\. The Best Friend Game](https://www.amazon.com/Best-Friend-Game-Think-Friends/dp/B082MT8JK3/?ie=UTF8&tag=avadalove-20)
+### [31\. The Best Friend Game](https://www.amazon.com/Best-Friend-Game-Think-Friends/dp/B082MT8JK3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Best-Friend-Game-Think-Friends/dp/B082MT8JK3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Best-Friend-Game-Think-Friends/dp/B082MT8JK3/?ie=UTF8&tag=giftable02-20)
 
 The best friend game is here to level up your roommate game nights with 250 intriguing questions designed to test how well you really know each other.
 
@@ -619,7 +619,7 @@ This game comes with 6 dry-erase boards, 6 markers, and 6 clean-up cloths, makin
 
 ✔️ A great way to break the ice and create lasting memories
 
-[Buy from Amazon](https://www.amazon.com/Best-Friend-Game-Think-Friends/dp/B082MT8JK3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Best-Friend-Game-Think-Friends/dp/B082MT8JK3/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Personalized Baby Girl Pillow](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1426901377/personalized-girl-baby-room-decor-baby)
 
@@ -641,9 +641,9 @@ Handcrafted with love and precision, the embroidery work on this pillow cover is
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1426901377/personalized-girl-baby-room-decor-baby)
 
-### [33\. I’ll Feed All You Apron](https://www.amazon.com/Miracu-Funny-Aprons-Men-Women/dp/B07W46L7HH/?ie=UTF8&tag=avadalove-20)
+### [33\. I’ll Feed All You Apron](https://www.amazon.com/Miracu-Funny-Aprons-Men-Women/dp/B07W46L7HH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Miracu-Funny-Aprons-Men-Women/dp/B07W46L7HH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Miracu-Funny-Aprons-Men-Women/dp/B07W46L7HH/?ie=UTF8&tag=giftable02-20)
 
 Are you and your roommate cooking enthusiasts who love to whip up delicious meals together? If so, I have the perfect gift recommendation for you! The "I'll Feed All You" apron is a hilarious and functional addition to your kitchen adventures.
 
@@ -659,11 +659,11 @@ With its generous size and three deep pockets, your friends can easily carry all
 
 ✔️ Adjustable neck and waist straps for a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Miracu-Funny-Aprons-Men-Women/dp/B07W46L7HH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Miracu-Funny-Aprons-Men-Women/dp/B07W46L7HH/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Best Roommate Ever Tote Bag](https://www.amazon.com/Best-Roommate-Ever-Student-Friend/dp/B08P6NTQKJ/?ie=UTF8&tag=avadalove-20)
+### [34\. Best Roommate Ever Tote Bag](https://www.amazon.com/Best-Roommate-Ever-Student-Friend/dp/B08P6NTQKJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Best-Roommate-Ever-Student-Friend/dp/B08P6NTQKJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Best-Roommate-Ever-Student-Friend/dp/B08P6NTQKJ/?ie=UTF8&tag=giftable02-20)
 
 Imagine the delight on their face when they receive this thoughtful gift that acknowledges the great relationship you share.
 
@@ -679,7 +679,7 @@ Measuring 16" x 16" with sturdy black cotton webbing strap handles, this tote ba
 
 ✔️ Durable, lightweight, and easy to clean polyester fabric
 
-[Buy from Amazon](https://www.amazon.com/Best-Roommate-Ever-Student-Friend/dp/B08P6NTQKJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Best-Roommate-Ever-Student-Friend/dp/B08P6NTQKJ/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Custom Resin Flower Keyrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/814742117/custom-resin-flower-keyrings-custom)
 
