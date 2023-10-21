@@ -17,9 +17,9 @@ In a world that often feels disconnected, these gifts offer a beautiful reminder
 
 To awaken your sense of wonder and ignite your imagination, our curated gift list below will invite you to embrace the mysterious beauty of the blue sea - a whale!
 
-### [1\. Light Up Kids Water Bottle](https://www.amazon.com/Whale-Bottle-Design-Tritan-Eco-Friendly/dp/B08QMBMHGQ/?ie=UTF8&tag=avadalove-20)
+### [1\. Light Up Kids Water Bottle](https://www.amazon.com/Whale-Bottle-Design-Tritan-Eco-Friendly/dp/B08QMBMHGQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whale-Bottle-Design-Tritan-Eco-Friendly/dp/B08QMBMHGQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whale-Bottle-Design-Tritan-Eco-Friendly/dp/B08QMBMHGQ/?ie=UTF8&tag=giftable02-20)
 
 Quench your thirst for adventure with this enchanting Whale Bottle.
 
@@ -35,11 +35,11 @@ Measuring 9 inches tall and 3 inches in diameter, this Whale Bottle is the perfe
 
 ✔️ Lightweight and portable for convenience on the go
 
-[Buy from Amazon](https://www.amazon.com/Whale-Bottle-Design-Tritan-Eco-Friendly/dp/B08QMBMHGQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whale-Bottle-Design-Tritan-Eco-Friendly/dp/B08QMBMHGQ/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Whale K9 Crystal Ball](https://www.amazon.com/Engraved-Miniatured-Birthday-Girlfriend-Decoration/dp/B09NHSYZKR/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Whale K9 Crystal Ball](https://www.amazon.com/Engraved-Miniatured-Birthday-Girlfriend-Decoration/dp/B09NHSYZKR/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engraved-Miniatured-Birthday-Girlfriend-Decoration/dp/B09NHSYZKR/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engraved-Miniatured-Birthday-Girlfriend-Decoration/dp/B09NHSYZKR/?th=1?ie=UTF8&tag=giftable02-20)
 
 Experience the joy of gifting with the exquisite Engraved Miniature Ball.
 
@@ -53,7 +53,7 @@ Measuring just 2 inches in diameter, it is the perfect size for displaying or as
 
 ✔️ Delightful addition to decorative arrangements or gift collections
 
-[Buy from Amazon](https://www.amazon.com/Engraved-Miniatured-Birthday-Girlfriend-Decoration/dp/B09NHSYZKR/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engraved-Miniatured-Birthday-Girlfriend-Decoration/dp/B09NHSYZKR/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Whale of a Birthday Card](https://www.lovepop.com/products/whale-of-a-birthday-pop-up-card?variant=40120229363785)
 
@@ -91,9 +91,9 @@ Measuring approximately 6 inches in height and 9 inches in length, it is the ide
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1072302028/personalized-whale-bank-coin-bank-baby)
 
-### [5\. Whale Waterproof Stickers](https://www.amazon.com/Waterproof-Stickers-Aesthetic-Notebooks-Skateboard/dp/B0BBL11FF5/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Whale Waterproof Stickers](https://www.amazon.com/Waterproof-Stickers-Aesthetic-Notebooks-Skateboard/dp/B0BBL11FF5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Waterproof-Stickers-Aesthetic-Notebooks-Skateboard/dp/B0BBL11FF5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Waterproof-Stickers-Aesthetic-Notebooks-Skateboard/dp/B0BBL11FF5/?th=1?ie=UTF8&tag=giftable02-20)
 
 Discover a world of creativity and self-expression with these Waterproof Stickers.
 
@@ -107,11 +107,11 @@ Each pack includes a variety of stickers, ranging in size from small accents to 
 
 ✔️ Various sizes cater to different preferences and artistic visions
 
-[Buy from Amazon](https://www.amazon.com/Waterproof-Stickers-Aesthetic-Notebooks-Skateboard/dp/B0BBL11FF5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Waterproof-Stickers-Aesthetic-Notebooks-Skateboard/dp/B0BBL11FF5/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. Foldable Tote Nylon Reusable Grocery Bags](https://www.amazon.com/allydrew-Foldable-Reusable-Grocery-Whales/dp/B08BTQCKM8/?ie=UTF8&tag=avadalove-20)
+### [6\. Foldable Tote Nylon Reusable Grocery Bags](https://www.amazon.com/allydrew-Foldable-Reusable-Grocery-Whales/dp/B08BTQCKM8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/allydrew-Foldable-Reusable-Grocery-Whales/dp/B08BTQCKM8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/allydrew-Foldable-Reusable-Grocery-Whales/dp/B08BTQCKM8/?ie=UTF8&tag=giftable02-20)
 
 These bags are more than just practical accessories; they are a statement of your commitment to sustainable living and a thoughtful whale gift for your loved ones.
 
@@ -125,11 +125,11 @@ Each bag features an adorable whale design that adds a playful touch to your sho
 
 ✔️ Charming whale designs add a touch of whimsy to your shopping experience
 
-[Buy from Amazon](https://www.amazon.com/allydrew-Foldable-Reusable-Grocery-Whales/dp/B08BTQCKM8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/allydrew-Foldable-Reusable-Grocery-Whales/dp/B08BTQCKM8/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Killer Whale Hat](https://www.amazon.com/DALIX-Killer-Whale-Marine-Baseball/dp/B07XL4YNGP/?ie=UTF8&tag=avadalove-20)
+### [7\. Killer Whale Hat](https://www.amazon.com/DALIX-Killer-Whale-Marine-Baseball/dp/B07XL4YNGP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DALIX-Killer-Whale-Marine-Baseball/dp/B07XL4YNGP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DALIX-Killer-Whale-Marine-Baseball/dp/B07XL4YNGP/?ie=UTF8&tag=giftable02-20)
 
 Step out in style and showcase your love for marine life with Killer Whale Hat. This trendy accessory is more than just a fashion statement; it's a symbol of your passion for whales and the ocean.
 
@@ -145,7 +145,7 @@ Made from durable materials, this hat offers both style and functionality. It pr
 
 ✔️ Lightweight and breathable materials for all-day comfort
 
-[Buy from Amazon](https://www.amazon.com/DALIX-Killer-Whale-Marine-Baseball/dp/B07XL4YNGP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DALIX-Killer-Whale-Marine-Baseball/dp/B07XL4YNGP/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Killer Whale Resin Lamp](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1443707541/daddymother-orca-whale-and-baby-orca)
 
@@ -165,9 +165,9 @@ This lamp is compact and versatile, making it suitable for various areas in your
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1443707541/daddymother-orca-whale-and-baby-orca)
 
-### [9\. Ceramic Whale Shaped Set](https://www.amazon.com/Kate-Aspen-23159NA-Tablespoon-Measuring/dp/B078J1KHXM/?ie=UTF8&tag=avadalove-20) 
+### [9\. Ceramic Whale Shaped Set](https://www.amazon.com/Kate-Aspen-23159NA-Tablespoon-Measuring/dp/B078J1KHXM/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Kate-Aspen-23159NA-Tablespoon-Measuring/dp/B078J1KHXM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kate-Aspen-23159NA-Tablespoon-Measuring/dp/B078J1KHXM/?ie=UTF8&tag=giftable02-20)
 
 These adorable whale-shaped measuring spoons bring a delightful and playful element to your culinary adventures.
 
@@ -181,7 +181,7 @@ Each measuring spoon showcases intricate detailing that captures the essence of 
 
 ✔️ Compact and easy to store, ensuring convenience in the kitchen
 
-[Buy from Amazon](https://www.amazon.com/Kate-Aspen-23159NA-Tablespoon-Measuring/dp/B078J1KHXM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kate-Aspen-23159NA-Tablespoon-Measuring/dp/B078J1KHXM/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Personalized Whale Cutting Board](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1224622869/personalized-whale-cutting-board-whale)
 
@@ -201,9 +201,9 @@ Beyond its aesthetic appeal, this cutting board offers functionality and durabil
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1224622869/personalized-whale-cutting-board-whale)
 
-### [11\. Mermaid Tail Crystal Holder](https://www.amazon.com/Mermaid-Crystal-Holder-Stones-Display/dp/B0C1WCCJ78/?ie=UTF8&tag=avadalove-20)
+### [11\. Mermaid Tail Crystal Holder](https://www.amazon.com/Mermaid-Crystal-Holder-Stones-Display/dp/B0C1WCCJ78/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mermaid-Crystal-Holder-Stones-Display/dp/B0C1WCCJ78/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mermaid-Crystal-Holder-Stones-Display/dp/B0C1WCCJ78/?ie=UTF8&tag=giftable02-20)
 
 With its elegant design and ethereal aura, the mermaid crystal holder creates a captivating ambiance in any space, creating an ideal gift for those who appreciate beauty and spirituality.
 
@@ -217,11 +217,11 @@ This crystal holder provides a stylish and functional solution for displaying pr
 
 ✔️ Compact size and versatile placement options for convenience
 
-[Buy from Amazon](https://www.amazon.com/Mermaid-Crystal-Holder-Stones-Display/dp/B0C1WCCJ78/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mermaid-Crystal-Holder-Stones-Display/dp/B0C1WCCJ78/?ie=UTF8&tag=giftable02-20)
 
-### [12\. The Kindness Book](https://www.amazon.com/Kate-Milo-Board-Book-Whales/dp/B08YH43WPB/?ie=UTF8&tag=avadalove-20)
+### [12\. The Kindness Book](https://www.amazon.com/Kate-Milo-Board-Book-Whales/dp/B08YH43WPB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kate-Milo-Board-Book-Whales/dp/B08YH43WPB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kate-Milo-Board-Book-Whales/dp/B08YH43WPB/?ie=UTF8&tag=giftable02-20)
 
 Embark on an enchanting underwater journey with the Kate and Milo Board Book: Whales. Dive into a world of imagination and discovery as you flip through the colorful pages filled with captivating illustrations and engaging storytelling.
 
@@ -235,7 +235,7 @@ The rounded edges and thick pages make it safe for young readers, while the vibr
 
 ✔️ Sturdy board book construction withstands the rigors of young readers
 
-[Buy from Amazon](https://www.amazon.com/Kate-Milo-Board-Book-Whales/dp/B08YH43WPB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kate-Milo-Board-Book-Whales/dp/B08YH43WPB/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. I Just Freaking Love Whales Okay Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/833844911/i-just-freaking-love-whales-okay-whale)
 
@@ -255,9 +255,9 @@ Offering a generous capacity for your favorite drinks. The high-quality printing
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/833844911/i-just-freaking-love-whales-okay-whale)
 
-### [14\. Navy Whale Throw](https://www.amazon.com/Lush-Decor-Whale-Throw-Sherpa/dp/B01AUWVMVS/?ie=UTF8&tag=avadalove-20)
+### [14\. Navy Whale Throw](https://www.amazon.com/Lush-Decor-Whale-Throw-Sherpa/dp/B01AUWVMVS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lush-Decor-Whale-Throw-Sherpa/dp/B01AUWVMVS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lush-Decor-Whale-Throw-Sherpa/dp/B01AUWVMVS/?ie=UTF8&tag=giftable02-20)
 
 Wrap yourself in cozy comfort and enchanting whale-themed design with the Lush Decor Whale Throw Sherpa.
 
@@ -273,11 +273,11 @@ This throw blanket features a soft and plush Sherpa lining that provides excepti
 
 ✔️ Machine washable for easy care and long-lasting use
 
-[Buy from Amazon](https://www.amazon.com/Lush-Decor-Whale-Throw-Sherpa/dp/B01AUWVMVS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lush-Decor-Whale-Throw-Sherpa/dp/B01AUWVMVS/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Cotton Flannel Burp Cloths](https://www.amazon.com/Hudson-Baby-Layered-Flannel-Whales/dp/B0743MNJP1/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Cotton Flannel Burp Cloths](https://www.amazon.com/Hudson-Baby-Layered-Flannel-Whales/dp/B0743MNJP1/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hudson-Baby-Layered-Flannel-Whales/dp/B0743MNJP1/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hudson-Baby-Layered-Flannel-Whales/dp/B0743MNJP1/?th=1?ie=UTF8&tag=giftable02-20)
 
 Perfect as a gift for baby showers or birthdays, these cloths will surely bring smiles and warmth to both parents and their little bundle of joy.
 
@@ -293,7 +293,7 @@ These cloths provide a delicate and comforting touch against your baby's skin. T
 
 ✔️ Versatile size for wrapping, burping, or as a lightweight blanket
 
-[Buy from Amazon](https://www.amazon.com/Hudson-Baby-Layered-Flannel-Whales/dp/B0743MNJP1/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hudson-Baby-Layered-Flannel-Whales/dp/B0743MNJP1/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Watercolor Whale Sweater](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1126253169/watercolor-whale-sweater-trendy-ocean)
 
@@ -313,9 +313,9 @@ Its soft and cozy fabric keeps you warm during cooler days, while the relaxed fi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1126253169/watercolor-whale-sweater-trendy-ocean)
 
-### [17\. Cute Whale Night Light](https://www.amazon.com/Cute-Night-Light-Kids-Rechargeable/dp/B09YCNRVG4/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Cute Whale Night Light](https://www.amazon.com/Cute-Night-Light-Kids-Rechargeable/dp/B09YCNRVG4/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cute-Night-Light-Kids-Rechargeable/dp/B09YCNRVG4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cute-Night-Light-Kids-Rechargeable/dp/B09YCNRVG4/?th=1?ie=UTF8&tag=giftable02-20)
 
 Create a soothing and magical environment at night with the Cute Whale Light.
 
@@ -329,7 +329,7 @@ This rechargeable night light allows you to place it anywhere you desire without
 
 ✔️ Simple touch control for easy operation
 
-[Buy from Amazon](https://www.amazon.com/Cute-Night-Light-Kids-Rechargeable/dp/B09YCNRVG4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cute-Night-Light-Kids-Rechargeable/dp/B09YCNRVG4/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Whale Vintage Collage Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1250744614/gsp-german-shorthair-dog-riding-whale) 
 
@@ -349,9 +349,9 @@ This high-quality print is carefully crafted using premium materials, ensuring i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1250744614/gsp-german-shorthair-dog-riding-whale)
 
-### [19\. Tea Light Candle Holders Set](https://www.amazon.com/Tea-Light-Candle-Holders-Set/dp/B0B97J89YL/?ie=UTF8&tag=avadalove-20)
+### [19\. Tea Light Candle Holders Set](https://www.amazon.com/Tea-Light-Candle-Holders-Set/dp/B0B97J89YL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tea-Light-Candle-Holders-Set/dp/B0B97J89YL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tea-Light-Candle-Holders-Set/dp/B0B97J89YL/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of elegance and tranquility to your living space with the Tea Light Candle Holders Set. The set features delicate whale designs, making it a unique and memorable gift for your loved ones.
 
@@ -365,11 +365,11 @@ These candle holders showcase a blend of functionality and artistry. They are de
 
 ✔️ Durable and long-lasting materials ensure longevity
 
-[Buy from Amazon](https://www.amazon.com/Tea-Light-Candle-Holders-Set/dp/B0B97J89YL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tea-Light-Candle-Holders-Set/dp/B0B97J89YL/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Cute Soft Plush Whale Slippers](https://www.amazon.com/Millffy-Slippers-Japanese-Bottom-Indoor/dp/B077XKJR8F/?ie=UTF8&tag=avadalove-20)
+### [20\. Cute Soft Plush Whale Slippers](https://www.amazon.com/Millffy-Slippers-Japanese-Bottom-Indoor/dp/B077XKJR8F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Millffy-Slippers-Japanese-Bottom-Indoor/dp/B077XKJR8F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Millffy-Slippers-Japanese-Bottom-Indoor/dp/B077XKJR8F/?ie=UTF8&tag=giftable02-20)
 
 Wrap your feet in comfort and style with the Millffy Slippers, a cozy footwear option that brings joy and relaxation to your everyday life.
 
@@ -385,7 +385,7 @@ The open-back design allows for easy slip-on and removal, providing convenience 
 
 ✔️ Plush interior lining offers a soft and luxurious feel
 
-[Buy from Amazon](https://www.amazon.com/Millffy-Slippers-Japanese-Bottom-Indoor/dp/B077XKJR8F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Millffy-Slippers-Japanese-Bottom-Indoor/dp/B077XKJR8F/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Whale Tail Hoop Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1050575298/sterling-silver-whale-tail-hoop-earrings)
 
@@ -405,9 +405,9 @@ The sleek and minimalist design adds a touch of sophistication to any outfit, wh
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1050575298/sterling-silver-whale-tail-hoop-earrings)
 
-### [22\. Mobile Under The Sea Plush Hanging](https://www.amazon.com/Nursery-Mobile-Ceiling-Hanging-Narwhal/dp/B08WZ2GRRZ/?ie=UTF8&tag=avadalove-20)
+### [22\. Mobile Under The Sea Plush Hanging](https://www.amazon.com/Nursery-Mobile-Ceiling-Hanging-Narwhal/dp/B08WZ2GRRZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nursery-Mobile-Ceiling-Hanging-Narwhal/dp/B08WZ2GRRZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nursery-Mobile-Ceiling-Hanging-Narwhal/dp/B08WZ2GRRZ/?ie=UTF8&tag=giftable02-20)
 
 Transform your baby's nursery into a whimsical underwater paradise with Nursery Mobile.
 
@@ -421,11 +421,11 @@ This mobile features delightful narwhal and whale characters that dance and twir
 
 ✔️ Adjustable height for easy customization and perfect positioning
 
-[Buy from Amazon](https://www.amazon.com/Nursery-Mobile-Ceiling-Hanging-Narwhal/dp/B08WZ2GRRZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nursery-Mobile-Ceiling-Hanging-Narwhal/dp/B08WZ2GRRZ/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Tribal Whale Design Stemless Wine Glass](https://www.amazon.com/Stemless-Turquoise-Handblown-Integrity-Bottles/dp/B07CZ6B44Z/?th=1?ie=UTF8&tag=avadalove-20)
+### [23\. Tribal Whale Design Stemless Wine Glass](https://www.amazon.com/Stemless-Turquoise-Handblown-Integrity-Bottles/dp/B07CZ6B44Z/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stemless-Turquoise-Handblown-Integrity-Bottles/dp/B07CZ6B44Z/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stemless-Turquoise-Handblown-Integrity-Bottles/dp/B07CZ6B44Z/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your drinking experience with our Stemless Glass Set, a true embodiment of elegance and craftsmanship.
 
@@ -441,11 +441,11 @@ Each glass has a capacity of approximately 15 ounces, allowing for generous pour
 
 ✔️ Enhances the flavors and aromas of your favorite beverages
 
-[Buy from Amazon](https://www.amazon.com/Stemless-Turquoise-Handblown-Integrity-Bottles/dp/B07CZ6B44Z/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stemless-Turquoise-Handblown-Integrity-Bottles/dp/B07CZ6B44Z/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [24\. Whale White Ceramic Succulent Planter](https://www.amazon.com/GeLive-Ceramic-Succulent-Decorative-Container/dp/B06XGT43JV/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Whale White Ceramic Succulent Planter](https://www.amazon.com/GeLive-Ceramic-Succulent-Decorative-Container/dp/B06XGT43JV/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GeLive-Ceramic-Succulent-Decorative-Container/dp/B06XGT43JV/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GeLive-Ceramic-Succulent-Decorative-Container/dp/B06XGT43JV/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Ceramic Succulent Planter is a perfect gift for any occasion, representing growth and new beginnings.
 
@@ -459,7 +459,7 @@ The planter measures approximately 5.5 inches in length, 3.1 inches in width, an
 
 ✔️ Playful whale-shaped design for a touch of uniqueness
 
-[Buy from Amazon](https://www.amazon.com/GeLive-Ceramic-Succulent-Decorative-Container/dp/B06XGT43JV/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GeLive-Ceramic-Succulent-Decorative-Container/dp/B06XGT43JV/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Blue Whale Air Plant Holder](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/484604882/blue-whale-air-plant-holder-air-planter)
 
@@ -479,9 +479,9 @@ The Blue Whale Air Plant Holder measures 4 inches in length, 2.5 inches in width
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/484604882/blue-whale-air-plant-holder-air-planter)
 
-### [26\. Whale Shaped Cardboard Puzzlesa](https://www.amazon.com/Jigsaw-Puzzles-Pieces-Cardboard-Educational/dp/B08XNN62VZ/?ie=UTF8&tag=avadalove-20)
+### [26\. Whale Shaped Cardboard Puzzlesa](https://www.amazon.com/Jigsaw-Puzzles-Pieces-Cardboard-Educational/dp/B08XNN62VZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jigsaw-Puzzles-Pieces-Cardboard-Educational/dp/B08XNN62VZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jigsaw-Puzzles-Pieces-Cardboard-Educational/dp/B08XNN62VZ/?ie=UTF8&tag=giftable02-20)
 
 Embark on an enchanting journey through the ocean's depths with this fantastic Whale Jigsaw Puzzle!
 
@@ -495,11 +495,11 @@ The Whale Jigsaw Puzzle comprises 500 pieces and measures approximately 20 inche
 
 ✔️ High-quality construction with durable cardboard pieces
 
-[Buy from Amazon](https://www.amazon.com/Jigsaw-Puzzles-Pieces-Cardboard-Educational/dp/B08XNN62VZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jigsaw-Puzzles-Pieces-Cardboard-Educational/dp/B08XNN62VZ/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Whale Makeup Bag](https://www.amazon.com/Whale-Makeup-Ocean-Cosmetic-Unique/dp/B07MXKLLS5/?ie=UTF8&tag=avadalove-20)
+### [27\. Whale Makeup Bag](https://www.amazon.com/Whale-Makeup-Ocean-Cosmetic-Unique/dp/B07MXKLLS5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whale-Makeup-Ocean-Cosmetic-Unique/dp/B07MXKLLS5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whale-Makeup-Ocean-Cosmetic-Unique/dp/B07MXKLLS5/?ie=UTF8&tag=giftable02-20)
 
 Indulge in the whimsical charm of our Whale Makeup Bag, a delightful accessory that combines practicality with ocean-inspired beauty.
 
@@ -513,7 +513,7 @@ The Whale Makeup Bag measures approximately 9 inches in length, 6.5 inches in he
 
 ✔️ Secure zipper closure to keep your items safe
 
-[Buy from Amazon](https://www.amazon.com/Whale-Makeup-Ocean-Cosmetic-Unique/dp/B07MXKLLS5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whale-Makeup-Ocean-Cosmetic-Unique/dp/B07MXKLLS5/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Crochet Whale Plushie](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1245594839/crochet-whale-plushie-whale-with-cowboy)
 
@@ -553,9 +553,9 @@ This card measures approximately 5 x 7 inches when folded, a standard size for m
 
 [Buy from Lovepop](https://www.lovepop.com/products/get-well-whale-pop-up-card?variant=20208186163273)
 
-### [30\. Whale Tail Necklace](https://www.amazon.com/dp/B09MHJ9N9J/?ie=UTF8&tag=avadalove-20)
+### [30\. Whale Tail Necklace](https://www.amazon.com/dp/B09MHJ9N9J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B09MHJ9N9J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B09MHJ9N9J/?ie=UTF8&tag=giftable02-20)
 
 This exquisite piece of jewelry goes beyond its aesthetic appeal, capturing the hearts of whale lovers with its symbolic and emotional significance.
 
@@ -569,7 +569,7 @@ Featuring a delicate dolphin pendant, this necklace serves as a gentle reminder 
 
 ✔️ Adjustable chain for versatile and comfortable wear
 
-[Buy from Amazon](https://www.amazon.com/dp/B09MHJ9N9J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B09MHJ9N9J/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Personalized Whale Blanket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1217479731/personalized-whale-blanket-nautical)
 
@@ -589,9 +589,9 @@ The Personalized Whale Blanket measures approximately 50 x 60 inches, providing 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1217479731/personalized-whale-blanket-nautical)
 
-### [32\. Whale Tail Bracelet](https://www.amazon.com/HAQUIL-Mermaid-Bracelet-Chain-Women/dp/B07PHTJJZ6/?ie=UTF8&tag=avadalove-20)
+### [32\. Whale Tail Bracelet](https://www.amazon.com/HAQUIL-Mermaid-Bracelet-Chain-Women/dp/B07PHTJJZ6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HAQUIL-Mermaid-Bracelet-Chain-Women/dp/B07PHTJJZ6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HAQUIL-Mermaid-Bracelet-Chain-Women/dp/B07PHTJJZ6/?ie=UTF8&tag=giftable02-20)
 
 Change your style with this coo Whale Bracelet, a mesmerizing accessory for a whale lover.
 
@@ -605,7 +605,7 @@ This bracelet features an adjustable chain of approximately 7 inches, allowing f
 
 ✔️ Versatile style that can be worn with various outfits
 
-[Buy from Amazon](https://www.amazon.com/HAQUIL-Mermaid-Bracelet-Chain-Women/dp/B07PHTJJZ6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HAQUIL-Mermaid-Bracelet-Chain-Women/dp/B07PHTJJZ6/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Whale Suncatcher](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1393740015/stained-glass-iridescent-aqua-rippled)
 
@@ -625,9 +625,9 @@ The Stained Glass Iridescent Aqua Ripple Suncatcher measures 5 inches in diamete
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1393740015/stained-glass-iridescent-aqua-rippled)
 
-### [34\. Whale Lover Tshirt](https://www.amazon.com/Whale-Lover-Tshirt-Whales-T-Shirt/dp/B09SS53NCX/?ie=UTF8&tag=avadalove-20)
+### [34\. Whale Lover Tshirt](https://www.amazon.com/Whale-Lover-Tshirt-Whales-T-Shirt/dp/B09SS53NCX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whale-Lover-Tshirt-Whales-T-Shirt/dp/B09SS53NCX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whale-Lover-Tshirt-Whales-T-Shirt/dp/B09SS53NCX/?ie=UTF8&tag=giftable02-20)
 
 Express your love for these majestic creatures of the sea with the Whale Lover T-shirt. It's more than just a piece of apparel; embrace your love for whales and make a statement with this charming t-shirt.
 
@@ -643,11 +643,11 @@ The Whale Lover T-shirt comes in various sizes, from small to XXXL, to accommoda
 
 ✔️ Available in a range of sizes to ensure the perfect fit for everyone
 
-[Buy from Amazon](https://www.amazon.com/Whale-Lover-Tshirt-Whales-T-Shirt/dp/B09SS53NCX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whale-Lover-Tshirt-Whales-T-Shirt/dp/B09SS53NCX/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Fidget Toy Keychain](https://www.amazon.com/Roaqua-Kindergarten-Birthday-Graduation-Classroom/dp/B092TK5WTD/?th=1?ie=UTF8&tag=avadalove-20)
+### [35\. Fidget Toy Keychain](https://www.amazon.com/Roaqua-Kindergarten-Birthday-Graduation-Classroom/dp/B092TK5WTD/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Roaqua-Kindergarten-Birthday-Graduation-Classroom/dp/B092TK5WTD/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Roaqua-Kindergarten-Birthday-Graduation-Classroom/dp/B092TK5WTD/?th=1?ie=UTF8&tag=giftable02-20)
 
 Carry a piece of oceanic wonder wherever you go with the Roaqua Whale Keychain. This delightful keychain serves as a constant reminder of the beauty and magnificence of these gentle creatures.
 
@@ -661,4 +661,4 @@ The Roaqua Whale Keychain is approximately 2 inches in length and 1.5 inches in 
 
 ✔️ Lightweight and compact, making it easy to carry and attach to your keys or bag
 
-[Buy from Amazon](https://www.amazon.com/Roaqua-Kindergarten-Birthday-Graduation-Classroom/dp/B092TK5WTD/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Roaqua-Kindergarten-Birthday-Graduation-Classroom/dp/B092TK5WTD/?th=1?ie=UTF8&tag=giftable02-20)

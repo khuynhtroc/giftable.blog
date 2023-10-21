@@ -17,9 +17,9 @@ Immerse yourself in the Regency era with our meticulously selected Bridgerton pr
 
 Uncover the secrets and delights of Bridgerton with our captivating collection of gifts. Allow yourself to be swept away by the allure of forbidden love, glittering balls, and scandalous affairs as you explore our range of Bridgerton-inspired products. Step into the enchantment today and let the spirit of Bridgerton inspire your every day.
 
-### [1\. The Unofficial Bridgerton Book of Afternoon Tea](https://www.amazon.com/Unofficial-Bridgerton-Book-Afternoon-Tea/dp/1788794311/?ie=UTF8&tag=avadalove-20)
+### [1\. The Unofficial Bridgerton Book of Afternoon Tea](https://www.amazon.com/Unofficial-Bridgerton-Book-Afternoon-Tea/dp/1788794311/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Unofficial-Bridgerton-Book-Afternoon-Tea/dp/1788794311/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Unofficial-Bridgerton-Book-Afternoon-Tea/dp/1788794311/?ie=UTF8&tag=giftable02-20)
 
 Step into the opulence and grandeur of Bridgerton with the "Unofficial Bridgerton Book of Afternoon Tea." Discover the hidden delights of Regency London as you embark on a culinary journey filled with sumptuous recipes and fascinating stories.
 
@@ -33,7 +33,7 @@ The book features over 60 mouthwatering recipes inspired by the series, accompan
 
 ✔️ Capture the essence of Bridgerton with stunning illustrations
 
-[Buy from Amazon](https://www.amazon.com/Unofficial-Bridgerton-Book-Afternoon-Tea/dp/1788794311/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Unofficial-Bridgerton-Book-Afternoon-Tea/dp/1788794311/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Plate Set Vintage Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1489226289/plate-set-vintage-gift-idea-housewarming)
 
@@ -53,9 +53,9 @@ This vintage plate set includes four beautifully crafted plates, each measuring 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1489226289/plate-set-vintage-gift-idea-housewarming)
 
-### [3\. Clue Bridgerton Edition](https://www.amazon.com/Clue-Bridgerton-BoardGame-Inspired-Shondalands/dp/B09D45HZQJ/?ie=UTF8&tag=avadalove-20)
+### [3\. Clue Bridgerton Edition](https://www.amazon.com/Clue-Bridgerton-BoardGame-Inspired-Shondalands/dp/B09D45HZQJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Clue-Bridgerton-BoardGame-Inspired-Shondalands/dp/B09D45HZQJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Clue-Bridgerton-BoardGame-Inspired-Shondalands/dp/B09D45HZQJ/?ie=UTF8&tag=giftable02-20)
 
 Delve into the scandals and mysteries of Bridgerton with the Clue Bridgerton Edition. Channel your inner Lady Whistledown as you navigate through the captivating storyline and unveil the truth behind the secrets of the characters.
 
@@ -71,11 +71,11 @@ It includes custom-sculpted character movers, representing the beloved Bridgerto
 
 ✔️ Engaging gameplay with custom rooms and personality cards
 
-[Buy from Amazon](https://www.amazon.com/Clue-Bridgerton-BoardGame-Inspired-Shondalands/dp/B09D45HZQJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Clue-Bridgerton-BoardGame-Inspired-Shondalands/dp/B09D45HZQJ/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Bridge Inspired Keychain](https://www.amazon.com/BLEOUK-Bridgerton-Inspired-Keychain-Whistledown/dp/B091JZMW63/?ie=UTF8&tag=avadalove-20)
+### [4\. Bridge Inspired Keychain](https://www.amazon.com/BLEOUK-Bridgerton-Inspired-Keychain-Whistledown/dp/B091JZMW63/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BLEOUK-Bridgerton-Inspired-Keychain-Whistledown/dp/B091JZMW63/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BLEOUK-Bridgerton-Inspired-Keychain-Whistledown/dp/B091JZMW63/?ie=UTF8&tag=giftable02-20)
 
 Carry a piece of Bridgerton's enchantment wherever you go with the Bridgerton Inspired Keychain.
 
@@ -89,7 +89,7 @@ It measures approximately 2.5 inches in length, making it the perfect size to at
 
 ✔️ Compact size and sturdy keyring for easy attachment
 
-[Buy from Amazon](https://www.amazon.com/BLEOUK-Bridgerton-Inspired-Keychain-Whistledown/dp/B091JZMW63/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BLEOUK-Bridgerton-Inspired-Keychain-Whistledown/dp/B091JZMW63/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Queen Charlotte Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1485915777/queen-charlotte-tumbler-king-george)
 
@@ -109,9 +109,9 @@ The tumbler is meticulously crafted from high-quality materials, ensuring durabi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1485915777/queen-charlotte-tumbler-king-george)
 
-### [6\. Bridgerton I Get My Tea T-shirt](https://www.amazon.com/Bridgerton-Get-Lady-Whistledowns-T-Shirt/dp/B092NDJBP3/?ie=UTF8&tag=avadalove-20)
+### [6\. Bridgerton I Get My Tea T-shirt](https://www.amazon.com/Bridgerton-Get-Lady-Whistledowns-T-Shirt/dp/B092NDJBP3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bridgerton-Get-Lady-Whistledowns-T-Shirt/dp/B092NDJBP3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bridgerton-Get-Lady-Whistledowns-T-Shirt/dp/B092NDJBP3/?ie=UTF8&tag=giftable02-20)
 
 Step into the world of Bridgerton with the Get Me a Lady Whistledown's T-Shirt. Embrace your inner gossip columnist and show your love for the series with this stylish and unique t-shirt.
 
@@ -125,11 +125,11 @@ The T-Shirt is made from soft and breathable fabric, ensuring maximum comfort th
 
 ✔️ Available in a range of sizes for a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Bridgerton-Get-Lady-Whistledowns-T-Shirt/dp/B092NDJBP3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bridgerton-Get-Lady-Whistledowns-T-Shirt/dp/B092NDJBP3/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Queen Charlotte Audiobook](https://www.amazon.com/Queen-Charlotte-Before-Bridgertons-changed/dp/B0B64JKF39/?ie=UTF8&tag=avadalove-20)
+### [7\. Queen Charlotte Audiobook](https://www.amazon.com/Queen-Charlotte-Before-Bridgertons-changed/dp/B0B64JKF39/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Queen-Charlotte-Before-Bridgertons-changed/dp/B0B64JKF39/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Queen-Charlotte-Before-Bridgertons-changed/dp/B0B64JKF39/?ie=UTF8&tag=giftable02-20)
 
 This Queen Charlotte audiobook is a perfect gift for any Bridgerton fan, offering a unique and immersive experience that brings the characters and the era to life through vivid storytelling.
 
@@ -143,7 +143,7 @@ This audiobook is available in a convenient digital format, allowing you to enjo
 
 ✔️ High-quality audio production for an enhanced listening experience
 
-[Buy from Amazon](https://www.amazon.com/Queen-Charlotte-Before-Bridgertons-changed/dp/B0B64JKF39/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Queen-Charlotte-Before-Bridgertons-changed/dp/B0B64JKF39/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Bridgerton Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1207835662/bridgerton-necklace-16k-18k-gold-plated)
 
@@ -163,9 +163,9 @@ The Bridgerton Necklace boasts a pendant size of approximately 0.6 inches, perfe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1207835662/bridgerton-necklace-16k-18k-gold-plated)
 
-### [9\. Lady Whistledown’s Society Notebook](https://www.amazon.com/Whistledowns-Society-Notebook-Stationary-Bridgerton/dp/B08WJPL8ZL/r?ie=UTF8&tag=avadalove-20)
+### [9\. Lady Whistledown’s Society Notebook](https://www.amazon.com/Whistledowns-Society-Notebook-Stationary-Bridgerton/dp/B08WJPL8ZL/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whistledowns-Society-Notebook-Stationary-Bridgerton/dp/B08WJPL8ZL/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whistledowns-Society-Notebook-Stationary-Bridgerton/dp/B08WJPL8ZL/r?ie=UTF8&tag=giftable02-20)
 
 Inspired by the beloved series, this exquisite notebook captures the essence of the Regency era and offers a delightful escape into a world of romance and intrigue.
 
@@ -179,7 +179,7 @@ The Whistledown's Society Notebook measures approximately 5.8 x 8.3 inches, prov
 
 ✔️ Sturdy binding and ribbon bookmark for convenience and durability
 
-[Buy from Amazon](https://www.amazon.com/Whistledowns-Society-Notebook-Stationary-Bridgerton/dp/B08WJPL8ZL/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whistledowns-Society-Notebook-Stationary-Bridgerton/dp/B08WJPL8ZL/r?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Bridgerton Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/970927511/bridgerton-mug-lady-whistledown-society)
 
@@ -199,9 +199,9 @@ The Bridgerton Mug boasts a generous 11-ounce capacity, allowing you to enjoy a 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/970927511/bridgerton-mug-lady-whistledown-society)
 
-### [11\. Hibiscus Iced Tea](https://www.amazon.com/Republic-Tea-Bridgerton-Whistledown-Hibiscus/dp/B09TWS5LVF/?ie=UTF8&tag=avadalove-20)
+### [11\. Hibiscus Iced Tea](https://www.amazon.com/Republic-Tea-Bridgerton-Whistledown-Hibiscus/dp/B09TWS5LVF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Republic-Tea-Bridgerton-Whistledown-Hibiscus/dp/B09TWS5LVF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Republic-Tea-Bridgerton-Whistledown-Hibiscus/dp/B09TWS5LVF/?ie=UTF8&tag=giftable02-20)
 
 This tea is more than just a beverage; it's a **[sensory](https://avada.io/loveable/sensory-toys/)** experience that evokes the romance, elegance, and intrigue of Bridgerton.
 
@@ -217,11 +217,11 @@ The Bridgerton Tea comes in a 1.8-ounce tin, containing a meticulously blend of 
 
 ✔️ Carefully packed loose-leaf tea in a 1.8-ounce tin to ensure freshness and quality
 
-[Buy from Amazon](https://www.amazon.com/Republic-Tea-Bridgerton-Whistledown-Hibiscus/dp/B09TWS5LVF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Republic-Tea-Bridgerton-Whistledown-Hibiscus/dp/B09TWS5LVF/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Bridgerton Set of 7 Wall Art](https://www.amazon.com/VORZEG-B1ridgerton-Printed-Backdrop-Frameless/dp/B0BPNSQMZ5/?ie=UTF8&tag=avadalove-20)
+### [12\. Bridgerton Set of 7 Wall Art](https://www.amazon.com/VORZEG-B1ridgerton-Printed-Backdrop-Frameless/dp/B0BPNSQMZ5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VORZEG-B1ridgerton-Printed-Backdrop-Frameless/dp/B0BPNSQMZ5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VORZEG-B1ridgerton-Printed-Backdrop-Frameless/dp/B0BPNSQMZ5/?ie=UTF8&tag=giftable02-20)
 
 Adorn your walls with the enchanting beauty of Bridgerton, capturing the essence of the series and its captivating quotes that resonate deep within our hearts.
 
@@ -235,7 +235,7 @@ This frameless wall art measures 24 x 36 inches, making it a striking centerpiec
 
 ✔️ Easy to hang with included hardware for effortless decoration
 
-[Buy from Amazon](https://www.amazon.com/VORZEG-B1ridgerton-Printed-Backdrop-Frameless/dp/B0BPNSQMZ5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VORZEG-B1ridgerton-Printed-Backdrop-Frameless/dp/B0BPNSQMZ5/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Bridgerton Gift Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1206615810/bridgerton-gift-set-bridgerton-shirt)
 
@@ -255,9 +255,9 @@ This Bridgerton gift set includes a soft and comfortable Bridgerton shirt. The s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1206615810/bridgerton-gift-set-bridgerton-shirt)
 
-### [14\. Bridgerton Tea Assortment Gift](https://www.amazon.com/Republic-Tea-Bridgerton-Assortment-Gift/dp/B0BG66KBLN/?ie=UTF8&tag=avadalove-20)
+### [14\. Bridgerton Tea Assortment Gift](https://www.amazon.com/Republic-Tea-Bridgerton-Assortment-Gift/dp/B0BG66KBLN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Republic-Tea-Bridgerton-Assortment-Gift/dp/B0BG66KBLN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Republic-Tea-Bridgerton-Assortment-Gift/dp/B0BG66KBLN/?ie=UTF8&tag=giftable02-20)
 
 Allow yourself to be captivated by the magic of each cup and indulge in the pleasures that Bridgerton has to offer.
 
@@ -273,7 +273,7 @@ This Bridgerton tea assortment includes a thoughtfully curated selection of teas
 
 ✔️ Perfect for enjoying peaceful moments or hosting elegant tea parties
 
-[Buy from Amazon](https://www.amazon.com/Republic-Tea-Bridgerton-Assortment-Gift/dp/B0BG66KBLN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Republic-Tea-Bridgerton-Assortment-Gift/dp/B0BG66KBLN/?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Porcelain Tea Cup](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1227758929/bridgerton-gift-lady-whistledowns)
 
@@ -293,9 +293,9 @@ This Bridgerton cup measures 4.3 inches in height and 3.5 inches in diameter, pr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1227758929/bridgerton-gift-lady-whistledowns)
 
-### [16\. Lady Whistledown Makeup Bag](https://www.amazon.com/VAMSII-Society-Papers-Whistledown-Zipper/dp/B09LHVHS8S/?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Lady Whistledown Makeup Bag](https://www.amazon.com/VAMSII-Society-Papers-Whistledown-Zipper/dp/B09LHVHS8S/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VAMSII-Society-Papers-Whistledown-Zipper/dp/B09LHVHS8S/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VAMSII-Society-Papers-Whistledown-Zipper/dp/B09LHVHS8S/?th=1?ie=UTF8&tag=giftable02-20)
 
 "Style is something each of us already has, all we need to do is find it." So, let this makeup bag be your stylish companion, reflecting your love for the series and your impeccable taste.
 
@@ -309,7 +309,7 @@ This Bridgerton makeup bag features a spacious interior, measuring 8.7 inches in
 
 ✔️ Secure zipper closure for added convenience and style
 
-[Buy from Amazon](https://www.amazon.com/VAMSII-Society-Papers-Whistledown-Zipper/dp/B09LHVHS8S/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VAMSII-Society-Papers-Whistledown-Zipper/dp/B09LHVHS8S/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Spill The Tea Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1379436236/spill-the-tea-lady-whistledowns)
 
@@ -329,9 +329,9 @@ This Bridgerton sweatshirt is made from high-quality materials, ensuring both co
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1379436236/spill-the-tea-lady-whistledowns)
 
-### [18\. Quote Inspired Gift Zipper Pouch](https://www.amazon.com/Inspired-Cosmetics-Feminist-describe-accurately/dp/B091C6BXRJ/?th=1?ie=UTF8&tag=avadalove-20)
+### [18\. Quote Inspired Gift Zipper Pouch](https://www.amazon.com/Inspired-Cosmetics-Feminist-describe-accurately/dp/B091C6BXRJ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspired-Cosmetics-Feminist-describe-accurately/dp/B091C6BXRJ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspired-Cosmetics-Feminist-describe-accurately/dp/B091C6BXRJ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Emblazoned with the phrase "Well-behaved women seldom make history," the cosmetic bag serves as a reminder to embrace your individuality and break free from societal norms.
 
@@ -345,11 +345,11 @@ The pouch is compact yet spacious enough to hold your makeup, toiletries, or oth
 
 ✔️ Compact size, perfect for on-the-go use
 
-[Buy from Amazon](https://www.amazon.com/Inspired-Cosmetics-Feminist-describe-accurately/dp/B091C6BXRJ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspired-Cosmetics-Feminist-describe-accurately/dp/B091C6BXRJ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. The Duke and I Audiobook](https://www.amazon.com/The-Duke-and-I-Julia-Quinn-audiobook/dp/B01LZRIC6X/?ie=UTF8&tag=avadalove-20)
+### [19\. The Duke and I Audiobook](https://www.amazon.com/The-Duke-and-I-Julia-Quinn-audiobook/dp/B01LZRIC6X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/The-Duke-and-I-Julia-Quinn-audiobook/dp/B01LZRIC6X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/The-Duke-and-I-Julia-Quinn-audiobook/dp/B01LZRIC6X/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchanting world of Bridgerton with "The Duke and I" audiobook.
 
@@ -363,7 +363,7 @@ This audiobook is expertly narrated, ensuring an engaging and immersive experien
 
 ✔️ Digital format for convenient access on multiple devices
 
-[Buy from Amazon](https://www.amazon.com/The-Duke-and-I-Julia-Quinn-audiobook/dp/B01LZRIC6X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/The-Duke-and-I-Julia-Quinn-audiobook/dp/B01LZRIC6X/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Pressed Flower Golden Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/923532845/queen-annes-lace-pressed-flower-golden)
 
@@ -401,9 +401,9 @@ These stunning earrings feature shimmering diamonds set in a timeless and classi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1213734731/bridgerton-gift-bridgerton-diamond)
 
-### [22\. Bridgerton Boxed Set](https://www.amazon.com/Bridgerton-Boxed-Set-Gentleman-Bridgertons/dp/0063238780/?ie=UTF8&tag=avadalove-20)
+### [22\. Bridgerton Boxed Set](https://www.amazon.com/Bridgerton-Boxed-Set-Gentleman-Bridgertons/dp/0063238780/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bridgerton-Boxed-Set-Gentleman-Bridgertons/dp/0063238780/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bridgerton-Boxed-Set-Gentleman-Bridgertons/dp/0063238780/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchanting world of the Bridgerton series with this extraordinary Bridgerton Boxed Set.
 
@@ -417,7 +417,7 @@ Inside this beautifully packaged boxed set, you'll find eight spellbinding novel
 
 ✔️ Captivates the imagination and leaves a lasting impression
 
-[Buy from Amazon](https://www.amazon.com/Bridgerton-Boxed-Set-Gentleman-Bridgertons/dp/0063238780/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bridgerton-Boxed-Set-Gentleman-Bridgertons/dp/0063238780/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Bridgerton Book Gifts](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430493995/bridgerton-book-gifts-book-pouch-book)
 
@@ -473,9 +473,9 @@ This bookmark features a charming design inspired by Lady Whistledown herself. W
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/968838696/bridgerton-bookmark-lady-whistledown)
 
-### [26\. Quotes Keychain](https://www.amazon.com/Downton-Keychain-Dowager-Countess-insulted/dp/B08NGDZHH2/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Quotes Keychain](https://www.amazon.com/Downton-Keychain-Dowager-Countess-insulted/dp/B08NGDZHH2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Downton-Keychain-Dowager-Countess-insulted/dp/B08NGDZHH2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Downton-Keychain-Dowager-Countess-insulted/dp/B08NGDZHH2/?th=1?ie=UTF8&tag=giftable02-20)
 
 Inspired by the iconic Dowager Countess, the keychain carries a hidden humor that will bring a smile to your face every time you reach for your keys.
 
@@ -489,11 +489,11 @@ Made from high-quality materials, it is built to withstand everyday use and stan
 
 ✔️ Durable design for secure and easy key organization
 
-[Buy from Amazon](https://www.amazon.com/Downton-Keychain-Dowager-Countess-insulted/dp/B08NGDZHH2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Downton-Keychain-Dowager-Countess-insulted/dp/B08NGDZHH2/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Regency Dresses](https://www.amazon.com/Womens-Victorian-Regency-Dresses-Renaissance/dp/B09QKXZ1PS/?ie=UTF8&tag=avadalove-20)
+### [27\. Regency Dresses](https://www.amazon.com/Womens-Victorian-Regency-Dresses-Renaissance/dp/B09QKXZ1PS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Womens-Victorian-Regency-Dresses-Renaissance/dp/B09QKXZ1PS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Womens-Victorian-Regency-Dresses-Renaissance/dp/B09QKXZ1PS/?ie=UTF8&tag=giftable02-20)
 
 Designed to transport you to a world of opulence and grace, this dress is the perfect choice for special occasions, themed events, or simply indulging in your love for period fashion.
 
@@ -507,7 +507,7 @@ The dress is available in various sizes, ensuring a perfect fit for every body s
 
 ✔️ Delicate lace accents and puffed sleeves for a romantic touch
 
-[Buy from Amazon](https://www.amazon.com/Womens-Victorian-Regency-Dresses-Renaissance/dp/B09QKXZ1PS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Womens-Victorian-Regency-Dresses-Renaissance/dp/B09QKXZ1PS/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Lady Whistledown’s Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/983434394/lady-whistledowns-tote-bag-bridgerton)
 
@@ -527,9 +527,9 @@ With its sturdy construction and durable materials, this bag is designed to with
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/983434394/lady-whistledowns-tote-bag-bridgerton)
 
-### [29\. Bridgerton Anthony & Kate’s Spiced Chai](https://www.amazon.com/Republic-Tea-Bridgerton-Anthony-Spiced/dp/B09TWPPGV3/?ie=UTF8&tag=avadalove-20)
+### [29\. Bridgerton Anthony & Kate’s Spiced Chai](https://www.amazon.com/Republic-Tea-Bridgerton-Anthony-Spiced/dp/B09TWPPGV3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Republic-Tea-Bridgerton-Anthony-Spiced/dp/B09TWPPGV3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Republic-Tea-Bridgerton-Anthony-Spiced/dp/B09TWPPGV3/?ie=UTF8&tag=giftable02-20)
 
 Let the aromatic blend of Anthony Spiced Tea warm your heart and evoke feelings of passion and intrigue.
 
@@ -543,7 +543,7 @@ Each box contains 20 tea bags, allowing you to enjoy multiple enchanting moments
 
 ✔️ Includes 20 tea bags for multiple enchanting moments
 
-[Buy from Amazon](https://www.amazon.com/Republic-Tea-Bridgerton-Anthony-Spiced/dp/B09TWPPGV3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Republic-Tea-Bridgerton-Anthony-Spiced/dp/B09TWPPGV3/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Bridgerton Pen](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1213713163/bridgerton-pen)
 
@@ -583,9 +583,9 @@ This wine glass boasts a generous capacity of 15 ounces, allowing you to enjoy y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1052010494/lady-whistledown-wine-glass-inspired-by)
 
-### [32\. Lady Whistledown Tea Co T-Shirt](https://www.amazon.com/Lady-Whistledown-Tea-Spilling-Since/dp/B08XZGMTJF/?ie=UTF8&tag=avadalove-20)
+### [32\. Lady Whistledown Tea Co T-Shirt](https://www.amazon.com/Lady-Whistledown-Tea-Spilling-Since/dp/B08XZGMTJF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lady-Whistledown-Tea-Spilling-Since/dp/B08XZGMTJF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lady-Whistledown-Tea-Spilling-Since/dp/B08XZGMTJF/?ie=UTF8&tag=giftable02-20)
 
 Embrace your inner gossip and show your love for the Bridgerton series with the delightful "Tea Spilling Since 1813" design.
 
@@ -599,11 +599,11 @@ It features a classic crew neck and short sleeves for a relaxed and casual fit. 
 
 ✔️ Classic crew neck and short sleeves for a relaxed and casual look
 
-[Buy from Amazon](https://www.amazon.com/Lady-Whistledown-Tea-Spilling-Since/dp/B08XZGMTJF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lady-Whistledown-Tea-Spilling-Since/dp/B08XZGMTJF/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Flawless My Dear T-Shirt](https://www.amazon.com/Bridgerton-Queen-Charlotte-Flawless-T-Shirt/dp/B092N9X75N/?ie=UTF8&tag=avadalove-20)
+### [33\. Flawless My Dear T-Shirt](https://www.amazon.com/Bridgerton-Queen-Charlotte-Flawless-T-Shirt/dp/B092N9X75N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bridgerton-Queen-Charlotte-Flawless-T-Shirt/dp/B092N9X75N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bridgerton-Queen-Charlotte-Flawless-T-Shirt/dp/B092N9X75N/?ie=UTF8&tag=giftable02-20)
 
 This t-shirt offers more than just a fashionable statement. It provides a sense of connection to the Bridgerton universe, allowing you to embody the grace and confidence of Queen Charlotte.
 
@@ -617,7 +617,7 @@ The classic crew neck and short sleeves provide a relaxed and stylish look, perf
 
 ✔️ Durable blend of cotton and polyester for long-lasting wear
 
-[Buy from Amazon](https://www.amazon.com/Bridgerton-Queen-Charlotte-Flawless-T-Shirt/dp/B092N9X75N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bridgerton-Queen-Charlotte-Flawless-T-Shirt/dp/B092N9X75N/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Lilac Bound Journal](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1025041373/5x7-ruled-lady-whistledown-spiral-lilac)
 

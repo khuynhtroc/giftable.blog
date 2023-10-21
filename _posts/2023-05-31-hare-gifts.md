@@ -17,9 +17,9 @@ These Hare Gifts embody the essence of grace, agility, and intuition, making the
 
 Discover the joy of giving with our Hare Gifts collection, and let the beauty of these enchanting creatures inspire your gift-giving experience. With our 35 extensive range of options, you'll find the perfect gift to express your sentiments and create cherished memories. So embrace the magic of Hare Gifts and make every occasion genuinely extraordinary.
 
-### [1\. Assorted Vinegar](https://www.amazon.com/Hare-Hollow-Assorted-Balsamic-Vinegar/dp/B081P3FQLJ/?ie=UTF8&tag=avadalove-20)
+### [1\. Assorted Vinegar](https://www.amazon.com/Hare-Hollow-Assorted-Balsamic-Vinegar/dp/B081P3FQLJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hare-Hollow-Assorted-Balsamic-Vinegar/dp/B081P3FQLJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hare-Hollow-Assorted-Balsamic-Vinegar/dp/B081P3FQLJ/?ie=UTF8&tag=giftable02-20)
 
 Indulge your taste buds in a world of flavors with our exquisite assortment of Hare Hollow Vinegars.
 
@@ -33,11 +33,11 @@ Whether you're a seasoned chef or an aspiring home cook, these vinegar are the s
 
 ✔️ Wide variety of flavors
 
-[Buy from Amazon](https://www.amazon.com/Hare-Hollow-Assorted-Balsamic-Vinegar/dp/B081P3FQLJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hare-Hollow-Assorted-Balsamic-Vinegar/dp/B081P3FQLJ/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Art Poster Print](https://www.amazon.com/American-Gift-Services-Albrecht-Poster/dp/B07KMM69RL/?ie=UTF8&tag=avadalove-20)
+### [2\. Art Poster Print](https://www.amazon.com/American-Gift-Services-Albrecht-Poster/dp/B07KMM69RL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/American-Gift-Services-Albrecht-Poster/dp/B07KMM69RL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/American-Gift-Services-Albrecht-Poster/dp/B07KMM69RL/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchanting world of art with exquisite Hare Poster Print featuring the captivating artwork of Albrecht.
 
@@ -51,11 +51,11 @@ As a hare lover or hare enthusiast, you'll be captivated by the intricate detail
 
 ✔️ Stunning artwork
 
-[Buy from Amazon](https://www.amazon.com/American-Gift-Services-Albrecht-Poster/dp/B07KMM69RL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/American-Gift-Services-Albrecht-Poster/dp/B07KMM69RL/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Musical Toy](https://www.amazon.com/Guess-Much-Love-Nutbrown-Jack/dp/B001V2KBIC/?ie=UTF8&tag=avadalove-20)
+### [3\. Musical Toy](https://www.amazon.com/Guess-Much-Love-Nutbrown-Jack/dp/B001V2KBIC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Guess-Much-Love-Nutbrown-Jack/dp/B001V2KBIC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Guess-Much-Love-Nutbrown-Jack/dp/B001V2KBIC/?ie=UTF8&tag=giftable02-20)
 
 This enchanting Musical Toy brings joy and entertainment to your little one, while also offering a range of hidden benefits.
 
@@ -69,7 +69,7 @@ The Musical Toy features an adorable design with Nutbrown Hare and Big Nutbrown 
 
 ✔️ Multi-sensory experience for imagination and fine motor skills
 
-[Buy from Amazon](https://www.amazon.com/Guess-Much-Love-Nutbrown-Jack/dp/B001V2KBIC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Guess-Much-Love-Nutbrown-Jack/dp/B001V2KBIC/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Bronze Hare Lamp](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1439288609/)
 
@@ -89,9 +89,9 @@ The Bronze Hare Lamp features a unique design with a graceful hare, capturing th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1439288609/)
 
-### [5\. Mad Hare T-Shirt](https://www.amazon.com/March-Crazy-Irrational-Novelty-T-Shirt/dp/B07MK31PJ5/?ie=UTF8&tag=avadalove-20)
+### [5\. Mad Hare T-Shirt](https://www.amazon.com/March-Crazy-Irrational-Novelty-T-Shirt/dp/B07MK31PJ5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/March-Crazy-Irrational-Novelty-T-Shirt/dp/B07MK31PJ5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/March-Crazy-Irrational-Novelty-T-Shirt/dp/B07MK31PJ5/?ie=UTF8&tag=giftable02-20)
 
 Embrace your love for hares with our delightful Hare T-Shirt. This whimsical and stylish garment goes beyond its fashionable appearance, offering benefits that capture the essence of hare enthusiasts.
 
@@ -105,11 +105,11 @@ Its soft and breathable fabric ensures a comfortable fit throughout the day, whi
 
 ✔️ Whimsical and captivating hare design
 
-[Buy from Amazon](https://www.amazon.com/March-Crazy-Irrational-Novelty-T-Shirt/dp/B07MK31PJ5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/March-Crazy-Irrational-Novelty-T-Shirt/dp/B07MK31PJ5/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Hare Wine Stopper](https://www.amazon.com/Vagabond-House-Pewter-Jumping-Stopper/dp/B077PL1VSN/?ie=UTF8&tag=avadalove-20)
+### [6\. Hare Wine Stopper](https://www.amazon.com/Vagabond-House-Pewter-Jumping-Stopper/dp/B077PL1VSN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vagabond-House-Pewter-Jumping-Stopper/dp/B077PL1VSN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vagabond-House-Pewter-Jumping-Stopper/dp/B077PL1VSN/?ie=UTF8&tag=giftable02-20)
 
 Elevate your wine-drinking experience with our exquisite Hare Wine Stopper.
 
@@ -123,7 +123,7 @@ This elegant and functional accessory not only adds a touch of charm to your win
 
 ✔️ Exquisite pewter design with intricate hare detailing
 
-[Buy from Amazon](https://www.amazon.com/Vagabond-House-Pewter-Jumping-Stopper/dp/B077PL1VSN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vagabond-House-Pewter-Jumping-Stopper/dp/B077PL1VSN/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Jumping Hare Statue](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1049789417/)
 
@@ -143,9 +143,9 @@ This exquisite bronze hare sculpture not only adds a whimsical and artistic elem
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1049789417/)
 
-### [8\. Hare Miniature Figurines](https://www.amazon.com/Sansukjai-Miniature-Figurines-Collectible-Decorate/dp/B089S3LPSX/?ie=UTF8&tag=avadalove-20)
+### [8\. Hare Miniature Figurines](https://www.amazon.com/Sansukjai-Miniature-Figurines-Collectible-Decorate/dp/B089S3LPSX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sansukjai-Miniature-Figurines-Collectible-Decorate/dp/B089S3LPSX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sansukjai-Miniature-Figurines-Collectible-Decorate/dp/B089S3LPSX/?ie=UTF8&tag=giftable02-20)
 
 Discover the enchanting world of hare figurines with exquisite Hare Miniature Figurines.
 
@@ -159,7 +159,7 @@ This gift is the perfect way to express your love and gratitude to any hare love
 
 ✔️ Delicate and intricately figurines
 
-[Buy from Amazon](https://www.amazon.com/Sansukjai-Miniature-Figurines-Collectible-Decorate/dp/B089S3LPSX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sansukjai-Miniature-Figurines-Collectible-Decorate/dp/B089S3LPSX/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Wax Seal Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/122648066/)
 
@@ -179,9 +179,9 @@ This unique piece holds hidden benefits that go beyond its captivating appearanc
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/122648066/)
 
-### [10\. Rabbit Earrings](https://www.amazon.com/Bonsny-Acrylic-Dangle-Earrings-Jewelry/dp/B07PMCVJWK/?ie=UTF8&tag=avadalove-20)
+### [10\. Rabbit Earrings](https://www.amazon.com/Bonsny-Acrylic-Dangle-Earrings-Jewelry/dp/B07PMCVJWK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bonsny-Acrylic-Dangle-Earrings-Jewelry/dp/B07PMCVJWK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bonsny-Acrylic-Dangle-Earrings-Jewelry/dp/B07PMCVJWK/?ie=UTF8&tag=giftable02-20)
 
 Adorn yourself with whimsical charm and express your love for hares with these delightful Rabbit Earrings.
 
@@ -195,7 +195,7 @@ These adorable dangle earrings feature intricately designed rabbit charms made f
 
 ✔️ Charming rabbit design for a whimsical touch
 
-[Buy from Amazon](https://www.amazon.com/Bonsny-Acrylic-Dangle-Earrings-Jewelry/dp/B07PMCVJWK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bonsny-Acrylic-Dangle-Earrings-Jewelry/dp/B07PMCVJWK/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Scrappy Hare](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1104094914/)
 
@@ -233,9 +233,9 @@ Its intricate design captures the grace and beauty of the hare, reminding your b
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1269593433/)
 
-### [13\. Plush Hare Toy](https://www.amazon.com/Wild-Republic-Stuffed-Animal-Cuddlekins/dp/B00J3ECS18/?ie=UTF8&tag=avadalove-20)
+### [13\. Plush Hare Toy](https://www.amazon.com/Wild-Republic-Stuffed-Animal-Cuddlekins/dp/B00J3ECS18/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wild-Republic-Stuffed-Animal-Cuddlekins/dp/B00J3ECS18/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wild-Republic-Stuffed-Animal-Cuddlekins/dp/B00J3ECS18/?ie=UTF8&tag=giftable02-20)
 
 With its soft and huggable design, the Plush Hare Toy provides a soothing and calming presence, making it the perfect cuddle buddy during both playtime and bedtime. Its lifelike features and attention to detail make it feel like a true hare companion.
 
@@ -249,11 +249,11 @@ This wonderful gift allows your loved one to immerse themselves in a world of im
 
 ✔️ Super soft and cuddly for ultimate comfort
 
-[Buy from Amazon](https://www.amazon.com/Wild-Republic-Stuffed-Animal-Cuddlekins/dp/B00J3ECS18/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wild-Republic-Stuffed-Animal-Cuddlekins/dp/B00J3ECS18/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Hare Brained Teasers](https://www.amazon.com/Hare-Brained-Teasers-Easter-Puzzles/dp/B09VQ4Q821/?ie=UTF8&tag=avadalove-20)
+### [14\. Hare Brained Teasers](https://www.amazon.com/Hare-Brained-Teasers-Easter-Puzzles/dp/B09VQ4Q821/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hare-Brained-Teasers-Easter-Puzzles/dp/B09VQ4Q821/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hare-Brained-Teasers-Easter-Puzzles/dp/B09VQ4Q821/?ie=UTF8&tag=giftable02-20)
 
 Unleash your loved one's inner puzzle master with Hare-Brained Teasers.
 
@@ -267,11 +267,11 @@ Each puzzle is meticulously crafted to captivate and intrigue, inviting your bel
 
 ✔️ Mind-stimulating puzzles that keep you engaged
 
-[Buy from Amazon](https://www.amazon.com/Hare-Brained-Teasers-Easter-Puzzles/dp/B09VQ4Q821/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hare-Brained-Teasers-Easter-Puzzles/dp/B09VQ4Q821/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Cage Sign](https://www.amazon.com/Rabbit-Crossing-Bunny-Bunnie-Sticker/dp/B076YL46NQ/?ie=UTF8&tag=avadalove-20)
+### [15\. Cage Sign](https://www.amazon.com/Rabbit-Crossing-Bunny-Bunnie-Sticker/dp/B076YL46NQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Rabbit-Crossing-Bunny-Bunnie-Sticker/dp/B076YL46NQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Rabbit-Crossing-Bunny-Bunnie-Sticker/dp/B076YL46NQ/?ie=UTF8&tag=giftable02-20)
 
 This delightful Cage Sign. It's not just a decorative piece; it's a thoughtful gesture that shows your appreciation for their passion and dedication to these lovable creatures.
 
@@ -285,7 +285,7 @@ This Rabbit Crossing sign is the perfect size to be displayed on cages, fences, 
 
 ✔️ Eye-catching design
 
-[Buy from Amazon](https://www.amazon.com/Rabbit-Crossing-Bunny-Bunnie-Sticker/dp/B076YL46NQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Rabbit-Crossing-Bunny-Bunnie-Sticker/dp/B076YL46NQ/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Rusty Metal Hare](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/612697173/)
 
@@ -323,9 +323,9 @@ Each brushstroke and curve tells a story, a testament to the dedication and pass
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1004437479/)
 
-### [18\. Good Hare Mug](https://www.amazon.com/Portmeirion-Royal-Worcester-Mug-Good/dp/B071FJFZZY/?ie=UTF8&tag=avadalove-20)
+### [18\. Good Hare Mug](https://www.amazon.com/Portmeirion-Royal-Worcester-Mug-Good/dp/B071FJFZZY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Portmeirion-Royal-Worcester-Mug-Good/dp/B071FJFZZY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Portmeirion-Royal-Worcester-Mug-Good/dp/B071FJFZZY/?ie=UTF8&tag=giftable02-20)
 
 This delightful Good Hare Mug is an enchanting companion for your beloved daily moments of indulgence.
 
@@ -339,7 +339,7 @@ It perfectly fits their hands, creating a cozy and comforting embrace with every
 
 ✔️ Charming and unique gift
 
-[Buy from Amazon](https://www.amazon.com/Portmeirion-Royal-Worcester-Mug-Good/dp/B071FJFZZY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Portmeirion-Royal-Worcester-Mug-Good/dp/B071FJFZZY/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Hare Sun Catcher](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1082343973/)
 
@@ -359,9 +359,9 @@ As sunlight filters through the exquisite stained glass, it creates a dazzling d
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1082343973/)
 
-### [20\. Hare Board book](https://www.amazon.com/Guess-How-Much-Love-You/dp/1536210633/?ie=UTF8&tag=avadalove-20)
+### [20\. Hare Board book](https://www.amazon.com/Guess-How-Much-Love-You/dp/1536210633/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Guess-How-Much-Love-You/dp/1536210633/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Guess-How-Much-Love-You/dp/1536210633/?ie=UTF8&tag=giftable02-20)
 
 Embark on a heartwarming journey with the delightful Hare Board Book, a cherished treasure that brings joy and wonder to your beloved hare lover's world.
 
@@ -375,7 +375,7 @@ In the Hare Board Book, your beloved will join the endearing characters on a cap
 
 ✔️ Engages the senses and encourages interactive learning
 
-[Buy from Amazon](https://www.amazon.com/Guess-How-Much-Love-You/dp/1536210633/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Guess-How-Much-Love-You/dp/1536210633/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Hanging Hare Ornaments](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1162701540/)
 
@@ -395,9 +395,9 @@ They are made from high-quality materials that ensure durability and longevity, 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1162701540/)
 
-### [22\. Wrap Scarf](https://www.amazon.com/Tortoise-Handmade-Cashmere-Wedding-Scarves/dp/B0BNG2XK85/?ie=UTF8&tag=avadalove-20)
+### [22\. Wrap Scarf](https://www.amazon.com/Tortoise-Handmade-Cashmere-Wedding-Scarves/dp/B0BNG2XK85/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tortoise-Handmade-Cashmere-Wedding-Scarves/dp/B0BNG2XK85/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tortoise-Handmade-Cashmere-Wedding-Scarves/dp/B0BNG2XK85/?ie=UTF8&tag=giftable02-20)
 
 Wrap your beloved hare enthusiast in luxurious warmth and elegance with the exquisite Wrap Scarf.
 
@@ -411,7 +411,7 @@ This Wrap Scarf is crafted with premium cashmere material that offers unparallel
 
 ✔️ Premium cashmere material for ultimate softness
 
-[Buy from Amazon](https://www.amazon.com/Tortoise-Handmade-Cashmere-Wedding-Scarves/dp/B0BNG2XK85/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tortoise-Handmade-Cashmere-Wedding-Scarves/dp/B0BNG2XK85/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Hare Watercolour Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/532567434/)
 
@@ -431,9 +431,9 @@ Let the Hare Watercolour Print be a daily reminder of the beauty and grace that 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/532567434/)
 
-### [24\. Sterling Silver Necklace](https://www.amazon.com/SVODEA-Necklace-Sterling-Necklaces-Daughter/dp/B0B8XDT74T/?ie=UTF8&tag=avadalove-20)
+### [24\. Sterling Silver Necklace](https://www.amazon.com/SVODEA-Necklace-Sterling-Necklaces-Daughter/dp/B0B8XDT74T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SVODEA-Necklace-Sterling-Necklaces-Daughter/dp/B0B8XDT74T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SVODEA-Necklace-Sterling-Necklaces-Daughter/dp/B0B8XDT74T/?ie=UTF8&tag=giftable02-20)
 
 The Sterling Silver Necklace is a testament to fine craftsmanship, expertly created using high-quality sterling silver that shines with radiance.
 
@@ -447,7 +447,7 @@ With an adjustable chain length, this necklace offers versatility, allowing it t
 
 ✔️ Sterling silver craftsmanship
 
-[Buy from Amazon](https://www.amazon.com/SVODEA-Necklace-Sterling-Necklaces-Daughter/dp/B0B8XDT74T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SVODEA-Necklace-Sterling-Necklaces-Daughter/dp/B0B8XDT74T/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Hare Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/882015086/)
 
@@ -467,9 +467,9 @@ Its unique hare-shaped design captures the essence of these graceful creatures, 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/882015086/)
 
-### [26\. Handmade Hare Ceramic](https://www.amazon.com/Emma-Bridgewater-Handmade-Ceramic-Half-Pint/dp/B0B5VNX5F4/?ie=UTF8&tag=avadalove-20)
+### [26\. Handmade Hare Ceramic](https://www.amazon.com/Emma-Bridgewater-Handmade-Ceramic-Half-Pint/dp/B0B5VNX5F4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Emma-Bridgewater-Handmade-Ceramic-Half-Pint/dp/B0B5VNX5F4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Emma-Bridgewater-Handmade-Ceramic-Half-Pint/dp/B0B5VNX5F4/?ie=UTF8&tag=giftable02-20)
 
 Savor your favorite beverages in style with the exquisite Handmade Ceramic Mug, a hidden gem that holds more than meets the eye.
 
@@ -483,7 +483,7 @@ Indulge in the artistry of this handmade ceramic mug, crafted with care and prec
 
 ✔️ Artisanal craftsmanship
 
-[Buy from Amazon](https://www.amazon.com/Emma-Bridgewater-Handmade-Ceramic-Half-Pint/dp/B0B5VNX5F4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Emma-Bridgewater-Handmade-Ceramic-Half-Pint/dp/B0B5VNX5F4/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Water Glass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1256246089/)
 
@@ -521,9 +521,9 @@ This pretty wooden spoon is engraved with a hare that you can use to stir your s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/847907675/)
 
-### [29\. Cutie Hare Figurines](https://www.amazon.com/TOYMANY-10PCS-Rabbit-Hare-Figurines/dp/B08RNP4DTV/?ie=UTF8&tag=avadalove-20)
+### [29\. Cutie Hare Figurines](https://www.amazon.com/TOYMANY-10PCS-Rabbit-Hare-Figurines/dp/B08RNP4DTV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TOYMANY-10PCS-Rabbit-Hare-Figurines/dp/B08RNP4DTV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TOYMANY-10PCS-Rabbit-Hare-Figurines/dp/B08RNP4DTV/?ie=UTF8&tag=giftable02-20)
 
 This hare figurine set is made by hand carefully with high-realistically details to ensure the most gorgeous appearance! Their cute faces and childish eyes are sure to melt your beloved's heart!
 
@@ -537,7 +537,7 @@ Their uniquely molded textures and richly painted details make the animal's colo
 
 ✔️ Great durability
 
-[Buy from Amazon](https://www.amazon.com/TOYMANY-10PCS-Rabbit-Hare-Figurines/dp/B08RNP4DTV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TOYMANY-10PCS-Rabbit-Hare-Figurines/dp/B08RNP4DTV/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Hanging Heart Ornament](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/759375456/hanging-heart-hare-hares-decorations)
 
@@ -557,9 +557,9 @@ Its delicate design symbolizes the love and compassion that nurses have poured i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/759375456/hanging-heart-hare-hares-decorations)
 
-### [31\. Decorative Hare Statue](https://www.amazon.com/Sitting-Rabbit-Garden-Statue-Doorstop/dp/B00BQI6ZBS/?ie=UTF8&tag=avadalove-20)
+### [31\. Decorative Hare Statue](https://www.amazon.com/Sitting-Rabbit-Garden-Statue-Doorstop/dp/B00BQI6ZBS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sitting-Rabbit-Garden-Statue-Doorstop/dp/B00BQI6ZBS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sitting-Rabbit-Garden-Statue-Doorstop/dp/B00BQI6ZBS/?ie=UTF8&tag=giftable02-20)
 
 The Sitting Rabbit Garden Statue Doorstop is a delightful decorative piece that brings a touch of charm to any space.
 
@@ -573,7 +573,7 @@ It serves as a thoughtful solution to both functional and aesthetic needs, makin
 
 ✔️ Whimsical charm, adds character to spaces
 
-[Buy from Amazon](https://www.amazon.com/Sitting-Rabbit-Garden-Statue-Doorstop/dp/B00BQI6ZBS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sitting-Rabbit-Garden-Statue-Doorstop/dp/B00BQI6ZBS/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Insulated Hare Water Bottle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/834521854/)
 
@@ -593,9 +593,9 @@ The 304-grade stainless steel is twist off, leak-proof and cap guarantees that i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/834521854/)
 
-### [33\. A Novel Paperback](https://www.amazon.com/Year-Hare-Novel-Arto-Paasilinna/dp/0143117920/?ie=UTF8&tag=avadalove-20)
+### [33\. A Novel Paperback](https://www.amazon.com/Year-Hare-Novel-Arto-Paasilinna/dp/0143117920/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Year-Hare-Novel-Arto-Paasilinna/dp/0143117920/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Year-Hare-Novel-Arto-Paasilinna/dp/0143117920/?ie=UTF8&tag=giftable02-20)
 
 If you feel so bored and tired of working, this interesting book is created for you. It not only brings a sense of encouragement but also helps you to relax and unwind entirely!
 
@@ -609,11 +609,11 @@ This novel is an internationally bestselling comic novel in which a man—with t
 
 ✔️ Can be gifted as a special present
 
-[Buy from Amazon](https://www.amazon.com/Year-Hare-Novel-Arto-Paasilinna/dp/0143117920/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Year-Hare-Novel-Arto-Paasilinna/dp/0143117920/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Rabbit Charm Necklace](https://www.amazon.com/Yellow-Pendant-Necklace-Holiday-Jewelry/dp/B007RD6RPU/?ie=UTF8&tag=avadalove-20)
+### [34\. Rabbit Charm Necklace](https://www.amazon.com/Yellow-Pendant-Necklace-Holiday-Jewelry/dp/B007RD6RPU/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Yellow-Pendant-Necklace-Holiday-Jewelry/dp/B007RD6RPU/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Yellow-Pendant-Necklace-Holiday-Jewelry/dp/B007RD6RPU/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the wonderful and luxurious appearance of this Rabbit Charm Necklace! It is perfect as a special gift to your beloved (who is a hare enthusiast) and also a gentle treat for yourself!
 
@@ -627,7 +627,7 @@ Each item is hand-wrapped with you in mind making it an ideal cute gift for any 
 
 ✔️ Suitable for daily wear
 
-[Buy from Amazon](https://www.amazon.com/Yellow-Pendant-Necklace-Holiday-Jewelry/dp/B007RD6RPU/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Yellow-Pendant-Necklace-Holiday-Jewelry/dp/B007RD6RPU/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Hare Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/946143005/)
 

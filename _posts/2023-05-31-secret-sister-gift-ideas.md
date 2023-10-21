@@ -129,103 +129,103 @@ When you put together a perfect secret sister gift, it will make for a very memo
 
 [Buy from Esty](https://www.etsy.com/listing/1058021393/bookmark-in-fuchsia-color-teacher)
 
-### [12\. Sterling Silver Morse Code Bracelets Gifts](https://www.amazon.com/Sterling-Bracelets-Christmas-Inspirational-Friendship/dp/B0B1QN7V5N/r?ie=UTF8&tag=avadalove-20)
+### [12\. Sterling Silver Morse Code Bracelets Gifts](https://www.amazon.com/Sterling-Bracelets-Christmas-Inspirational-Friendship/dp/B0B1QN7V5N/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sterling-Bracelets-Christmas-Inspirational-Friendship/dp/B0B1QN7V5N/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sterling-Bracelets-Christmas-Inspirational-Friendship/dp/B0B1QN7V5N/r?ie=UTF8&tag=giftable02-20)
 
 - This beautifully crafted morse code bracelet is perfect as a friendship gift for a secret sister. The Morse Code bracelet is 6 inch-11 inch adjustable to fit most wrists easily.
 - Each bead is made of 925 silver with durable nylon cord, No fading, leal-free, nickel free, hypoallergenic, perfect for sensitive skin, strong and sturdy, lightweight, and comfortable to wear daily.
 
-[Buy from Amazon](https://www.amazon.com/Sterling-Bracelets-Christmas-Inspirational-Friendship/dp/B0B1QN7V5N/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sterling-Bracelets-Christmas-Inspirational-Friendship/dp/B0B1QN7V5N/r?ie=UTF8&tag=giftable02-20)
 
-### [13\. Christian Art Gifts Scripture Prayer Cards In Tin](https://www.amazon.com/Christian-Art-Gifts-Scripture-Prayer/dp/B082FNLWTG/?ie=UTF8&tag=avadalove-20)
+### [13\. Christian Art Gifts Scripture Prayer Cards In Tin](https://www.amazon.com/Christian-Art-Gifts-Scripture-Prayer/dp/B082FNLWTG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christian-Art-Gifts-Scripture-Prayer/dp/B082FNLWTG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christian-Art-Gifts-Scripture-Prayer/dp/B082FNLWTG/?ie=UTF8&tag=giftable02-20)
 
 - 50 double-sided Bible cards with promises of God's grace and love. These inspirational and motivational little scripture flashcards are perfect for giving as a card of kindness and encouragement. Make the ideal gift for your secret sister.
 - Full-sided watercolor design in blue floral design, stripes, and dots. Each flashcard is just under 3 Square Inches.
 - Convenient and portable durable tin for wallet, tote bag, and car dashboard. Get ready to hand out these cards with Bibles for immediate encouragement and hope to those around you.
 
-[Buy from Amazon](https://www.amazon.com/Christian-Art-Gifts-Scripture-Prayer/dp/B082FNLWTG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christian-Art-Gifts-Scripture-Prayer/dp/B082FNLWTG/?ie=UTF8&tag=giftable02-20)
 
-### [14\. 140 Page Refillable Journal Notebooks](https://www.amazon.com/PRSTENLY-Refillable-Notebooks-Anniversary-Friendship/dp/B093PYR74Z?ie=UTF8&tag=avadalove-20)
+### [14\. 140 Page Refillable Journal Notebooks](https://www.amazon.com/PRSTENLY-Refillable-Notebooks-Anniversary-Friendship/dp/B093PYR74Z?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PRSTENLY-Refillable-Notebooks-Anniversary-Friendship/dp/B093PYR74Z?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PRSTENLY-Refillable-Notebooks-Anniversary-Friendship/dp/B093PYR74Z?ie=UTF8&tag=giftable02-20)
 
 - Skin engraved diary reminds your secret sister of your love for her—the ideal gift for special occasions like birthdays, Christmas, and more.
 - PU leather cover, 140-page refillable paper, extra cell phone slot, and card slot. Suitable for journaling, sketching, drawing, collecting stickers or photos or stamps.
 - The gift is simple but has great meaning. What are you waiting for without ordering a gift today?
 
-[Buy from Amazon](https://www.amazon.com/PRSTENLY-Refillable-Notebooks-Anniversary-Friendship/dp/B093PYR74Z?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PRSTENLY-Refillable-Notebooks-Anniversary-Friendship/dp/B093PYR74Z?ie=UTF8&tag=giftable02-20)
 
-### [15\. Mugs – Glasses Not Inc](https://www.amazon.com/GIFTAGIRL-Funny-Sister-Birthday-Brother/dp/B08DR8SRZF?ie=UTF8&tag=avadalove-20)
+### [15\. Mugs – Glasses Not Inc](https://www.amazon.com/GIFTAGIRL-Funny-Sister-Birthday-Brother/dp/B08DR8SRZF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GIFTAGIRL-Funny-Sister-Birthday-Brother/dp/B08DR8SRZF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GIFTAGIRL-Funny-Sister-Birthday-Brother/dp/B08DR8SRZF?ie=UTF8&tag=giftable02-20)
 
 - Unique secret sister gifts are glasses and mugs. This may not be out of the ordinary, but they are super cute gifts for a special day.
 - The box is protected with fully shrink wrap, and the wine racks and mugs themselves are also bubble-wrapped to ensure they're always in perfect condition on arrival. She will be very impressed when she opens this super cute pink gift box and have a smile on her face.
 - Wine and coffee lovers can now display their favorite glassware in a fun and elegant way.
 
-[Buy from Amazon](https://www.amazon.com/GIFTAGIRL-Funny-Sister-Birthday-Brother/dp/B08DR8SRZF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GIFTAGIRL-Funny-Sister-Birthday-Brother/dp/B08DR8SRZF?ie=UTF8&tag=giftable02-20)
 
-### [16\. All Occasion Boxed Greeting Cards](https://www.amazon.com/Secret-Sister-Occasion-Greeting-Scripture/dp/B07SG64M92?ie=UTF8&tag=avadalove-20)
+### [16\. All Occasion Boxed Greeting Cards](https://www.amazon.com/Secret-Sister-Occasion-Greeting-Scripture/dp/B07SG64M92?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Secret-Sister-Occasion-Greeting-Scripture/dp/B07SG64M92?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Secret-Sister-Occasion-Greeting-Scripture/dp/B07SG64M92?ie=UTF8&tag=giftable02-20)
 
 - The 12-card boxed card is a secret sister gift idea you shouldn't miss. This unique and novel gift is sure to make her happy.
 - 12 card themes include anniversary, birthday, fun, Christmas, easter, encouragement, mother's day, prayer, thanksgiving, thinking of you, thoughtfulness, and valentine's day.
 - Secret Sister All cards on this occasion offer the right emotion to show that the special secret sister in your life knows how much you care.
 
-[Buy from Amazon](https://www.amazon.com/Secret-Sister-Occasion-Greeting-Scripture/dp/B07SG64M92?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Secret-Sister-Occasion-Greeting-Scripture/dp/B07SG64M92?ie=UTF8&tag=giftable02-20)
 
-### [17\. Essential Oil Diffuser Bracelet](https://www.amazon.com/Essential-Diffuser-Aromatherapy-Stainless-Girlfriend/dp/B01NACKIAN?ie=UTF8&tag=avadalove-20)
+### [17\. Essential Oil Diffuser Bracelet](https://www.amazon.com/Essential-Diffuser-Aromatherapy-Stainless-Girlfriend/dp/B01NACKIAN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Essential-Diffuser-Aromatherapy-Stainless-Girlfriend/dp/B01NACKIAN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Essential-Diffuser-Aromatherapy-Stainless-Girlfriend/dp/B01NACKIAN?ie=UTF8&tag=giftable02-20)
 
 - The Essential Oil Diffuser is an anxiety-soothing essential oil diffuser bracelet. This is the gift idea we would like to recommend to you to give your secret sister.
 - You can put essential oils or favorite perfumes into it to soothe emotions, and reduce stress and stress in busy daily work.
 - A unique gift for women with five holes in the strap to adjust the size of your wrist. It is quite cozy to wear, thanks to the lightweight construction. The minimum diameter is 1.65 in, and the maximum diameter is 2.36 in.
 
-[Buy from Amazon](https://www.amazon.com/Essential-Diffuser-Aromatherapy-Stainless-Girlfriend/dp/B01NACKIAN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Essential-Diffuser-Aromatherapy-Stainless-Girlfriend/dp/B01NACKIAN?ie=UTF8&tag=giftable02-20)
 
-### [18\. Fragrances Reed Diffuser](https://www.amazon.com/Aromatherapy-Appreciation-Graduation-Diffuser-Wedding-Anniversary/dp/B091YRBNL6/?ie=UTF8&tag=avadalove-20)
+### [18\. Fragrances Reed Diffuser](https://www.amazon.com/Aromatherapy-Appreciation-Graduation-Diffuser-Wedding-Anniversary/dp/B091YRBNL6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Aromatherapy-Appreciation-Graduation-Diffuser-Wedding-Anniversary/dp/B091YRBNL6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Aromatherapy-Appreciation-Graduation-Diffuser-Wedding-Anniversary/dp/B091YRBNL6/?ie=UTF8&tag=giftable02-20)
 
 - What could be better than giving your sister the secret of a perfume diffuser? We're sure this great gift idea will leave anyone in awe.
 - Our candle and reed diffuser gift boxes are handcrafted from simple high-quality ingredients carefully selected to take care of both your skin and your senses. We use the finest essential oils and soy wax.
 - The scented candle gift box looks good too, it's also a gift for her wardrobe or bookshelf. They are so beautiful, they can be doubled as home decorations.
 
-[Buy from Amazon](https://www.amazon.com/Aromatherapy-Appreciation-Graduation-Diffuser-Wedding-Anniversary/dp/B091YRBNL6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Aromatherapy-Appreciation-Graduation-Diffuser-Wedding-Anniversary/dp/B091YRBNL6/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Candle Holder W/ Flickering LED Candle](https://www.amazon.com/OakiWay-Sisters-Friend-Gifts-Women/dp/B09WDN4D8L?ie=UTF8&tag=avadalove-20)
+### [19\. Candle Holder W/ Flickering LED Candle](https://www.amazon.com/OakiWay-Sisters-Friend-Gifts-Women/dp/B09WDN4D8L?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/OakiWay-Sisters-Friend-Gifts-Women/dp/B09WDN4D8L?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/OakiWay-Sisters-Friend-Gifts-Women/dp/B09WDN4D8L?ie=UTF8&tag=giftable02-20)
 
 - You are looking for a gift for your secret sister. This unique candle holder figurine is a great special gift that speaks to the friendship between close friends.
 - The statue is hand painted making it a special work of art with perfect touch and feel. It is made from high-quality plastic material, 4 inches wide and9 inches high. It is a priceless present that demonstrates profound appreciation and is a valued item.
 - Express your love and friendship in a way that words alone can't express.
 
-[Buy from Amazon](https://www.amazon.com/OakiWay-Sisters-Friend-Gifts-Women/dp/B09WDN4D8L?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/OakiWay-Sisters-Friend-Gifts-Women/dp/B09WDN4D8L?ie=UTF8&tag=giftable02-20)
 
-### [20\. Ceramic Ring Dish You Are the Sister](https://www.amazon.com/Sister-Ceramic-Trinket-Jewelry-Friends/dp/B08RD9R7N9/?ie=UTF8&tag=avadalove-20)
+### [20\. Ceramic Ring Dish You Are the Sister](https://www.amazon.com/Sister-Ceramic-Trinket-Jewelry-Friends/dp/B08RD9R7N9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sister-Ceramic-Trinket-Jewelry-Friends/dp/B08RD9R7N9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sister-Ceramic-Trinket-Jewelry-Friends/dp/B08RD9R7N9/?ie=UTF8&tag=giftable02-20)
 
 - Our sister ring plate is a great gift for a secret sister. Every time she uses it, she will think of you as a wonderful person.
 - The friend jewelry plate can hold any of your jewelry accessories. The marble jewelry disc is made of high-quality glazed ceramic which makes the sister ring discs veiny and shiny. So you are able to use it for a long time without fading.
 - Each sister ring is handcrafted by expert craftsmen, so each sister ring has a unique pattern that makes your gift extra special.
 
-[Buy from Amazon](https://www.amazon.com/Sister-Ceramic-Trinket-Jewelry-Friends/dp/B08RD9R7N9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sister-Ceramic-Trinket-Jewelry-Friends/dp/B08RD9R7N9/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Aromatherapy Candle Soy Wax 4.4oz Gifts](https://www.amazon.com/Christmas-Candles-Scented-Aromatherapy-Birthday/dp/B08CX8DW7R?ie=UTF8&tag=avadalove-20)
+### [21\. Aromatherapy Candle Soy Wax 4.4oz Gifts](https://www.amazon.com/Christmas-Candles-Scented-Aromatherapy-Birthday/dp/B08CX8DW7R?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-Candles-Scented-Aromatherapy-Birthday/dp/B08CX8DW7R?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-Candles-Scented-Aromatherapy-Birthday/dp/B08CX8DW7R?ie=UTF8&tag=giftable02-20)
 
 - The scented candle gift set includes 4 packages, including 4 flavors: Christmas cookie, apple cinnamon, fir, and lavender. This is a special gift you can give your secret sister.
 - Each candle has a capacity of 4oz and a burning time of up to 30 hours. Made from 100% Soy Wax and natural fiber wicks provide clean and uniform burning. No black smoke. The candle doesn't contain any harmful chemicals or additives. -The scented candle comes with a rich fragrance and a beautiful package, suitable for celebrations you can give your secret sister.
 
-[Buy from Amazon](https://www.amazon.com/Christmas-Candles-Scented-Aromatherapy-Birthday/dp/B08CX8DW7R?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-Candles-Scented-Aromatherapy-Birthday/dp/B08CX8DW7R?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Pinky Promise Bracelet](https://www.etsy.com/listing/519219619/pinky-promise-bracelet-personalized-best)
 
@@ -287,14 +287,14 @@ When you put together a perfect secret sister gift, it will make for a very memo
 
 [Buy from Esty](https://www.etsy.com/listing/1039050232/gift-for-sister-birthday-personalized)
 
-### [28\. Long distance gift](https://www.etsy.com/listing/1274162986/sister-gift-box-personalized-wooden?ie=UTF8&tag=avadalove-20)
+### [28\. Long distance gift](https://www.etsy.com/listing/1274162986/sister-gift-box-personalized-wooden?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/1274162986/sister-gift-box-personalized-wooden?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/1274162986/sister-gift-box-personalized-wooden?ie=UTF8&tag=giftable02-20)
 
 - One of the secret sister gift ideas is a personalized wooden spoon. The special gift fits neatly in the wrinkled paper of your choice, stuffed in a handy dish towel. We will engrave your custom text on the spoon handle.
 - A flashcard will be attached with the custom message you put in the gift message box. The gift was tied with a gold stretch cord with a bow around the box and shipped in a poly mailer bag to keep the box nice for gifting.
 
-[Buy from Amazon](https://www.etsy.com/listing/1274162986/sister-gift-box-personalized-wooden?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/1274162986/sister-gift-box-personalized-wooden?ie=UTF8&tag=giftable02-20)
 
 ### [29\. I Love You Sis Care Package](https://www.etsy.com/listing/1249049218/i-love-you-sis-care-package-sisters)
 
@@ -316,41 +316,41 @@ When you put together a perfect secret sister gift, it will make for a very memo
 
 [Buy from Esty](https://www.etsy.com/listing/707607759/best-fucking-sister-morse-code-necklace)
 
-### [31\. Burt’s Bees Gift Set](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO?ie=UTF8&tag=avadalove-20)
+### [31\. Burt’s Bees Gift Set](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO?ie=UTF8&tag=giftable02-20)
 
 - Give the gift of healthy glowing skin with our skincare gift set! Our natural products not only make the perfect lingerie but also nourish skin throughout the winter to keep your secret little sister radiant inside and out.
 - Made with natural ingredients, these Burt's Bees skin care trial products are formulated to condition and hydrate skin throughout the day.
 - For full body skin, try our milk and honey deep cleansing cream and body lotion to moisturize and protect lips, face, and body from the harsh winter months.
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Essential-Everyday-Products/dp/B004EDWMBO?ie=UTF8&tag=giftable02-20)
 
-### [32\. DARJEN Candle Holders Tray Rocks](https://www.amazon.com/DARJEN-Decorative-Holders-Bathroom-Decorations/dp/B0882YSZKH?ie=UTF8&tag=avadalove-20)
+### [32\. DARJEN Candle Holders Tray Rocks](https://www.amazon.com/DARJEN-Decorative-Holders-Bathroom-Decorations/dp/B0882YSZKH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DARJEN-Decorative-Holders-Bathroom-Decorations/dp/B0882YSZKH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DARJEN-Decorative-Holders-Bathroom-Decorations/dp/B0882YSZKH?ie=UTF8&tag=giftable02-20)
 
 - Our candle tray set is the ideal gift for your secret sister that you shouldn't miss. This cute little home decor item wrapped in a pretty gift box will be an exquisite gift for your secret little sister.
 - The tea lamp is made of frosted glass, and the outside glass is decorated with a leaf pattern. Candle tray set, perfectly suitable as your kitchen table decorations, zen decorations, bathroom accessories set. Bring a decorative touch to any room.
 
-[Buy from Amazon](https://www.amazon.com/DARJEN-Decorative-Holders-Bathroom-Decorations/dp/B0882YSZKH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DARJEN-Decorative-Holders-Bathroom-Decorations/dp/B0882YSZKH?ie=UTF8&tag=giftable02-20)
 
-### [33\. Being My Sister is the Only Gift You Need](https://www.amazon.com/Sister-Birthday-Gifts-Women-Unbiological/dp/B09Q6FK9WP/?ie=UTF8&tag=avadalove-20)
+### [33\. Being My Sister is the Only Gift You Need](https://www.amazon.com/Sister-Birthday-Gifts-Women-Unbiological/dp/B09Q6FK9WP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sister-Birthday-Gifts-Women-Unbiological/dp/B09Q6FK9WP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sister-Birthday-Gifts-Women-Unbiological/dp/B09Q6FK9WP/?ie=UTF8&tag=giftable02-20)
 
 - This funny coffee mug is not only a great birthday gift for a sister but also a wonderful soulful mug, but also a unique gift idea for a secret sister.
 - This wonderful sister mug will make your coffee taste so much better with reflective gold accents on the bezel and handle. Also, a cute gold heart on the inner lid, adds style.
 - Coming with an elegant pink gift box, it is sure to attract attention at parties.
 
-[Buy from Amazon](https://www.amazon.com/Sister-Birthday-Gifts-Women-Unbiological/dp/B09Q6FK9WP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sister-Birthday-Gifts-Women-Unbiological/dp/B09Q6FK9WP/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Makeup Bag Cosmetic Bag](https://www.amazon.com/Friendship-Christian-Birthday-Valentines-Cosmetic/dp/B09W28BFBT/?ie=UTF8&tag=avadalove-20)
+### [34\. Makeup Bag Cosmetic Bag](https://www.amazon.com/Friendship-Christian-Birthday-Valentines-Cosmetic/dp/B09W28BFBT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Friendship-Christian-Birthday-Valentines-Cosmetic/dp/B09W28BFBT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Friendship-Christian-Birthday-Valentines-Cosmetic/dp/B09W28BFBT/?ie=UTF8&tag=giftable02-20)
 
 - A bag can also speak of secret sister friendship, it's a perfect keepsake and a great choice for holiday gifts for secret sisters.
 - The bag is made of linen and waterproof fabric. Smooth zipper, easy to open and close. It's perfect for storing your cosmetics and daily accessories.
 - Unique and creative design, well-made, double-sided color printed graphics, and beautiful and colorful graphics.
 
-[Buy from Amazon](https://www.amazon.com/Friendship-Christian-Birthday-Valentines-Cosmetic/dp/B09W28BFBT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Friendship-Christian-Birthday-Valentines-Cosmetic/dp/B09W28BFBT/?ie=UTF8&tag=giftable02-20)

@@ -17,11 +17,9 @@ We've scoured the universe to bring you 35 stellar gifts for labor and delivery 
 
 But it's not all about looking out-of-this-world fabulous. Our collection also includes practical goodies that make their long shifts more bearable. Think comfy compression socks that bring a touch of style to tired feet and energy-boosting **[coffee mugs](/mugs-gifts/)** that keep them fueled for those late-night deliveries. And let's remember the personalized treasures that will tug at their heartstrings. Picture their smiling faces as they unwrap a custom-engraved necklace adorned with the birthstone of their favorite little patient. Or how about a heartfelt thank you card and a spa gift set that screams, "You're a superhero!"?
 
-**Related:** Best **[Gifts For Nursing Graduates](/gifts-nursing-graduates/)** That Are Unique And Memorable
+### [1\. Sets Nurse Gift Box](https://www.amazon.com/Kolewo4ever-Nurse-Appreciation-Gift-Sets/dp/B0BJ2KJGS7/?ie=UTF8&tag=giftable02-20)
 
-### [1\. Sets Nurse Gift Box](https://www.amazon.com/Kolewo4ever-Nurse-Appreciation-Gift-Sets/dp/B0BJ2KJGS7/?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Kolewo4ever-Nurse-Appreciation-Gift-Sets/dp/B0BJ2KJGS7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kolewo4ever-Nurse-Appreciation-Gift-Sets/dp/B0BJ2KJGS7/?ie=UTF8&tag=giftable02-20)
 
 Want to give the nurse in your life a truly meaningful present? The Kolewo4ever Nurse Appreciation Gift Sets are sure to impress.
 
@@ -35,7 +33,7 @@ The Sets Nurse Gift Box isn't just beautiful; it's also full of practical functi
 
 ✔️ Sturdy construction ensures longevity and durability
 
-[Buy from Amazon](https://www.amazon.com/Kolewo4ever-Nurse-Appreciation-Gift-Sets/dp/B0BJ2KJGS7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kolewo4ever-Nurse-Appreciation-Gift-Sets/dp/B0BJ2KJGS7/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Lister Bangade Scissor](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.amazon.com/SURGICAL-ONLINE-Pcs-Set-Razor-Sharp/dp/B075X16HX5/)
 
@@ -55,9 +53,9 @@ The Lister Bangade Scissor Set has razor-sharp blades that snip through hair eff
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.amazon.com/SURGICAL-ONLINE-Pcs-Set-Razor-Sharp/dp/B075X16HX5/)
 
-### [3\. Cute Thank You Card](https://www.amazon.com/Midwife-Delivery-Doctor-Appreciation-Helping/dp/B0B1F7JLFY/r?th=1?ie=UTF8&tag=avadalove-20) 
+### [3\. Cute Thank You Card](https://www.amazon.com/Midwife-Delivery-Doctor-Appreciation-Helping/dp/B0B1F7JLFY/r?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Midwife-Delivery-Doctor-Appreciation-Helping/dp/B0B1F7JLFY/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Midwife-Delivery-Doctor-Appreciation-Helping/dp/B0B1F7JLFY/r?th=1?ie=UTF8&tag=giftable02-20)
 
 Are you struggling to find the perfect way to express gratitude to your medical professional? The Midwife Delivery Doctor Appreciation Helping Hands Craft Gift offers an ideal solution.
 
@@ -71,11 +69,11 @@ This gift package is ideally proportioned at 10 by 7 inches to hold all included
 
 ✔️ High-quality materials used
 
-[Buy from Amazon](https://www.amazon.com/Midwife-Delivery-Doctor-Appreciation-Helping/dp/B0B1F7JLFY/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Midwife-Delivery-Doctor-Appreciation-Helping/dp/B0B1F7JLFY/r?th=1?ie=UTF8&tag=giftable02-20)
 
-### [4\. Clinical Tote Bag](https://www.amazon.com/Fasrom-Compartment-Clinical-Nursing-Students/dp/B0B69DX79R/?th=1?ie=UTF8&tag=avadalove-20) 
+### [4\. Clinical Tote Bag](https://www.amazon.com/Fasrom-Compartment-Clinical-Nursing-Students/dp/B0B69DX79R/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Fasrom-Compartment-Clinical-Nursing-Students/dp/B0B69DX79R/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fasrom-Compartment-Clinical-Nursing-Students/dp/B0B69DX79R/?th=1?ie=UTF8&tag=giftable02-20)
 
 Fed up with the never-ending search for a bag that flawlessly combines style and functionality for your clinical essentials? Introducing the Fasrom Clinical Tote Bag – a true marvel that will make you wonder why it took so long to find this gem!
 
@@ -89,7 +87,7 @@ The Fasrom Clinical **[Tote Bag](/personalized-tote-bags/)** provides enough roo
 
 ✔️ Effortless organization with multiple compartments and pockets
 
-[Buy from Amazon](https://www.amazon.com/Fasrom-Compartment-Clinical-Nursing-Students/dp/B0B69DX79R/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fasrom-Compartment-Clinical-Nursing-Students/dp/B0B69DX79R/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Medical Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1467821255/nurse-purse-labor-and-delivery-nurse) 
 
@@ -127,9 +125,9 @@ This Wooden Plaque, handcrafted with precision and care, contains a personalized
 
 [Buy from Loveable](https://loveable.ai/products/nurse-just-another-word-to-describe-a-person-strong-enough-to-tolerate-everything-wooden-plaque-custom-name-personalized-gift-for-nurses-christmas-gift-for-nurse-bestie-nursing-gifts-211icnnpwp290?&variant=44159359484136?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-gifts-for-labor-and-delivery-nurses-that-theyll-love)
 
-### [7\. Card Holders](https://www.amazon.com/Pieces-Humans-Retractable-Holders-Pediatric/dp/B094Q5MKDC/?ie=UTF8&tag=avadalove-20) 
+### [7\. Card Holders](https://www.amazon.com/Pieces-Humans-Retractable-Holders-Pediatric/dp/B094Q5MKDC/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Pieces-Humans-Retractable-Holders-Pediatric/dp/B094Q5MKDC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pieces-Humans-Retractable-Holders-Pediatric/dp/B094Q5MKDC/?ie=UTF8&tag=giftable02-20)
 
 Searching for a fun and playful ways to add personality to your work attire? Try out the Pieces for Humans Retractable Badge Card Holders.
 
@@ -143,7 +141,7 @@ These badge holders, measuring 2.5 inches in diameter, are precisely proportione
 
 ✔️ Compact and lightweight for easy transport
 
-[Buy from Amazon](https://www.amazon.com/Pieces-Humans-Retractable-Holders-Pediatric/dp/B094Q5MKDC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pieces-Humans-Retractable-Holders-Pediatric/dp/B094Q5MKDC/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Nurse Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1402990153/ld-nurse-sweatshirt-labor-and-delivery)
 
@@ -163,9 +161,9 @@ This LD Nurse Sweatshirt is made of high-quality fabrics and provides warmth and
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1402990153/ld-nurse-sweatshirt-labor-and-delivery)
 
-### [9\. Greeting Card](https://www.amazon.com/Appreciation-Survival-Blessing-Bracelet-Greeting/dp/B09DWXBK8H/?ie=UTF8&tag=avadalove-20) 
+### [9\. Greeting Card](https://www.amazon.com/Appreciation-Survival-Blessing-Bracelet-Greeting/dp/B09DWXBK8H/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Appreciation-Survival-Blessing-Bracelet-Greeting/dp/B09DWXBK8H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Survival-Blessing-Bracelet-Greeting/dp/B09DWXBK8H/?ie=UTF8&tag=giftable02-20)
 
 Consider the Appreciation Survival Blessing Bracelet Greeting Card if you're looking for a memorable and heartfelt way to convey your gratitude.
 
@@ -179,7 +177,7 @@ The bracelet comprises hypoallergenic materials and is adjustable to accommodate
 
 ✔️ Made from hypoallergenic materials
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Survival-Blessing-Bracelet-Greeting/dp/B09DWXBK8H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Survival-Blessing-Bracelet-Greeting/dp/B09DWXBK8H/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Nurse Jar Tracker](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1196092822/nurse-jar-personalized-gift-labor-and)
 
@@ -217,9 +215,9 @@ This ornament is not only a terrific present, but it also has some outstanding q
 
 [Buy from Loveable](https://loveable.ai/products/nurse-uniform-personalized-name-custom-nickname-shape-acrylic-ornament-best-christmas-gift-for-nurse-bestie-bff-xmas-tree-hanging-for-coworker-mentor-thank-you-gift-for-nurses?variant=44144033857768?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-gifts-for-labor-and-delivery-nurses-that-theyll-love)
 
-### [12\. Delivery Nurse Throw Pillow](https://www.amazon.com/Labor-Delivery-Nurse-Gifts-Week/dp/B0BGJ9N11P/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Delivery Nurse Throw Pillow](https://www.amazon.com/Labor-Delivery-Nurse-Gifts-Week/dp/B0BGJ9N11P/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Labor-Delivery-Nurse-Gifts-Week/dp/B0BGJ9N11P/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Labor-Delivery-Nurse-Gifts-Week/dp/B0BGJ9N11P/?th=1?ie=UTF8&tag=giftable02-20)
 
 Seeking the ideal token of gratitude for the fantastic delivery nurses in your life? Look no further! Presenting the captivating Delivery Nurse Throw Pillow, a delightful surprise meticulously crafted to bring joy and comfort to these exceptional healthcare heroes.
 
@@ -233,11 +231,11 @@ This plush cushion, measuring 18x18 inches, is the ideal combination of softness
 
 ✔️ Premium fabric and hypoallergenic filling for ultimate relaxation
 
-[Buy from Amazon](https://www.amazon.com/Labor-Delivery-Nurse-Gifts-Week/dp/B0BGJ9N11P/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Labor-Delivery-Nurse-Gifts-Week/dp/B0BGJ9N11P/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Nurses Mug](https://www.amazon.com/YouNique-Designs-Delivery-Nurses-Nursing/dp/B09574TWFH/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Nurses Mug](https://www.amazon.com/YouNique-Designs-Delivery-Nurses-Nursing/dp/B09574TWFH/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YouNique-Designs-Delivery-Nurses-Nursing/dp/B09574TWFH/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YouNique-Designs-Delivery-Nurses-Nursing/dp/B09574TWFH/?th=1?ie=UTF8&tag=giftable02-20)
 
 Want to give a meaningful and practical gift to a special nurse in your life? The YouNique Designs Nurses Mug is an ideal choice.
 
@@ -251,7 +249,7 @@ This eye-catching mug has a fun design that is guaranteed to put a smile on any 
 
 ✔️ Microwave and dishwasher safe for easy cleaning
 
-[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Delivery-Nurses-Nursing/dp/B09574TWFH/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Delivery-Nurses-Nursing/dp/B09574TWFH/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Baby Feet Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/718436475/personalized-nursedoctor-heart)
 
@@ -271,9 +269,9 @@ This fantastic bag spans 12x16 inches and has plenty of room to contain your bab
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/718436475/personalized-nursedoctor-heart)
 
-### [15\. Nurse Badge Holder](https://www.amazon.com/Onesie-Badge-Delivery-Holder-Doctor/dp/B08Z2TWQQP/?ie=UTF8&tag=avadalove-20)
+### [15\. Nurse Badge Holder](https://www.amazon.com/Onesie-Badge-Delivery-Holder-Doctor/dp/B08Z2TWQQP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Onesie-Badge-Delivery-Holder-Doctor/dp/B08Z2TWQQP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Onesie-Badge-Delivery-Holder-Doctor/dp/B08Z2TWQQP/?ie=UTF8&tag=giftable02-20)
 
 If you're searching for a stylish and reliable accessory to hold your nurse badge, the Onesie Nurse Badge Holder is a must-see.
 
@@ -287,11 +285,11 @@ This one-of-a-kind badge holder is styled after a onesie, with playful elements 
 
 ✔️ Unique and playful design
 
-[Buy from Amazon](https://www.amazon.com/Onesie-Badge-Delivery-Holder-Doctor/dp/B08Z2TWQQP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Onesie-Badge-Delivery-Holder-Doctor/dp/B08Z2TWQQP/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Nurse Gifts Bulk](https://www.amazon.com/GUMAC-Nurse-Gifts-Women-Accessories/dp/B09TB1KGXC/?th=1?ie=UTF8&tag=avadalove-20) 
+### [16\. Nurse Gifts Bulk](https://www.amazon.com/GUMAC-Nurse-Gifts-Women-Accessories/dp/B09TB1KGXC/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/GUMAC-Nurse-Gifts-Women-Accessories/dp/B09TB1KGXC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GUMAC-Nurse-Gifts-Women-Accessories/dp/B09TB1KGXC/?th=1?ie=UTF8&tag=giftable02-20)
 
 Seeking the perfect gesture of appreciation for the remarkable nurses in your life? Introducing the captivating Nurse Gifts Bulk, a delightful bundle that brings joy and heartfelt gratitude to these exceptional healthcare professionals.
 
@@ -305,7 +303,7 @@ A beautiful keychain, a heart-shaped badge reel, a delightful pen, and a trendy 
 
 ✔️ Perfectly sized to fit comfortably in pockets or bags
 
-[Buy from Amazon](https://www.amazon.com/GUMAC-Nurse-Gifts-Women-Accessories/dp/B09TB1KGXC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GUMAC-Nurse-Gifts-Women-Accessories/dp/B09TB1KGXC/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Personalized Midwife Journal](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1159907286/personalized-midwife-journal-labor-and)
 
@@ -325,9 +323,9 @@ This lovely and one-of-a-kind diary is personalized with the midwife's name, mak
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1159907286/personalized-midwife-journal-labor-and)
 
-### [18\. Hand-Poured Soy Candle](https://www.amazon.com/Hand-Poured-Soy-Candle-9oz-Veterinarians/dp/B0BQRLSWGB/?ie=UTF8&tag=avadalove-20)
+### [18\. Hand-Poured Soy Candle](https://www.amazon.com/Hand-Poured-Soy-Candle-9oz-Veterinarians/dp/B0BQRLSWGB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hand-Poured-Soy-Candle-9oz-Veterinarians/dp/B0BQRLSWGB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hand-Poured-Soy-Candle-9oz-Veterinarians/dp/B0BQRLSWGB/?ie=UTF8&tag=giftable02-20)
 
 Are you looking for a special treasure to evoke a sense of tranquility in your space? Your quest is over! Behold the captivating Hand-Poured Soy Candle, a delightful addition that will immerse your surroundings in a warm and serene glow.
 
@@ -341,7 +339,7 @@ This large candle has a 9oz capacity and will burn for hours for your delight. I
 
 ✔️ Made from high-quality soy wax for a clean and long-lasting burn
 
-[Buy from Amazon](https://www.amazon.com/Hand-Poured-Soy-Candle-9oz-Veterinarians/dp/B0BQRLSWGB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hand-Poured-Soy-Candle-9oz-Veterinarians/dp/B0BQRLSWGB/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Cervical Dilation Beads](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1411502194/pink-obsessed-cervical-dilation-beads)
 
@@ -361,9 +359,9 @@ Each bead symbolizes one centimeter of dilation and may be adjusted along the co
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1411502194/pink-obsessed-cervical-dilation-beads)
 
-### [20\. Full Coverage in The Back](https://www.amazon.com/Delivery-Easy-Snap-Tagless-Nursing-Coverage/dp/B07TFBLWCT/?ie=UTF8&tag=avadalove-20)
+### [20\. Full Coverage in The Back](https://www.amazon.com/Delivery-Easy-Snap-Tagless-Nursing-Coverage/dp/B07TFBLWCT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Delivery-Easy-Snap-Tagless-Nursing-Coverage/dp/B07TFBLWCT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Delivery-Easy-Snap-Tagless-Nursing-Coverage/dp/B07TFBLWCT/?ie=UTF8&tag=giftable02-20)
 
 Experience nursing like never before with the Delivery Easy Snap Nursing Cover. This innovative product provides full coverage while offering a stylish and practical solution for nursing moms.
 
@@ -377,11 +375,11 @@ The soft and breathable fabric provides maximum comfort for both mother and chil
 
 ✔️ Soft and breathable fabric for optimal comfort
 
-[Buy from Amazon](https://www.amazon.com/Delivery-Easy-Snap-Tagless-Nursing-Coverage/dp/B07TFBLWCT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Delivery-Easy-Snap-Tagless-Nursing-Coverage/dp/B07TFBLWCT/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Snacks Box Variety Pack](https://www.amazon.com/CRAVEBOX-Variety-Valentines-Chocolate-Arrangement/dp/B01N22CM3F/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Snacks Box Variety Pack](https://www.amazon.com/CRAVEBOX-Variety-Valentines-Chocolate-Arrangement/dp/B01N22CM3F/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CRAVEBOX-Variety-Valentines-Chocolate-Arrangement/dp/B01N22CM3F/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CRAVEBOX-Variety-Valentines-Chocolate-Arrangement/dp/B01N22CM3F/?th=1?ie=UTF8&tag=giftable02-20)
 
 Need a snack that can keep up with your mood swings? The Snacks Box Variety Pack by CRAVEBOX offers a delicious selection of both sweet and savory treats, making it a great choice for anyone looking to indulge in some seriously satisfying snacking.
 
@@ -395,7 +393,7 @@ This wonderful stethoscope charm has a creative construction that allows it to a
 
 ✔️ Offers unbeatable value with 50 individual snacks in each box
 
-[Buy from Amazon](https://www.amazon.com/CRAVEBOX-Variety-Valentines-Chocolate-Arrangement/dp/B01N22CM3F/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CRAVEBOX-Variety-Valentines-Chocolate-Arrangement/dp/B01N22CM3F/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Stethoscope Charm](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1111542784/stethoscope-charm-stethoscope-tag)
 
@@ -415,9 +413,9 @@ This wonderful stethoscope charm has a creative construction that allows it to a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1111542784/stethoscope-charm-stethoscope-tag)
 
-### [23\. Multicolor Ballpoint Pen](https://www.amazon.com/COLNK-Multicolor-Ballpoint-Journaling-Assorted/dp/B08NHYS79B/?ie=UTF8&tag=avadalove-20)
+### [23\. Multicolor Ballpoint Pen](https://www.amazon.com/COLNK-Multicolor-Ballpoint-Journaling-Assorted/dp/B08NHYS79B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/COLNK-Multicolor-Ballpoint-Journaling-Assorted/dp/B08NHYS79B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/COLNK-Multicolor-Ballpoint-Journaling-Assorted/dp/B08NHYS79B/?ie=UTF8&tag=giftable02-20)
 
 Want to spice up your writing with some color? The Multicolor Ballpoint Pen has got you covered! With its wide variety of hues and smooth ink flow, this set is perfect for any writing endeavor.
 
@@ -431,7 +429,7 @@ To begin with, they're pretty flexible, suitable for everything from bullet jour
 
 ✔️ Smooth ink flow and comfortable grip for a pleasurable writing experience.
 
-[Buy from Amazon](https://www.amazon.com/COLNK-Multicolor-Ballpoint-Journaling-Assorted/dp/B08NHYS79B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/COLNK-Multicolor-Ballpoint-Journaling-Assorted/dp/B08NHYS79B/?ie=UTF8&tag=giftable02-20)
 
 ### [24\.  Headband With Button](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1226698397/l-d-babies-footprints-headband-with)
 
@@ -469,9 +467,9 @@ It's crafted by hand with love and attention to detail. Its exquisite pattern in
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1387639346/cervical-dilation-hanging-mandala)
 
-### [26\. Nurse Stickers](https://www.amazon.com/Stickers-Hospital-Waterproof-Skateboard-Computer/dp/B091JNGF7P/?ie=UTF8&tag=avadalove-20)
+### [26\. Nurse Stickers](https://www.amazon.com/Stickers-Hospital-Waterproof-Skateboard-Computer/dp/B091JNGF7P/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stickers-Hospital-Waterproof-Skateboard-Computer/dp/B091JNGF7P/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stickers-Hospital-Waterproof-Skateboard-Computer/dp/B091JNGF7P/?ie=UTF8&tag=giftable02-20)
 
 Elevate your belongings with a touch of personality using the captivating Nurse Stickers! These **[delightful stickers](/personalized-stickers/)** are designed to catch your eye and ignite curiosity, making them the perfect addition to your collection.
 
@@ -485,11 +483,11 @@ These Nurse Stickers are proportioned to suit a variety of surfaces, including c
 
 ✔️ Vibrant colors and intricate designs that catch the eye.
 
-[Buy from Amazon](https://www.amazon.com/Stickers-Hospital-Waterproof-Skateboard-Computer/dp/B091JNGF7P/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stickers-Hospital-Waterproof-Skateboard-Computer/dp/B091JNGF7P/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Relaxation Birthday Gifts](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Relaxation Birthday Gifts](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?th=1?ie=UTF8&tag=giftable02-20)
 
 Need a way to de-stress and relax? The Bedtime Essential Oil Shower Steamer has got you covered!
 
@@ -503,7 +501,7 @@ It comes in six steamers, each delivering up to 15 minutes of relaxation. The ha
 
 ✔️ Releases calming aromas into the shower for a peaceful experience.
 
-[Buy from Amazon](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Nurse Bangle Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1260978665/labor-and-delivery-nurse-wristlet-labor)
 
@@ -523,9 +521,9 @@ The gorgeous workmanship and nurse-inspired charms make it a charming accessory 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1260978665/labor-and-delivery-nurse-wristlet-labor)
 
-### [29\. Keyring Encouragement Gift](https://www.amazon.com/Registered-Graduation-Keychain-Inspirational-Encouragement/dp/B09J2D3WQX/?ie=UTF8&tag=avadalove-20)
+### [29\. Keyring Encouragement Gift](https://www.amazon.com/Registered-Graduation-Keychain-Inspirational-Encouragement/dp/B09J2D3WQX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Registered-Graduation-Keychain-Inspirational-Encouragement/dp/B09J2D3WQX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Registered-Graduation-Keychain-Inspirational-Encouragement/dp/B09J2D3WQX/?ie=UTF8&tag=giftable02-20)
 
 Do you want to offer some encouragement to a loved one who has accomplished something amazing? Give them the Registered Nurse Graduation Keychain!
 
@@ -539,11 +537,11 @@ This high-quality keychain has a diameter of around 2 inches, giving it the idea
 
 ✔️ Made with high-quality materials for durability.
 
-[Buy from Amazon](https://www.amazon.com/Registered-Graduation-Keychain-Inspirational-Encouragement/dp/B09J2D3WQX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Registered-Graduation-Keychain-Inspirational-Encouragement/dp/B09J2D3WQX/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Mixed Nuts with Sea Salt](https://www.amazon.com/Planters-Deluxe-Mixed-Nuts-27/dp/B078J62RYJ/?ie=UTF8&tag=avadalove-20)
+### [30\. Mixed Nuts with Sea Salt](https://www.amazon.com/Planters-Deluxe-Mixed-Nuts-27/dp/B078J62RYJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Planters-Deluxe-Mixed-Nuts-27/dp/B078J62RYJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Planters-Deluxe-Mixed-Nuts-27/dp/B078J62RYJ/?ie=UTF8&tag=giftable02-20)
 
 Are you craving a delicious and satisfying snack that combines the perfect flavors? So get this Mixed Nuts with Sea Salt!
 
@@ -557,7 +555,7 @@ This pack is ideal for sharing at parties, eating on the move, or indulging in a
 
 ✔️ Resealable packaging to maintain freshness for longer-lasting enjoyment.
 
-[Buy from Amazon](https://www.amazon.com/Planters-Deluxe-Mixed-Nuts-27/dp/B078J62RYJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Planters-Deluxe-Mixed-Nuts-27/dp/B078J62RYJ/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Labor And Delivery Nurse Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1418222338/labor-and-delivery-nurse-shirt-birthdays)
 
@@ -577,9 +575,9 @@ This shirt is made of high-quality fabrics and is both comfortable and fashionab
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1418222338/labor-and-delivery-nurse-shirt-birthdays)
 
-### [32\. Mugs-Glasses](https://www.amazon.com/GIFTAGIRL-Funny-Nurse-Nursing-Student/dp/B08DR8TRS7/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Mugs-Glasses](https://www.amazon.com/GIFTAGIRL-Funny-Nurse-Nursing-Student/dp/B08DR8TRS7/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GIFTAGIRL-Funny-Nurse-Nursing-Student/dp/B08DR8TRS7/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GIFTAGIRL-Funny-Nurse-Nursing-Student/dp/B08DR8TRS7/?th=1?ie=UTF8&tag=giftable02-20)
 
 Inject a dose of laughter into your daily routine with the hilarious Funny Nurse Mug-Glass combo! So sip on your favorite drink and let this one-of-a-kind product put a smile on your face.
 
@@ -593,7 +591,7 @@ This mug-glass combo is 4.7 inches tall and holds 11 ounces. It has a robust han
 
 ✔️ Whimsical and witty design adds a playful touch to your daily routine
 
-[Buy from Amazon](https://www.amazon.com/GIFTAGIRL-Funny-Nurse-Nursing-Student/dp/B08DR8TRS7/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GIFTAGIRL-Funny-Nurse-Nursing-Student/dp/B08DR8TRS7/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Postpartum Reference Badges](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1406124916/labor-delivery-postpartum-reference)
 
@@ -631,9 +629,9 @@ These earrings, which are roughly 0.6 inches long and 0.4 inches wide, achieve t
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1390804698/baby-feet-earrings-hypoallergenic)
 
-### [35\. Nurse Keychain](https://www.amazon.com/Practitioner-Assistant-Graduation-Appreciation-Thanksgiving/dp/B0BLGWPQRX/?ie=UTF8&tag=avadalove-20)
+### [35\. Nurse Keychain](https://www.amazon.com/Practitioner-Assistant-Graduation-Appreciation-Thanksgiving/dp/B0BLGWPQRX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Practitioner-Assistant-Graduation-Appreciation-Thanksgiving/dp/B0BLGWPQRX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Practitioner-Assistant-Graduation-Appreciation-Thanksgiving/dp/B0BLGWPQRX/?ie=UTF8&tag=giftable02-20)
 
 Seeking a thoughtful way to express your admiration for nurses? Discover the charm of this captivating Nurse Keychain!
 
@@ -647,4 +645,4 @@ This Nurse Keychain is carefully crafted from metal and is around 2.5 inches lon
 
 ✔️ Perfect gift for nurses, nursing assistants, and nursing graduates
 
-[Buy from Amazon](https://www.amazon.com/Practitioner-Assistant-Graduation-Appreciation-Thanksgiving/dp/B0BLGWPQRX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Practitioner-Assistant-Graduation-Appreciation-Thanksgiving/dp/B0BLGWPQRX/?ie=UTF8&tag=giftable02-20)

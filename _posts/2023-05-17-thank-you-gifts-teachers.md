@@ -35,9 +35,9 @@ But what makes this product unique? The Puzzle Acrylic Plaque is not only visual
 
 [Buy from Loveable](https://loveable.ai/products/puzzle-never-forget-that-you-are-the-piece-that-made-the-difference-wood-and-acrylic-plaque-best-gift-for-mentor-professor-teacher-boss-coworker-inspirational-quotes-retirement-gift-211icnlnwp237?variant=44115098271976?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [2\. Plaque Signs with Wooden Stand](https://www.amazon.com/Teacher-Appreciation-Plaque-Wooden-Students/dp/B0BZYZQFSN/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Plaque Signs with Wooden Stand](https://www.amazon.com/Teacher-Appreciation-Plaque-Wooden-Students/dp/B0BZYZQFSN/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Teacher-Appreciation-Plaque-Wooden-Students/dp/B0BZYZQFSN/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Teacher-Appreciation-Plaque-Wooden-Students/dp/B0BZYZQFSN/?th=1?ie=UTF8&tag=giftable02-20)
 
 Want to convey your appreciation to an extraordinary teacher with a gift that stands out? Then, explore the remarkable "Plaque Signs with Wooden Stand." This superbly crafted plaque will likely pique the interest and admiration of teachers and pupils.
 
@@ -51,7 +51,7 @@ This plaque, with its exquisite oak stand and finely created design, is an ideal
 
 ✔️ Comes with a sturdy wooden stand for easy display
 
-[Buy from Amazon](https://www.amazon.com/Teacher-Appreciation-Plaque-Wooden-Students/dp/B0BZYZQFSN/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Teacher-Appreciation-Plaque-Wooden-Students/dp/B0BZYZQFSN/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Puzzle Never Forget Acrylic Plaque](https://loveable.ai/products/puzzle-never-forget-that-you-are-the-piece-that-made-the-difference-puzzle-acrylic-plaque-personalized-name-officehome-decor-thank-you-gift-for-mentor-boss-principal-teacher-retirement-gift-303icnlnap364?variant=44376867700968?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
@@ -179,9 +179,9 @@ This card, measuring 5 x 7 inches, is ideal for highlighting the butterfly arran
 
 [Buy from Lovepop](https://www.lovepop.com/products/butterfly-bouquet?variant=39286248669257)
 
-### [10\. Amazon Gift Card](https://www.amazon.com/Amazon-com-Gift-Card-Flower-Reveal/dp/B01IE42ST4/?ie=UTF8&tag=avadalove-20)
+### [10\. Amazon Gift Card](https://www.amazon.com/Amazon-com-Gift-Card-Flower-Reveal/dp/B01IE42ST4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Gift-Card-Flower-Reveal/dp/B01IE42ST4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Gift-Card-Flower-Reveal/dp/B01IE42ST4/?ie=UTF8&tag=giftable02-20)
 
 Searching for a delightful and versatile gift that allows your loved ones to select their presents? Discover the enchanting "Gift Card." This unique product combines the thrill of getting a beautifully crafted card with the option to choose what they want.
 
@@ -195,7 +195,7 @@ This unique "Gift Card" arrives in a stunningly designed box, ready to dazzle. W
 
 ✔️ Beautifully designed packaging adds a touch of elegance
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Flower-Reveal/dp/B01IE42ST4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Flower-Reveal/dp/B01IE42ST4/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Round Wooden Sign](https://loveable.ai/products/welcome-classroom-personalized-teachers-name-custom-nickname-round-wooden-sign-birthday-gift-for-teacher-thank-you-gifts-302icnlnrw165?variant=44292593254632?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
@@ -215,9 +215,9 @@ This sign is crafted of high-quality materials and is 12 inches in diameter. It 
 
 [Buy from Loveable](https://loveable.ai/products/welcome-classroom-personalized-teachers-name-custom-nickname-round-wooden-sign-birthday-gift-for-teacher-thank-you-gifts-302icnlnrw165?variant=44292593254632?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [12\. Stainless Steel Insulated Travel Tumbler](https://www.amazon.com/Gtmileo-Stainless-Insulated-Appreciation-Christmas/dp/B09TZWN6F5/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Stainless Steel Insulated Travel Tumbler](https://www.amazon.com/Gtmileo-Stainless-Insulated-Appreciation-Christmas/dp/B09TZWN6F5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gtmileo-Stainless-Insulated-Appreciation-Christmas/dp/B09TZWN6F5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gtmileo-Stainless-Insulated-Appreciation-Christmas/dp/B09TZWN6F5/?th=1?ie=UTF8&tag=giftable02-20)
 
 Craving a beverage that stays hot or cold for hours? The answer lies in the "Stainless Steel Insulated Travel Tumbler" - the ultimate temperature-retaining solution.
 
@@ -231,7 +231,7 @@ This portable tumbler's eye-catching design and robust stainless steel construct
 
 ✔️ Airtight lid prevents spills and leaks
 
-[Buy from Amazon](https://www.amazon.com/Gtmileo-Stainless-Insulated-Appreciation-Christmas/dp/B09TZWN6F5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gtmileo-Stainless-Insulated-Appreciation-Christmas/dp/B09TZWN6F5/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Principal Teacher Mentor Professor Shirt](https://loveable.ai/products/principal-teacher-mentor-professor-shirt-vintage-leopard-style-personalized-name-custom-job-title-unisex-t-shirt-for-men-women-birthday-thank-you-gift-team-outfit-for-coworker-work-bestie-304icntlts497?&variant=44433668800744?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
@@ -287,9 +287,9 @@ This canvas boasts a high-quality print on a 100% cotton canvas, ensuring that e
 
 [Buy from Loveable](https://loveable.ai/products/a-truly-great-principal-is-hard-to-find-thank-you-personalized-upload-photo-canvasposter-best-gift-for-boss-for-teacherprincipalprofessor-anniversary-212icnvsca406?variant=44186560823528?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [16\. Teacher Bracelets Gifts](https://www.amazon.com/Teacher-Appreciation-Bracelets-Bracelet-Graduation/dp/B09XL9L6V5/?ie=UTF8&tag=avadalove-20)
+### [16\. Teacher Bracelets Gifts](https://www.amazon.com/Teacher-Appreciation-Bracelets-Bracelet-Graduation/dp/B09XL9L6V5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Teacher-Appreciation-Bracelets-Bracelet-Graduation/dp/B09XL9L6V5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Teacher-Appreciation-Bracelets-Bracelet-Graduation/dp/B09XL9L6V5/?ie=UTF8&tag=giftable02-20)
 
 Want to honor the impact of an incredible teacher? Then, embrace the elegance of "Teacher Bracelets Gifts."
 
@@ -303,11 +303,11 @@ The "Teacher Bracelets Gifts" include a delicate and adjustable chain with a stu
 
 ✔️ Represents the significant role of teachers in shaping lives
 
-[Buy from Amazon](https://www.amazon.com/Teacher-Appreciation-Bracelets-Bracelet-Graduation/dp/B09XL9L6V5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Teacher-Appreciation-Bracelets-Bracelet-Graduation/dp/B09XL9L6V5/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Leather Journal](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=avadalove-20)
+### [17\. Leather Journal](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=giftable02-20)
 
 Keep track of your thoughts and ideas with this high-quality leather journal, both functional and fashionable.
 
@@ -321,7 +321,7 @@ But what distinguishes this leather diary from the rest? To begin, it has a one-
 
 ✔️ Inspirational quote on cover adds a unique and uplifting touch
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Ceramic Mug](https://loveable.ai/products/custom-teacher-face-accent-mug-personzlied-name-photo-ceramic-mug-thank-you-gift-for-teacher-from-student-for-teacher-bestie-212icnnpmu432?&variant=44199112802536?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude) 
 
@@ -341,9 +341,9 @@ The Ceramic Mug's customizable design allows you to add a personal touch by inse
 
 [Buy from Loveable](https://loveable.ai/products/custom-teacher-face-accent-mug-personzlied-name-photo-ceramic-mug-thank-you-gift-for-teacher-from-student-for-teacher-bestie-212icnnpmu432?&variant=44199112802536?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [19\. Inspirational Keychains Bulk](https://www.amazon.com/Inspirational-Keychains-Motivational-Appreciation-Volunteer/dp/B0B9NN2RZR/?ie=UTF8&tag=avadalove-20)
+### [19\. Inspirational Keychains Bulk](https://www.amazon.com/Inspirational-Keychains-Motivational-Appreciation-Volunteer/dp/B0B9NN2RZR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspirational-Keychains-Motivational-Appreciation-Volunteer/dp/B0B9NN2RZR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspirational-Keychains-Motivational-Appreciation-Volunteer/dp/B0B9NN2RZR/?ie=UTF8&tag=giftable02-20)
 
 Need a daily reminder of strength and positivity? Embrace the inspiration of this "Inspirational Keychains Bulk."
 
@@ -357,11 +357,11 @@ Each keychain includes a unique motivational statement to bring happiness and in
 
 ✔️ Thoughtful and meaningful gift option for loved ones
 
-[Buy from Amazon](https://www.amazon.com/Inspirational-Keychains-Motivational-Appreciation-Volunteer/dp/B0B9NN2RZR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspirational-Keychains-Motivational-Appreciation-Volunteer/dp/B0B9NN2RZR/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Wooden Planter](https://www.amazon.com/Maitys-Teacher-Appreciation-Employee-Teachers/dp/B0BXDPBW8Z/?ie=UTF8&tag=avadalove-20)
+### [20\. Wooden Planter](https://www.amazon.com/Maitys-Teacher-Appreciation-Employee-Teachers/dp/B0BXDPBW8Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Maitys-Teacher-Appreciation-Employee-Teachers/dp/B0BXDPBW8Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Maitys-Teacher-Appreciation-Employee-Teachers/dp/B0BXDPBW8Z/?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a unique way to add natural charm to your home or office, look no further than the Maitys Wooden Planter.
 
@@ -375,7 +375,7 @@ This planter is perfect for any plant enthusiast, measuring 7.1 x 5.5 x 2.8 inch
 
 ✔️ Sleek and modern design
 
-[Buy from Amazon](https://www.amazon.com/Maitys-Teacher-Appreciation-Employee-Teachers/dp/B0BXDPBW8Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Maitys-Teacher-Appreciation-Employee-Teachers/dp/B0BXDPBW8Z/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Thank You Gift for Mentor Teacher Professor Pillow](https://loveable.ai/products/thank-you-gift-for-mentor-teacher-professor-mentor-devoted-amazing-special-helpful-intelligent-wonderful-personalized-sender-receivers-name-custom-year-pillow-bedding-decor-302icnvspi162?variant=44292336812264?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
@@ -395,9 +395,9 @@ This cushion, however, is more than simply an emotional present. It's also made 
 
 [Buy from Loveable](https://loveable.ai/products/thank-you-gift-for-mentor-teacher-professor-mentor-devoted-amazing-special-helpful-intelligent-wonderful-personalized-sender-receivers-name-custom-year-pillow-bedding-decor-302icnvspi162?variant=44292336812264?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [22\. Cookies Gift Box](https://www.amazon.com/Cookies-Gift-Box-Employee-Apprectiaction/dp/B0BX8W2CBV/?ie=UTF8&tag=avadalove-20) 
+### [22\. Cookies Gift Box](https://www.amazon.com/Cookies-Gift-Box-Employee-Apprectiaction/dp/B0BX8W2CBV/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Cookies-Gift-Box-Employee-Apprectiaction/dp/B0BX8W2CBV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cookies-Gift-Box-Employee-Apprectiaction/dp/B0BX8W2CBV/?ie=UTF8&tag=giftable02-20)
 
 Treat yourself to a heavenly experience with the mouthwatering "Cookies Gift Box" that will transport your taste buds to a world of pure delight.
 
@@ -411,7 +411,7 @@ This gift box is perfect for friends, family, or coworkers due to its ample size
 
 ✔️ Freshly baked cookies for an exceptional taste experience
 
-[Buy from Amazon](https://www.amazon.com/Cookies-Gift-Box-Employee-Apprectiaction/dp/B0BX8W2CBV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cookies-Gift-Box-Employee-Apprectiaction/dp/B0BX8W2CBV/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Heart Card](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430834308/end-of-year-teacher-gift-knot-bangle)
 
@@ -521,9 +521,9 @@ This lovely item has a carved hardwood foundation with a heartfelt phrase inscri
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1149441242/never-forget-the-difference-you-make)
 
-### [29\. Wooden Keychain](https://www.amazon.com/Fumete-Employee-Appreciation-Inspirational-Volunteer/dp/B0BLHNDQVB/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Wooden Keychain](https://www.amazon.com/Fumete-Employee-Appreciation-Inspirational-Volunteer/dp/B0BLHNDQVB/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fumete-Employee-Appreciation-Inspirational-Volunteer/dp/B0BLHNDQVB/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fumete-Employee-Appreciation-Inspirational-Volunteer/dp/B0BLHNDQVB/?th=1?ie=UTF8&tag=giftable02-20)
 
 Step up your style game with the elegant "Wooden Keychain," a must-have accessory that combines functionality and fashion effortlessly.
 
@@ -537,11 +537,11 @@ The sturdy metal keychain of the Wooden Keychain firmly holds your keys in place
 
 ✔️ Secure metal keyring ensures your keys stay in place
 
-[Buy from Amazon](https://www.amazon.com/Fumete-Employee-Appreciation-Inspirational-Volunteer/dp/B0BLHNDQVB/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fumete-Employee-Appreciation-Inspirational-Volunteer/dp/B0BLHNDQVB/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Cotton Canvas with Pocket](https://www.amazon.com/ElegantPark-Teacher-Christmas-Inspire-Appreciation/dp/B08N63N82C/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Cotton Canvas with Pocket](https://www.amazon.com/ElegantPark-Teacher-Christmas-Inspire-Appreciation/dp/B08N63N82C/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ElegantPark-Teacher-Christmas-Inspire-Appreciation/dp/B08N63N82C/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ElegantPark-Teacher-Christmas-Inspire-Appreciation/dp/B08N63N82C/?th=1?ie=UTF8&tag=giftable02-20)
 
 Show your gratitude meaningfully with this stunning apron from ElegantPark - perfect for anyone who values both style and functionality.
 
@@ -555,11 +555,11 @@ This cotton canvas apron, 27 inches long and 23 inches broad, provides sufficien
 
 ✔️ Generously sized pocket for convenient storage
 
-[Buy from Amazon](https://www.amazon.com/ElegantPark-Teacher-Christmas-Inspire-Appreciation/dp/B08N63N82C/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ElegantPark-Teacher-Christmas-Inspire-Appreciation/dp/B08N63N82C/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Engrave Quote Teacher Bracelet](https://www.amazon.com/Teacher-Appreciation-Bracelet-Jewelry-Little/dp/B07YCGPMZW/?th=1?ie=UTF8&tag=avadalove-20) 
+### [31\. Engrave Quote Teacher Bracelet](https://www.amazon.com/Teacher-Appreciation-Bracelet-Jewelry-Little/dp/B07YCGPMZW/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Teacher-Appreciation-Bracelet-Jewelry-Little/dp/B07YCGPMZW/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Teacher-Appreciation-Bracelet-Jewelry-Little/dp/B07YCGPMZW/?th=1?ie=UTF8&tag=giftable02-20)
 
 Delight your favorite teachers with the thoughtful and stylish "Engrave Quote Teacher Bracelet," a gift that will touch their hearts.
 
@@ -573,7 +573,7 @@ The "Engrave Quote Teacher Bracelet" is meticulously crafted and has a wonderful
 
 ✔️ Meaningful quote that celebrates and honors teachers
 
-[Buy from Amazon](https://www.amazon.com/Teacher-Appreciation-Bracelet-Jewelry-Little/dp/B07YCGPMZW/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Teacher-Appreciation-Bracelet-Jewelry-Little/dp/B07YCGPMZW/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Seed Pencil](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1467165289/seed-pencil-thank-you-card-thank-you)
 
@@ -705,9 +705,9 @@ This canvas pairs an empowering message with a stunning design to create a uniqu
 
 [Buy from Loveable](https://loveable.us/products/may-you-be-proud-of-the-work-you-do-personalized-canvas-gift-for-teacher-retirement-308ihpnpca893?variant=44666149929192?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [39\. May You Proud of The Work You Do Sign](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [39\. May You Proud of The Work You Do Sign](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 The May You Proud of The Work You Do Sign serves as an ideal tribute to teachers for their selfless contributions. It effortlessly communicates respect and gratitude towards their endless efforts.
 
@@ -723,7 +723,7 @@ The inspirational message works as a daily reminder for teachers to take pride i
 
 ✔️ Ideal tribute for teachers
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [40\. Last Nerve Oh Look It’s On Fire Candle](https://loveable.us/products/last-nerve-oh-look-its-on-fire-9oz-scented-soy-candle-gift-for-teacher-principal-308ihpnpsc911?variant=44667462058216?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
@@ -745,9 +745,9 @@ This candle offers an impressive burn time that can transform the classroom envi
 
 [Buy from Loveable](https://loveable.us/products/last-nerve-oh-look-its-on-fire-9oz-scented-soy-candle-gift-for-teacher-principal-308ihpnpsc911?variant=44667462058216?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [41\. An Important Part of My Story Wooden Sign](https://www.amazon.com/dp/B0CF29FMW6?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [41\. An Important Part of My Story Wooden Sign](https://www.amazon.com/dp/B0CF29FMW6?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CF29FMW6?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CF29FMW6?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Show your gratitude to your teachers by gifting them this An Important Part of My Story Wooden Sign.
 
@@ -763,11 +763,11 @@ This well-crafted sign, made of durable wood, is a beautiful decoration and an a
 
 ✔️ Gratitude expresser
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CF29FMW6?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CF29FMW6?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [42\. Never Forget the Difference You Make Wooden Block](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [42\. Never Forget the Difference You Make Wooden Block](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)[](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Extol the dedication of your favorite teacher with the Never Forget the Difference You Make Wooden Block. A tangible representation of your appreciation for their commitment and the difference they’ve made.
 
@@ -783,7 +783,7 @@ Made from sturdy wood, this gift incorporates resilience and sentiment - just li
 
 ✔️ Celebrates teaching roles
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CF9WLXZ1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [43\. You Are The Piece Personalized Canvas Poster](https://loveable.us/products/you-are-the-piece-personalized-canvasposter-retirement-gift-308ihplnca403?variant=44698529759464?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
@@ -845,9 +845,9 @@ The mug boasts a creative, Halloween-themed design that adds a touch of festive 
 
 [Buy from Loveable](https://loveable.us/products/thanks-for-being-a-faboolous-teacher-personalized-white-mug-halloween-gift-for-teacher-308ihplnmu963?variant=44698770735336?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 
-### [46\. Puzzle Wooden Sign](https://www.amazon.com/dp/B0CG9L57VH?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [46\. Puzzle Wooden Sign](https://www.amazon.com/dp/B0CG9L57VH?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CG9L57VH?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CG9L57VH?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Gift your teacher this fascinating Puzzle Wooden Sign as a unique symbol of respect and appreciation. It encapsulates the intricate and meaningful role of a teacher.
 
@@ -863,7 +863,7 @@ Every block of the puzzle depicts the challenges and victories teachers encounte
 
 ✔️ Depicts teaching journey
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CG9L57VH?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CG9L57VH?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [47\. Lucky To Have A Teacher Like You Plant Pot](https://loveable.us/products/lucky-to-have-a-teacher-like-you-personalized-ceramic-plant-pot-gift-for-teacher-306ihpbnpo750?variant=44759980671208?utm_source=avada&ranking=&utm_source=&utm_campaign=33-thoughtful-thank-you-gifts-for-teachers-to-express-your-gratitude)
 

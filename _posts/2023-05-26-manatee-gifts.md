@@ -17,9 +17,9 @@ Immerse yourself in a sea of possibilities as you explore our curated selection 
 
 Discover the perfect manatee gift that will bring a smile to the face of a friend, family member, or even yourself. Whether it's a charming manatee plush to accompany a child on their adventures or an elegant piece of manatee jewelry that adds a touch of elegance to any outfit, our collection ensures that the spirit of these gentle giants is always close at hand. So let the magic of these 35 manatee incredible creatures inspire your imagination.
 
-### [1\. Plush Blanket](https://www.amazon.com/Blanket-Comfort-Popular-Fashion-Manatees/dp/B01NBEXDIA/?ie=UTF8&tag=avadalove-20)
+### [1\. Plush Blanket](https://www.amazon.com/Blanket-Comfort-Popular-Fashion-Manatees/dp/B01NBEXDIA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Blanket-Comfort-Popular-Fashion-Manatees/dp/B01NBEXDIA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Blanket-Comfort-Popular-Fashion-Manatees/dp/B01NBEXDIA/?ie=UTF8&tag=giftable02-20)
 
 Wrap yourself in the comforting embrace of this exquisite plush blanket, a must-have for any manatee fan.
 
@@ -33,7 +33,7 @@ Let's emblazoned with a delightful print showcasing the beloved manatees in thei
 
 ✔️ Super soft and cuddly
 
-[Buy from Amazon](https://www.amazon.com/Blanket-Comfort-Popular-Fashion-Manatees/dp/B01NBEXDIA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Blanket-Comfort-Popular-Fashion-Manatees/dp/B01NBEXDIA/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Engraved Silicone Band](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1411044905/)
 
@@ -53,9 +53,9 @@ The band features an intricate engraving of a charming manatee, bringing to life
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1411044905/)
 
-### [3\. Manatee Ceramic Cup](https://www.amazon.com/Creature-Cups-Manatee-Ounce-Wedgewood/dp/B0172CXSQQ/?ie=UTF8&tag=avadalove-20)
+### [3\. Manatee Ceramic Cup](https://www.amazon.com/Creature-Cups-Manatee-Ounce-Wedgewood/dp/B0172CXSQQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Creature-Cups-Manatee-Ounce-Wedgewood/dp/B0172CXSQQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Creature-Cups-Manatee-Ounce-Wedgewood/dp/B0172CXSQQ/?ie=UTF8&tag=giftable02-20)
 
 Indulge in your love for manatees with this delightful Manatee Ceramic Cup, the perfect gift for any manatee fan. As you sip your favorite beverage, immerse yourself in the enchanting world of these gentle marine creatures.
 
@@ -69,11 +69,11 @@ This ceramic cup reveals a hidden surprise as you pour hot liquid into it—watc
 
 ✔️ Enchanting and unique design
 
-[Buy from Amazon](https://www.amazon.com/Creature-Cups-Manatee-Ounce-Wedgewood/dp/B0172CXSQQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Creature-Cups-Manatee-Ounce-Wedgewood/dp/B0172CXSQQ/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Manatee Figurine](https://www.amazon.com/Schleich-Animal-Figurine-Girls-Manatee/dp/B08HSFQTJ4/?ie=UTF8&tag=avadalove-20)
+### [4\. Manatee Figurine](https://www.amazon.com/Schleich-Animal-Figurine-Girls-Manatee/dp/B08HSFQTJ4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Schleich-Animal-Figurine-Girls-Manatee/dp/B08HSFQTJ4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Schleich-Animal-Figurine-Girls-Manatee/dp/B08HSFQTJ4/?ie=UTF8&tag=giftable02-20)
 
 With its peaceful expression and gentle posture, this manatee figurine is a true representation of these gentle giants of the sea.
 
@@ -87,7 +87,7 @@ Measuring approximately 4.5 inches in length, this figurine is the ideal size to
 
 ✔️ Lifelike and detailed design
 
-[Buy from Amazon](https://www.amazon.com/Schleich-Animal-Figurine-Girls-Manatee/dp/B08HSFQTJ4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Schleich-Animal-Figurine-Girls-Manatee/dp/B08HSFQTJ4/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Funny Hand Towels](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1362724699/)
 
@@ -107,9 +107,9 @@ Each towel features a playful and humorous manatee design that is sure to bring 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1362724699/)
 
-### [6\. Manatee Warmies](https://www.amazon.com/Intelex-Warmies-Microwavable-Lavender-Scented/dp/B07VTXCTVC/?ie=UTF8&tag=avadalove-20)
+### [6\. Manatee Warmies](https://www.amazon.com/Intelex-Warmies-Microwavable-Lavender-Scented/dp/B07VTXCTVC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Intelex-Warmies-Microwavable-Lavender-Scented/dp/B07VTXCTVC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Intelex-Warmies-Microwavable-Lavender-Scented/dp/B07VTXCTVC/?ie=UTF8&tag=giftable02-20)
 
 Get ready to snuggle up with the adorable Manatee Warmies, the perfect manatee gift for all the manatee lovers out there. These microwavable plush toys will bring comfort and warmth to your heart and soul, creating a cozy experience like no other.
 
@@ -123,11 +123,11 @@ These huggable manatee friends are filled with natural grains and a soothing lav
 
 ✔️ Soft, plush, and cuddly
 
-[Buy from Amazon](https://www.amazon.com/Intelex-Warmies-Microwavable-Lavender-Scented/dp/B07VTXCTVC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Intelex-Warmies-Microwavable-Lavender-Scented/dp/B07VTXCTVC/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Mana-Tea Mug](https://www.amazon.com/Enesco-6003680-Mana-Tea-Spoon-Multicolor/dp/B07M7Y3SZF/?ie=UTF8&tag=avadalove-20)
+### [7\. Mana-Tea Mug](https://www.amazon.com/Enesco-6003680-Mana-Tea-Spoon-Multicolor/dp/B07M7Y3SZF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-6003680-Mana-Tea-Spoon-Multicolor/dp/B07M7Y3SZF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-6003680-Mana-Tea-Spoon-Multicolor/dp/B07M7Y3SZF/?ie=UTF8&tag=giftable02-20)
 
 Indulge in a delightful tea-drinking experience with the enchanting Mana-Tea Mug, the ultimate manatee gift for tea enthusiasts and manatee fans alike.
 
@@ -141,7 +141,7 @@ This whimsical mug is designed to bring joy and charm to your daily tea ritual, 
 
 ✔️ Charming manatee design
 
-[Buy from Amazon](https://www.amazon.com/Enesco-6003680-Mana-Tea-Spoon-Multicolor/dp/B07M7Y3SZF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-6003680-Mana-Tea-Spoon-Multicolor/dp/B07M7Y3SZF/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Manatee Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/799911327/)
 
@@ -161,9 +161,9 @@ The Manatee Keychain features a miniature manatee figurine made from high-qualit
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/799911327/)
 
-### [9\. Manatee Earrings](https://www.amazon.com/Manatee-Earrings-Sterling-Earring-Jewelry/dp/B0BVFDZQ5G/?ie=UTF8&tag=avadalove-20)
+### [9\. Manatee Earrings](https://www.amazon.com/Manatee-Earrings-Sterling-Earring-Jewelry/dp/B0BVFDZQ5G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Manatee-Earrings-Sterling-Earring-Jewelry/dp/B0BVFDZQ5G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Manatee-Earrings-Sterling-Earring-Jewelry/dp/B0BVFDZQ5G/?ie=UTF8&tag=giftable02-20)
 
 Wearing these Manatee Earrings is like carrying a little piece of the ocean with you, reminding you of the tranquility and wonder of these magnificent creatures.
 
@@ -177,7 +177,7 @@ Crafted with precision and care, these earrings feature intricate details that b
 
 ✔️ Exquisite and detailed design
 
-[Buy from Amazon](https://www.amazon.com/Manatee-Earrings-Sterling-Earring-Jewelry/dp/B0BVFDZQ5G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Manatee-Earrings-Sterling-Earring-Jewelry/dp/B0BVFDZQ5G/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Hidden Animal Cup](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/257619458/)
 
@@ -197,9 +197,9 @@ An adorable manatee is waiting to be discovered with each drink! The adorable ma
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/257619458/)
 
-### [11\. Manatee Makeup Bag](https://www.amazon.com/G2TUP-Manatee-Floaty-Potatoes-Cosmetic/dp/B09S311STG/?ie=UTF8&tag=avadalove-20)
+### [11\. Manatee Makeup Bag](https://www.amazon.com/G2TUP-Manatee-Floaty-Potatoes-Cosmetic/dp/B09S311STG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/G2TUP-Manatee-Floaty-Potatoes-Cosmetic/dp/B09S311STG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/G2TUP-Manatee-Floaty-Potatoes-Cosmetic/dp/B09S311STG/?ie=UTF8&tag=giftable02-20)
 
 Dive into the world of whimsy and charm every time you reach for this delightful bag.
 
@@ -213,7 +213,7 @@ This makeup bag features a captivating design with a group of cheerful manatees 
 
 ✔️ Captivating manatee design
 
-[Buy from Amazon](https://www.amazon.com/G2TUP-Manatee-Floaty-Potatoes-Cosmetic/dp/B09S311STG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/G2TUP-Manatee-Floaty-Potatoes-Cosmetic/dp/B09S311STG/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Manatee Planter](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/719563438/)
 
@@ -233,9 +233,9 @@ Made with attention to detail, this ceramic planter showcases a delightful manat
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/719563438/)
 
-### [13\. Manatee T-Shirt](https://www.amazon.com/Crazy-Dog-T-Shirts-Potatoes-Conservation/dp/B07WW9SC7R/?ie=UTF8&tag=avadalove-20)
+### [13\. Manatee T-Shirt](https://www.amazon.com/Crazy-Dog-T-Shirts-Potatoes-Conservation/dp/B07WW9SC7R/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crazy-Dog-T-Shirts-Potatoes-Conservation/dp/B07WW9SC7R/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crazy-Dog-T-Shirts-Potatoes-Conservation/dp/B07WW9SC7R/?ie=UTF8&tag=giftable02-20)
 
 Embrace your inner appreciation for the sea and its enchanting inhabitants with this unique and stylish shirt of apparel.
 
@@ -249,11 +249,11 @@ Crafted with care, this soft and comfortable t-shirt features a captivating grap
 
 ✔️ Eye-catching and detailed graphic print
 
-[Buy from Amazon](https://www.amazon.com/Crazy-Dog-T-Shirts-Potatoes-Conservation/dp/B07WW9SC7R/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crazy-Dog-T-Shirts-Potatoes-Conservation/dp/B07WW9SC7R/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Pendant Necklace](https://www.amazon.com/Shag-Wear-Pendant-Necklace-Envelope/dp/B07PCW7D4S/?ie=UTF8&tag=avadalove-20)
+### [14\. Pendant Necklace](https://www.amazon.com/Shag-Wear-Pendant-Necklace-Envelope/dp/B07PCW7D4S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Shag-Wear-Pendant-Necklace-Envelope/dp/B07PCW7D4S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Shag-Wear-Pendant-Necklace-Envelope/dp/B07PCW7D4S/?ie=UTF8&tag=giftable02-20)
 
 Unleash your inner love for manatees with this exquisite Manatee Pendant Necklace, a delightful manatee gift for any devoted fan.
 
@@ -267,7 +267,7 @@ The necklace features a beautifully designed manatee pendant, intricately crafte
 
 ✔️ Exquisite and detailed manatee pendant
 
-[Buy from Amazon](https://www.amazon.com/Shag-Wear-Pendant-Necklace-Envelope/dp/B07PCW7D4S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Shag-Wear-Pendant-Necklace-Envelope/dp/B07PCW7D4S/?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Manatee Hugs Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1473427517/)
 
@@ -287,9 +287,9 @@ The Manatee Hugs Candle is lovingly handcrafted with a blend of high-quality soy
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1473427517/)
 
-### [16\. Manatee Insulated Tumbler](https://www.amazon.com/Tervis-1124850-Manatee-Insulated-Tumbler/dp/B00EGXVKLU/?ie=UTF8&tag=avadalove-20)
+### [16\. Manatee Insulated Tumbler](https://www.amazon.com/Tervis-1124850-Manatee-Insulated-Tumbler/dp/B00EGXVKLU/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tervis-1124850-Manatee-Insulated-Tumbler/dp/B00EGXVKLU/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tervis-1124850-Manatee-Insulated-Tumbler/dp/B00EGXVKLU/?ie=UTF8&tag=giftable02-20)
 
 Crafted with durable materials, this Manatee Insulated Tumbler keeps your drinks at the perfect temperature for longer.
 
@@ -303,11 +303,11 @@ Whether you're enjoying a relaxing day at home, heading to the office, or embark
 
 ✔️ Excellent temperature retention by using double-wall insulation
 
-[Buy from Amazon](https://www.amazon.com/Tervis-1124850-Manatee-Insulated-Tumbler/dp/B00EGXVKLU/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tervis-1124850-Manatee-Insulated-Tumbler/dp/B00EGXVKLU/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Manatee Drawstring Backpack](https://www.amazon.com/MSGUIDE-Manatee-Drawstring-Backpack-Sports/dp/B087BS4WMC/?ie=UTF8&tag=avadalove-20)
+### [17\. Manatee Drawstring Backpack](https://www.amazon.com/MSGUIDE-Manatee-Drawstring-Backpack-Sports/dp/B087BS4WMC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MSGUIDE-Manatee-Drawstring-Backpack-Sports/dp/B087BS4WMC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MSGUIDE-Manatee-Drawstring-Backpack-Sports/dp/B087BS4WMC/?ie=UTF8&tag=giftable02-20)
 
 This versatile and eye-catching Manatee drawstring backpack is not only a practical choice for carrying your belongings but also a wonderful manatee gift for any enthusiast.
 
@@ -321,7 +321,7 @@ It is a statement piece that showcases your love for these gentle creatures. The
 
 ✔️ Vibrant and detailed manatee design
 
-[Buy from Amazon](https://www.amazon.com/MSGUIDE-Manatee-Drawstring-Backpack-Sports/dp/B087BS4WMC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MSGUIDE-Manatee-Drawstring-Backpack-Sports/dp/B087BS4WMC/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Manatee Hat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1387016878/)
 
@@ -341,9 +341,9 @@ The hat offers ample coverage and a snug yet comfortable fit. Whether you're out
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1387016878/)
 
-### [19\. Manatee Socks](https://www.amazon.com/Socksmith-Womens-Hu-Manatee-Bright-Blue/dp/B01B3V4OWE/?ie=UTF8&tag=avadalove-20)
+### [19\. Manatee Socks](https://www.amazon.com/Socksmith-Womens-Hu-Manatee-Bright-Blue/dp/B01B3V4OWE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Socksmith-Womens-Hu-Manatee-Bright-Blue/dp/B01B3V4OWE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Socksmith-Womens-Hu-Manatee-Bright-Blue/dp/B01B3V4OWE/?ie=UTF8&tag=giftable02-20)
 
 Step into the world of ultimate comfort and style with these Manatee Socks. These vibrant and playful socks are the perfect manatee gift for any fan who wants to express their love for these gentle sea creatures in a unique and fashionable way.
 
@@ -357,7 +357,7 @@ They feature a delightful manatee design that captures the hearts of manatee ent
 
 ✔️ Vibrant and playful manatee design
 
-[Buy from Amazon](https://www.amazon.com/Socksmith-Womens-Hu-Manatee-Bright-Blue/dp/B01B3V4OWE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Socksmith-Womens-Hu-Manatee-Bright-Blue/dp/B01B3V4OWE/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Insulated Wine Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1124742666/)
 
@@ -377,9 +377,9 @@ The tumbler features an adorable manatee design that adds a touch of whimsy to y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1124742666/)
 
-### [21\. Pot Holders Sets](https://www.amazon.com/Manatee-Resistant-Holders-Kitchen-Grilling/dp/B08ZMLPKWX/?ie=UTF8&tag=avadalove-20)
+### [21\. Pot Holders Sets](https://www.amazon.com/Manatee-Resistant-Holders-Kitchen-Grilling/dp/B08ZMLPKWX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Manatee-Resistant-Holders-Kitchen-Grilling/dp/B08ZMLPKWX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Manatee-Resistant-Holders-Kitchen-Grilling/dp/B08ZMLPKWX/?ie=UTF8&tag=giftable02-20)
 
 Let's upgrade your kitchen into an adorable manatee haven with this Manatee Pot Holders Set. This value-packed set not only provides functional heat resistance but also adds a delightful touch of manatee charm to your cooking space.
 
@@ -393,7 +393,7 @@ It makes for a perfect manatee gift that will surely make any fan of these gentl
 
 ✔️ Heat-resistant and durable materials
 
-[Buy from Amazon](https://www.amazon.com/Manatee-Resistant-Holders-Kitchen-Grilling/dp/B08ZMLPKWX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Manatee-Resistant-Holders-Kitchen-Grilling/dp/B08ZMLPKWX/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Crochet Manatee Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1230928926/)
 
@@ -413,9 +413,9 @@ The intricate crochet work showcases the unique features of manatees, from their
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1230928926/)
 
-### [23\. Manatee Pajamas](https://www.amazon.com/Manatee-Halloween-Christmas-Homewear-Sleepwear/dp/B0B2P4KWP2/?ie=UTF8&tag=avadalove-20)
+### [23\. Manatee Pajamas](https://www.amazon.com/Manatee-Halloween-Christmas-Homewear-Sleepwear/dp/B0B2P4KWP2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Manatee-Halloween-Christmas-Homewear-Sleepwear/dp/B0B2P4KWP2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Manatee-Halloween-Christmas-Homewear-Sleepwear/dp/B0B2P4KWP2/?ie=UTF8&tag=giftable02-20)
 
 Crafted with soft and breathable material, these pajamas offer a cozy and luxurious feel against the skin, ensuring a good night's sleep or a relaxing day at home.
 
@@ -429,7 +429,7 @@ An elastic waistband provides a comfortable and adjustable fit, while the relaxe
 
 ✔️ Soft and breathable fabric
 
-[Buy from Amazon](https://www.amazon.com/Manatee-Halloween-Christmas-Homewear-Sleepwear/dp/B0B2P4KWP2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Manatee-Halloween-Christmas-Homewear-Sleepwear/dp/B0B2P4KWP2/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Manatee Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1426473135/)
 
@@ -449,9 +449,9 @@ Designed with a unique and artistic print, this shirt captures the essence of ma
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1426473135/)
 
-### [25\. Insulated Lunch Bag](https://www.amazon.com/Animals1-Insulated-Waterproof-Container-Leakproof/dp/B09DVNZG39/?ie=UTF8&tag=avadalove-20)
+### [25\. Insulated Lunch Bag](https://www.amazon.com/Animals1-Insulated-Waterproof-Container-Leakproof/dp/B09DVNZG39/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Animals1-Insulated-Waterproof-Container-Leakproof/dp/B09DVNZG39/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Animals1-Insulated-Waterproof-Container-Leakproof/dp/B09DVNZG39/?ie=UTF8&tag=giftable02-20)
 
 Designed with a charming manatee pattern, this lunch bag is a must-have for any manatee enthusiast. The adorable manatee prints will brighten your day and make lunchtime more enjoyable.
 
@@ -465,11 +465,11 @@ It's the perfect way to showcase your love for these lovable marine creatures. T
 
 ✔️ Adorable manatee pattern
 
-[Buy from Amazon](https://www.amazon.com/Animals1-Insulated-Waterproof-Container-Leakproof/dp/B09DVNZG39/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Animals1-Insulated-Waterproof-Container-Leakproof/dp/B09DVNZG39/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Manatee Cup](https://www.amazon.com/Manatee-Gourmet-Single-Brewers-Complex/dp/B017VNHEXE/?ie=UTF8&tag=avadalove-20)
+### [26\. Manatee Cup](https://www.amazon.com/Manatee-Gourmet-Single-Brewers-Complex/dp/B017VNHEXE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Manatee-Gourmet-Single-Brewers-Complex/dp/B017VNHEXE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Manatee-Gourmet-Single-Brewers-Complex/dp/B017VNHEXE/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the whimsical world of manatees as you enjoy your hot or cold beverages. The cup features a beautiful manatee design that captures the essence of these gentle marine creatures.
 
@@ -483,7 +483,7 @@ It's made from high-quality materials that ensure durability and long-lasting us
 
 ✔️ Charming manatee design
 
-[Buy from Amazon](https://www.amazon.com/Manatee-Gourmet-Single-Brewers-Complex/dp/B017VNHEXE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Manatee-Gourmet-Single-Brewers-Complex/dp/B017VNHEXE/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Manatee Bound Notebook](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1179910644/)
 
@@ -503,9 +503,9 @@ Dive into the depths of imagination as you flip through the pages adorned with a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1179910644/)
 
-### [28\. Manatee Home Decorative](https://www.amazon.com/Ebros-Gift-Nautical-Antillean-Decorative/dp/B0893MQXH1/?ie=UTF8&tag=avadalove-20)
+### [28\. Manatee Home Decorative](https://www.amazon.com/Ebros-Gift-Nautical-Antillean-Decorative/dp/B0893MQXH1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ebros-Gift-Nautical-Antillean-Decorative/dp/B0893MQXH1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ebros-Gift-Nautical-Antillean-Decorative/dp/B0893MQXH1/?ie=UTF8&tag=giftable02-20)
 
 Bring the enchanting beauty of manatees into your home with this captivating Manatee Home Decorative piece. It is the perfect addition to any manatee lover's collection and makes a wonderful manatee gift.
 
@@ -519,7 +519,7 @@ Crafted with attention to detail, this decorative piece showcases the grace and 
 
 ✔️ Lifelike depiction of manatees
 
-[Buy from Amazon](https://www.amazon.com/Ebros-Gift-Nautical-Antillean-Decorative/dp/B0893MQXH1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ebros-Gift-Nautical-Antillean-Decorative/dp/B0893MQXH1/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Manatee Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1372659005/)
 
@@ -539,9 +539,9 @@ The necklace features a beautifully crafted manatee pendant, showcasing the grac
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1372659005/)
 
-### [30\. Canvas Tote Bag](https://www.amazon.com/CafePress-Manatee-Natural-Reusable-Shopping/dp/B00VUXEFIO/?ie=UTF8&tag=avadalove-20)
+### [30\. Canvas Tote Bag](https://www.amazon.com/CafePress-Manatee-Natural-Reusable-Shopping/dp/B00VUXEFIO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CafePress-Manatee-Natural-Reusable-Shopping/dp/B00VUXEFIO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CafePress-Manatee-Natural-Reusable-Shopping/dp/B00VUXEFIO/?ie=UTF8&tag=giftable02-20)
 
 Transport yourself to the enchanting underwater world of manatees with this delightful Manatee Canvas Tote Bag.
 
@@ -555,11 +555,11 @@ Made from high-quality canvas material, this durable and eco-friendly tote bag i
 
 ✔️ Charming manatee design
 
-[Buy from Amazon](https://www.amazon.com/CafePress-Manatee-Natural-Reusable-Shopping/dp/B00VUXEFIO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CafePress-Manatee-Natural-Reusable-Shopping/dp/B00VUXEFIO/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Silicone Tea Infuser](https://www.amazon.com/Fred-MANATEA-Silicone-Tea-Infuser/dp/B00B5EE0A6/?ie=UTF8&tag=avadalove-20)
+### [31\. Silicone Tea Infuser](https://www.amazon.com/Fred-MANATEA-Silicone-Tea-Infuser/dp/B00B5EE0A6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fred-MANATEA-Silicone-Tea-Infuser/dp/B00B5EE0A6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fred-MANATEA-Silicone-Tea-Infuser/dp/B00B5EE0A6/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the joy of tea time with the adorable Manatee Silicone Tea Infuser. This charming infuser is not only a practical tool for brewing your favorite tea but also a delightful addition to your kitchen.
 
@@ -573,7 +573,7 @@ Made from high-quality, food-grade silicone, it is safe to use and easy to clean
 
 ✔️ Adorable manatee design
 
-[Buy from Amazon](https://www.amazon.com/Fred-MANATEA-Silicone-Tea-Infuser/dp/B00B5EE0A6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fred-MANATEA-Silicone-Tea-Infuser/dp/B00B5EE0A6/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Manatee Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1464032153/)
 
@@ -593,9 +593,9 @@ Its spacious design and sturdy construction make it ideal for carrying groceries
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1464032153/)
 
-### [33\. Music Water Globe](https://www.amazon.com/Manatees-Playing-Ocean-100MM-Somewhere/dp/B014JPM5SQ/?ie=UTF8&tag=avadalove-20)
+### [33\. Music Water Globe](https://www.amazon.com/Manatees-Playing-Ocean-100MM-Somewhere/dp/B014JPM5SQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Manatees-Playing-Ocean-100MM-Somewhere/dp/B014JPM5SQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Manatees-Playing-Ocean-100MM-Somewhere/dp/B014JPM5SQ/?ie=UTF8&tag=giftable02-20)
 
 This Music Water Globe is the perfect manatee gift for those who adore these gentle marine creatures. Transport yourself into a world of enchantment with this captivating Manatee Music Water Globe.
 
@@ -609,7 +609,7 @@ With just a gentle shake, you'll be mesmerized by the swirling glitter and the s
 
 ✔️ Captivating underwater scene
 
-[Buy from Amazon](https://www.amazon.com/Manatees-Playing-Ocean-100MM-Somewhere/dp/B014JPM5SQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Manatees-Playing-Ocean-100MM-Somewhere/dp/B014JPM5SQ/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Cute Phone Case](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1416784024/)
 
@@ -629,9 +629,9 @@ The case features a cute and vibrant manatee design that will bring a smile to y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1416784024/)
 
-### [35\. Microfiber Beach Towel](https://www.amazon.com/Alottagifts-Manatee-Microfiber-Lightweight-Swimming/dp/B096DVCVC7/?ie=UTF8&tag=avadalove-20)
+### [35\. Microfiber Beach Towel](https://www.amazon.com/Alottagifts-Manatee-Microfiber-Lightweight-Swimming/dp/B096DVCVC7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Alottagifts-Manatee-Microfiber-Lightweight-Swimming/dp/B096DVCVC7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Alottagifts-Manatee-Microfiber-Lightweight-Swimming/dp/B096DVCVC7/?ie=UTF8&tag=giftable02-20)
 
 It's not just a towel; it's a must-have manatee gift for any beach or pool enthusiast who wants to showcase their love for these gentle creatures. Wrap yourself in the embrace of manatees with this delightful Manatee Microfiber Beach Towel.
 
@@ -645,4 +645,4 @@ The towel is made from high-quality microfiber material, ensuring a soft and plu
 
 ✔️ Soft and plush microfiber material
 
-[Buy from Amazon](https://www.amazon.com/Alottagifts-Manatee-Microfiber-Lightweight-Swimming/dp/B096DVCVC7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Alottagifts-Manatee-Microfiber-Lightweight-Swimming/dp/B096DVCVC7/?ie=UTF8&tag=giftable02-20)

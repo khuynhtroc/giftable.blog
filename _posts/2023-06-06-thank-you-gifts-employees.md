@@ -35,9 +35,9 @@ This unique and humorous gift is not just an ordinary mug; it's a heartfelt toke
 
 [Buy from Loveable](https://loveable.ai/products/having-me-as-an-employee-is-the-really-gift-you-need-black-mug-best-gift-for-your-boss-212ihpvsmu603?utm_source=avada&ranking=&utm_source=&utm_campaign=thank-you-gifts-employees)
 
-### [2\. Jelly Beans](https://www.amazon.com/Thank-Assorted-Flavors-Jelly-Beans/dp/B00UGONJJO/?ie=UTF8&tag=avadalove-20)
+### [2\. Jelly Beans](https://www.amazon.com/Thank-Assorted-Flavors-Jelly-Beans/dp/B00UGONJJO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thank-Assorted-Flavors-Jelly-Beans/dp/B00UGONJJO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thank-Assorted-Flavors-Jelly-Beans/dp/B00UGONJJO/?ie=UTF8&tag=giftable02-20)
 
 Express your gratitude with a delicious twist by gifting the Thank You Assorted Flavors Jelly Beans.
 
@@ -51,7 +51,7 @@ Each bite is a sweet reminder of the value and contributions that your employees
 
 ✔️ Stunning package
 
-[Buy from Amazon](https://www.amazon.com/Thank-Assorted-Flavors-Jelly-Beans/dp/B00UGONJJO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thank-Assorted-Flavors-Jelly-Beans/dp/B00UGONJJO/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Desk Decor](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1149441242/)
 
@@ -71,9 +71,9 @@ From the moment your employees set eyes on it, they will feel the warmth of your
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1149441242/)
 
-### [4\. Stainless Steel Bracelet](https://www.amazon.com/Fumete-Inspirational-Stainless-Adjustable-Appreciation/dp/B0BCPWDHWT/?ie=UTF8&tag=avadalove-20)
+### [4\. Stainless Steel Bracelet](https://www.amazon.com/Fumete-Inspirational-Stainless-Adjustable-Appreciation/dp/B0BCPWDHWT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fumete-Inspirational-Stainless-Adjustable-Appreciation/dp/B0BCPWDHWT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fumete-Inspirational-Stainless-Adjustable-Appreciation/dp/B0BCPWDHWT/?ie=UTF8&tag=giftable02-20)
 
 Honor your employees' hard work and dedication with this Stainless Steel Bracelet, a thank you gift that goes beyond words.
 
@@ -87,11 +87,11 @@ The adjustable feature ensures a comfortable fit for all wrist sizes, making it 
 
 ✔️ Can be adjusted
 
-[Buy from Amazon](https://www.amazon.com/Fumete-Inspirational-Stainless-Adjustable-Appreciation/dp/B0BCPWDHWT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fumete-Inspirational-Stainless-Adjustable-Appreciation/dp/B0BCPWDHWT/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Christmas Cheering Ornament](https://www.amazon.com/Appreciation-Employee-Christmas-Ornaments-Coworker/dp/B0BKQT7ZC4/?ie=UTF8&tag=avadalove-20)
+### [5\. Christmas Cheering Ornament](https://www.amazon.com/Appreciation-Employee-Christmas-Ornaments-Coworker/dp/B0BKQT7ZC4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Appreciation-Employee-Christmas-Ornaments-Coworker/dp/B0BKQT7ZC4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Employee-Christmas-Ornaments-Coworker/dp/B0BKQT7ZC4/?ie=UTF8&tag=giftable02-20)
 
 This ornament makes them a truly special and meaningful token of appreciation.
 
@@ -105,11 +105,11 @@ These Christmas Ornaments are more than just festive decorations. They serve as 
 
 ✔️ Eye-catching design
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Employee-Christmas-Ornaments-Coworker/dp/B0BKQT7ZC4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Employee-Christmas-Ornaments-Coworker/dp/B0BKQT7ZC4/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Farewell Gift](https://www.amazon.com/Inspirational-Coworker-Colleague-Farewell-Appreciation/dp/B0BCJ584YM/?ie=UTF8&tag=avadalove-20)
+### [6\. Farewell Gift](https://www.amazon.com/Inspirational-Coworker-Colleague-Farewell-Appreciation/dp/B0BCJ584YM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspirational-Coworker-Colleague-Farewell-Appreciation/dp/B0BCJ584YM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspirational-Coworker-Colleague-Farewell-Appreciation/dp/B0BCJ584YM/?ie=UTF8&tag=giftable02-20)
 
 This Farewell Gift goes beyond a simple token of appreciation. It serves as a source of inspiration and motivation, offering words of wisdom and encouragement as your colleague embarks on their new journey.
 
@@ -123,7 +123,7 @@ With its thoughtful message and stylish design, it becomes a cherished keepsake 
 
 ✔️ Cherish for years to come
 
-[Buy from Amazon](https://www.amazon.com/Inspirational-Coworker-Colleague-Farewell-Appreciation/dp/B0BCJ584YM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspirational-Coworker-Colleague-Farewell-Appreciation/dp/B0BCJ584YM/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Hygge Gift Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1394307128/)
 
@@ -161,9 +161,9 @@ This Happy Pop-Up Card is here to bring joy, celebration, and heartfelt apprecia
 
 [Buy from Lovepop](https://www.lovepop.com/products/happy-retirement-pop-up-card?variant=39326118608969)
 
-### [9\. Inspirational Ballpoint Pen](https://www.amazon.com/Lincia-Appreciation-Inspirational-Colleagues-Retirement/dp/B0BXSGQF38/?ie=UTF8&tag=avadalove-20)
+### [9\. Inspirational Ballpoint Pen](https://www.amazon.com/Lincia-Appreciation-Inspirational-Colleagues-Retirement/dp/B0BXSGQF38/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lincia-Appreciation-Inspirational-Colleagues-Retirement/dp/B0BXSGQF38/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lincia-Appreciation-Inspirational-Colleagues-Retirement/dp/B0BXSGQF38/?ie=UTF8&tag=giftable02-20)
 
 These colorful ballpoint pens serves as a stylish writing instrument and carries a deeper meaning that will uplift and motivate your beloved employees.
 
@@ -177,7 +177,7 @@ With the inspirational pen, you can express your gratitude and inspire your empl
 
 ✔️ Contain thoughtful message
 
-[Buy from Amazon](https://www.amazon.com/Lincia-Appreciation-Inspirational-Colleagues-Retirement/dp/B0BXSGQF38/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lincia-Appreciation-Inspirational-Colleagues-Retirement/dp/B0BXSGQF38/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Refillable Portfolio](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248239574/)
 
@@ -197,9 +197,9 @@ This portfolio is sure to help employees stay on top of their game. With designa
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248239574/)
 
-### [11\. Wine Tumbler](https://www.amazon.com/Inspirational-Appreciation-Birthday-Insulated-Stainless/dp/B09KTX13HS/?ie=UTF8&tag=avadalove-20)
+### [11\. Wine Tumbler](https://www.amazon.com/Inspirational-Appreciation-Birthday-Insulated-Stainless/dp/B09KTX13HS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspirational-Appreciation-Birthday-Insulated-Stainless/dp/B09KTX13HS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspirational-Appreciation-Birthday-Insulated-Stainless/dp/B09KTX13HS/?ie=UTF8&tag=giftable02-20)
 
 This little gem holds more than just a refreshing beverage—it's packed with hidden benefits that will bring a smile to their faces and warmth to their hearts.
 
@@ -213,11 +213,11 @@ With every sip from this wine tumbler, your employees will be greeted by inspira
 
 ✔️ Durable and high-quality
 
-[Buy from Amazon](https://www.amazon.com/Inspirational-Appreciation-Birthday-Insulated-Stainless/dp/B09KTX13HS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspirational-Appreciation-Birthday-Insulated-Stainless/dp/B09KTX13HS/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Stress Balls](https://www.amazon.com/Inspirational-Motivational-Colorful-Employee-Coworker/dp/B0BMTJPJNV/?ie=UTF8&tag=avadalove-20)
+### [12\. Stress Balls](https://www.amazon.com/Inspirational-Motivational-Colorful-Employee-Coworker/dp/B0BMTJPJNV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspirational-Motivational-Colorful-Employee-Coworker/dp/B0BMTJPJNV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspirational-Motivational-Colorful-Employee-Coworker/dp/B0BMTJPJNV/?ie=UTF8&tag=giftable02-20)
 
 Say "thank you" to your incredible employees with these Inspirational Stress Balls, offering them a delightful way to relieve stress, find motivation, and infuse positivity into their workday.
 
@@ -231,11 +231,11 @@ These stress balls come in various vibrant colors, providing a visual feast for 
 
 ✔️ Choose the color you want
 
-[Buy from Amazon](https://www.amazon.com/Inspirational-Motivational-Colorful-Employee-Coworker/dp/B0BMTJPJNV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspirational-Motivational-Colorful-Employee-Coworker/dp/B0BMTJPJNV/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Coworker Keychain](https://www.amazon.com/Appreciation-Keychains-Motivational-Coworkers-Employees/dp/B0BHWQXJHC/?ie=UTF8&tag=avadalove-20)
+### [13\. Coworker Keychain](https://www.amazon.com/Appreciation-Keychains-Motivational-Coworkers-Employees/dp/B0BHWQXJHC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Appreciation-Keychains-Motivational-Coworkers-Employees/dp/B0BHWQXJHC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Keychains-Motivational-Coworkers-Employees/dp/B0BHWQXJHC/?ie=UTF8&tag=giftable02-20)
 
 Each keychain features a motivational quote or message, serving as a daily reminder for your coworkers to stay positive, focused, and motivated in their professional and personal lives.
 
@@ -249,7 +249,7 @@ It's a small token that can uplift their spirits and encourage them to overcome 
 
 ✔️ Tiny and cute gift
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Keychains-Motivational-Coworkers-Employees/dp/B0BHWQXJHC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Keychains-Motivational-Coworkers-Employees/dp/B0BHWQXJHC/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Wind Chime](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1304729311/)
 
@@ -269,9 +269,9 @@ Present this wine chime as a thank-you gift to your employees, and let its encha
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1304729311/)
 
-### [15\. Thank-You Bookmark](https://www.amazon.com/Bookmark-Appreciation-Retirement-Inspirational-Christmas/dp/B09SG8CPM6/?ie=UTF8&tag=avadalove-20)
+### [15\. Thank-You Bookmark](https://www.amazon.com/Bookmark-Appreciation-Retirement-Inspirational-Christmas/dp/B09SG8CPM6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bookmark-Appreciation-Retirement-Inspirational-Christmas/dp/B09SG8CPM6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bookmark-Appreciation-Retirement-Inspirational-Christmas/dp/B09SG8CPM6/?ie=UTF8&tag=giftable02-20)
 
 This exquisite Thank You Bookmark is the perfect heartfelt gift to convey your appreciation in the most charming and meaningful way possible.
 
@@ -285,11 +285,11 @@ Each time your employees use this Thank You Bookmark, they are greeted with upli
 
 ✔️ Durable construction
 
-[Buy from Amazon](https://www.amazon.com/Bookmark-Appreciation-Retirement-Inspirational-Christmas/dp/B09SG8CPM6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bookmark-Appreciation-Retirement-Inspirational-Christmas/dp/B09SG8CPM6/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Motivational Keychain](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/r?ie=UTF8&tag=avadalove-20)
+### [16\. Motivational Keychain](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/r?ie=UTF8&tag=giftable02-20)
 
 Each time your employees reach for their keys, they will be greeted with motivational messages that serve as constant reminders of their strength, resilience, and capabilities.
 
@@ -303,7 +303,7 @@ These uplifting words provide encouragement and support, boosting their confiden
 
 ✔️ Perfect for being gifted
 
-[Buy from Amazon](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/r?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Positive Crochet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430775003/)
 
@@ -323,9 +323,9 @@ This delightful handmade item not only showcases the talent and creativity of th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430775003/)
 
-### [18\. Leather Journal](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=avadalove-20)
+### [18\. Leather Journal](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=giftable02-20)
 
 Within the pages of this journal lies an invitation to self-discovery and personal growth.
 
@@ -339,7 +339,7 @@ Made from high-quality leather, this journal exudes timeless charm and sophistic
 
 ✔️ Heartfelt gesture of appreciation
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Difference-Inspirational-Notebook-Volunteer/dp/B0B28WKW9B/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Wildflowers Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1450443645/)
 
@@ -359,9 +359,9 @@ The exquisite wildflower design on this mug serves as a daily reminder of the be
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1450443645/)
 
-### [20\. Kraft Notebook](https://www.amazon.com/Retractable-Notebooks-Teacher-Inspirational-Employee/dp/B0BRSGXHNJ/?ie=UTF8&tag=avadalove-20)
+### [20\. Kraft Notebook](https://www.amazon.com/Retractable-Notebooks-Teacher-Inspirational-Employee/dp/B0BRSGXHNJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Retractable-Notebooks-Teacher-Inspirational-Employee/dp/B0BRSGXHNJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Retractable-Notebooks-Teacher-Inspirational-Employee/dp/B0BRSGXHNJ/?ie=UTF8&tag=giftable02-20)
 
 Within the pages of this Kraft Notebook, your employees will find hidden inspirational quotes, prompts, to boost their motivation and provide moments of reflection.
 
@@ -375,11 +375,11 @@ It is convenient to carry everywhere and note down any ideas for work into this 
 
 ✔️ Useful and practical gift
 
-[Buy from Amazon](https://www.amazon.com/Retractable-Notebooks-Teacher-Inspirational-Employee/dp/B0BRSGXHNJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Retractable-Notebooks-Teacher-Inspirational-Employee/dp/B0BRSGXHNJ/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Gift Basket](https://www.amazon.com/GIFTIER-Teachers-Employees-Secretaries-Lavender/dp/B0BLZRGQ2B/?ie=UTF8&tag=avadalove-20)
+### [21\. Gift Basket](https://www.amazon.com/GIFTIER-Teachers-Employees-Secretaries-Lavender/dp/B0BLZRGQ2B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GIFTIER-Teachers-Employees-Secretaries-Lavender/dp/B0BLZRGQ2B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GIFTIER-Teachers-Employees-Secretaries-Lavender/dp/B0BLZRGQ2B/?ie=UTF8&tag=giftable02-20)
 
 The Gift Basket features luxurious lavender-scented products that offer a soothing and rejuvenating experience.
 
@@ -393,7 +393,7 @@ Each item in the basket is carefully curated to create a harmonious and delightf
 
 ✔️ Can be gifted immediately
 
-[Buy from Amazon](https://www.amazon.com/GIFTIER-Teachers-Employees-Secretaries-Lavender/dp/B0BLZRGQ2B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GIFTIER-Teachers-Employees-Secretaries-Lavender/dp/B0BLZRGQ2B/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Relaxing Essential Oil](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1189230910/)
 
@@ -431,9 +431,9 @@ The card offers ample space for you to write a personalized message, allowing yo
 
 [Buy from Lovepop](https://www.lovepop.com/products/artistic-thank-you-pop-up-card?variant=19953786323017)
 
-### [24\. Stainless Steel Tumbler](https://www.amazon.com/Inncup-Valentines-Inspirational-Employee-22-Stainless/dp/B0BCPK1VDN/?ie=UTF8&tag=avadalove-20)
+### [24\. Stainless Steel Tumbler](https://www.amazon.com/Inncup-Valentines-Inspirational-Employee-22-Stainless/dp/B0BCPK1VDN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inncup-Valentines-Inspirational-Employee-22-Stainless/dp/B0BCPK1VDN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inncup-Valentines-Inspirational-Employee-22-Stainless/dp/B0BCPK1VDN/?ie=UTF8&tag=giftable02-20)
 
 This tumbler features uplifting and motivational quotes that serve as daily reminders of the value and impact your employees bring to the workplace.
 
@@ -447,7 +447,7 @@ The stainless steel construction of this tumbler provides excellent insulation, 
 
 ✔️ Convenient and portable
 
-[Buy from Amazon](https://www.amazon.com/Inncup-Valentines-Inspirational-Employee-22-Stainless/dp/B0BCPK1VDN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inncup-Valentines-Inspirational-Employee-22-Stainless/dp/B0BCPK1VDN/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Thank You Gift Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1052268166/)
 
@@ -467,9 +467,9 @@ Crafted with attention to detail, this necklace is made from premium materials, 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1052268166/)
 
-### [26\. Natural Soy Wax](https://www.amazon.com/Scented-Aromatherapy-Birthday-Thanksgiving-Christmas/dp/B098XCB2NN/?ie=UTF8&tag=avadalove-20)
+### [26\. Natural Soy Wax](https://www.amazon.com/Scented-Aromatherapy-Birthday-Thanksgiving-Christmas/dp/B098XCB2NN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scented-Aromatherapy-Birthday-Thanksgiving-Christmas/dp/B098XCB2NN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scented-Aromatherapy-Birthday-Thanksgiving-Christmas/dp/B098XCB2NN/?ie=UTF8&tag=giftable02-20)
 
 This soy wax candle is made from 100% natural soy wax, ensuring a clean and eco-friendly burn. It creates a healthier environment for your employees, free from harmful toxins and chemicals.
 
@@ -483,11 +483,11 @@ This candle has an extended burn time, allowing your employees to enjoy its comf
 
 ✔️ Crafted from high-quality soy wax
 
-[Buy from Amazon](https://www.amazon.com/Scented-Aromatherapy-Birthday-Thanksgiving-Christmas/dp/B098XCB2NN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scented-Aromatherapy-Birthday-Thanksgiving-Christmas/dp/B098XCB2NN/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Orange Scented Candle](https://www.amazon.com/Candles-Scented-Teacher-Appreciation-Coworkers/dp/B0BXKC8F56/?ie=UTF8&tag=avadalove-20)
+### [27\. Orange Scented Candle](https://www.amazon.com/Candles-Scented-Teacher-Appreciation-Coworkers/dp/B0BXKC8F56/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Candles-Scented-Teacher-Appreciation-Coworkers/dp/B0BXKC8F56/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Candles-Scented-Teacher-Appreciation-Coworkers/dp/B0BXKC8F56/?ie=UTF8&tag=giftable02-20)
 
 The invigorating scent of fresh oranges instantly uplifts the mood and creates a positive atmosphere.
 
@@ -501,11 +501,11 @@ The aromatic properties of the orange scent have natural stress-relieving effect
 
 ✔️ Convey your appreciation
 
-[Buy from Amazon](https://www.amazon.com/Candles-Scented-Teacher-Appreciation-Coworkers/dp/B0BXKC8F56/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Candles-Scented-Teacher-Appreciation-Coworkers/dp/B0BXKC8F56/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Paper Hanging Tag](https://www.amazon.com/Colorful-Personalized-Wrapping-Thanksgiving-Birthday/dp/B0B874DSJX/?ie=UTF8&tag=avadalove-20)
+### [28\. Paper Hanging Tag](https://www.amazon.com/Colorful-Personalized-Wrapping-Thanksgiving-Birthday/dp/B0B874DSJX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Colorful-Personalized-Wrapping-Thanksgiving-Birthday/dp/B0B874DSJX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Colorful-Personalized-Wrapping-Thanksgiving-Birthday/dp/B0B874DSJX/?ie=UTF8&tag=giftable02-20)
 
 Each tag can be personalized with the recipient's name or a special message, adding a personal touch to your thank you gift.
 
@@ -519,7 +519,7 @@ These hanging tags can be used for various purposes, making them a versatile add
 
 ✔️ Durable and water-resistant
 
-[Buy from Amazon](https://www.amazon.com/Colorful-Personalized-Wrapping-Thanksgiving-Birthday/dp/B0B874DSJX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Colorful-Personalized-Wrapping-Thanksgiving-Birthday/dp/B0B874DSJX/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Embroidered Smile Socks](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1227937685/)
 
@@ -539,9 +539,9 @@ Each pair of socks can be embroidered with the recipient's name, initials, or a 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1227937685/)
 
-### [30\. Cool Fancy Pens](https://www.amazon.com/MESMOS-Teacher-Appreciation-Employee-Journaling/dp/B09X453YQP/?ie=UTF8&tag=avadalove-20)
+### [30\. Cool Fancy Pens](https://www.amazon.com/MESMOS-Teacher-Appreciation-Employee-Journaling/dp/B09X453YQP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MESMOS-Teacher-Appreciation-Employee-Journaling/dp/B09X453YQP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MESMOS-Teacher-Appreciation-Employee-Journaling/dp/B09X453YQP/?ie=UTF8&tag=giftable02-20)
 
 These Cool Fancy Pens are the perfect solution to show your appreciation in a unique and thoughtful way.
 
@@ -555,11 +555,11 @@ These pens are not only stylish but also highly functional. While their sleek de
 
 ✔️ Fancy and luxurious pen
 
-[Buy from Amazon](https://www.amazon.com/MESMOS-Teacher-Appreciation-Employee-Journaling/dp/B09X453YQP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MESMOS-Teacher-Appreciation-Employee-Journaling/dp/B09X453YQP/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Thank You Keychain](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/?ie=UTF8&tag=avadalove-20)
+### [31\. Thank You Keychain](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/?ie=UTF8&tag=giftable02-20)
 
 This keychain features an inspirational and motivational message that serves as a constant reminder of your employee's appreciation.
 
@@ -573,7 +573,7 @@ It's a thoughtful way to uplift and inspire your employees, reminding them of th
 
 ✔️ Adorable design
 
-[Buy from Amazon](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Secretaries-Inspirational-Motivational-Appreciation-Graduation/dp/B0BKSGRPT8/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Appreciation Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1081785366/)
 
@@ -593,9 +593,9 @@ It is a tangible reminder of the bond and connection shared between you and your
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1081785366/)
 
-### [33\. Cosmetic Bag](https://www.amazon.com/Buryeah-Appreciation-Valentines-Inspirational-Secretaries/dp/B0BMFFPVB3/?ie=UTF8&tag=avadalove-20)
+### [33\. Cosmetic Bag](https://www.amazon.com/Buryeah-Appreciation-Valentines-Inspirational-Secretaries/dp/B0BMFFPVB3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Buryeah-Appreciation-Valentines-Inspirational-Secretaries/dp/B0BMFFPVB3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Buryeah-Appreciation-Valentines-Inspirational-Secretaries/dp/B0BMFFPVB3/?ie=UTF8&tag=giftable02-20)
 
 This Cosmetic Bag not only adds a touch of elegance to any vanity or travel bag, but it also offers practical organization.
 
@@ -609,7 +609,7 @@ With multiple compartments and pockets, it provides a convenient solution for ke
 
 ✔️ Adorable bag design
 
-[Buy from Amazon](https://www.amazon.com/Buryeah-Appreciation-Valentines-Inspirational-Secretaries/dp/B0BMFFPVB3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Buryeah-Appreciation-Valentines-Inspirational-Secretaries/dp/B0BMFFPVB3/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Personalized Name Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1358835953/)
 
@@ -629,9 +629,9 @@ Every time your employees enjoy their favorite beverage from this mug, they will
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1358835953/)
 
-### [35\. Colorful Cheering Envelopes](https://www.amazon.com/Funny-Thank-Colorful-Envelopes-Stickers/dp/B0BQCB1VB5/?ie=UTF8&tag=avadalove-20)
+### [35\. Colorful Cheering Envelopes](https://www.amazon.com/Funny-Thank-Colorful-Envelopes-Stickers/dp/B0BQCB1VB5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Thank-Colorful-Envelopes-Stickers/dp/B0BQCB1VB5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Thank-Colorful-Envelopes-Stickers/dp/B0BQCB1VB5/?ie=UTF8&tag=giftable02-20)
 
 Envelopes are the perfect solution to express your love and gratitude in the most friendly and grateful way.
 
@@ -645,4 +645,4 @@ Each envelope comes with a set of funny thank you stickers that can be used to p
 
 ✔️ Make their day a little brighter
 
-[Buy from Amazon](https://www.amazon.com/Funny-Thank-Colorful-Envelopes-Stickers/dp/B0BQCB1VB5/?ie=UTF8&tag=avadalove-20) 
+[Buy from Amazon](https://www.amazon.com/Funny-Thank-Colorful-Envelopes-Stickers/dp/B0BQCB1VB5/?ie=UTF8&tag=giftable02-20) 

@@ -17,9 +17,9 @@ At Swan Gifts, we understand the importance of finding that special something th
 
 From delicate swan-shaped pendants that add a touch of elegance to your ensemble, to enchanting figurines that adorn your living spaces with grace, Swan Gifts offers a diverse array of options to suit every taste and occasion. Our products not only embody the timeless beauty of swans but also embody the emotions and sentiments you wish to convey. Whether you're celebrating a milestone, expressing gratitude, or simply treating yourself, Swan Gifts is here to help you create cherished memories that will be treasured for years to come.
 
-### [1\. Chain Necklace with Gift Card](https://www.amazon.com/LANG-XUAN-Friendship-Necklace-Elephant/dp/B09DC942MQ/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Chain Necklace with Gift Card](https://www.amazon.com/LANG-XUAN-Friendship-Necklace-Elephant/dp/B09DC942MQ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LANG-XUAN-Friendship-Necklace-Elephant/dp/B09DC942MQ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LANG-XUAN-Friendship-Necklace-Elephant/dp/B09DC942MQ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Need a standout piece for your jewelry collection? Look no further than the LANG XUAN Friendship Chain Necklace, complete with a Gift Card.
 
@@ -33,7 +33,7 @@ The Friendship Chain Necklace is the ideal choice for anybody wishing to add som
 
 ✔️ Lightweight yet sturdy pendant
 
-[Buy from Amazon](https://www.amazon.com/LANG-XUAN-Friendship-Necklace-Elephant/dp/B09DC942MQ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LANG-XUAN-Friendship-Necklace-Elephant/dp/B09DC942MQ/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Engraved Cutting Board](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/739342793/swan-home-decor-engagement-gifts-for)
 
@@ -53,9 +53,9 @@ The Engraved Cutting Board is precision-crafted and is 12 by 16 inches, offering
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/739342793/swan-home-decor-engagement-gifts-for)
 
-### [3\. Glasses Wedding](https://www.amazon.com/Cocktail-Glass-Creative-Drinking-margarita/dp/B0919L6KXR/?ie=UTF8&tag=avadalove-20)
+### [3\. Glasses Wedding](https://www.amazon.com/Cocktail-Glass-Creative-Drinking-margarita/dp/B0919L6KXR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cocktail-Glass-Creative-Drinking-margarita/dp/B0919L6KXR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cocktail-Glass-Creative-Drinking-margarita/dp/B0919L6KXR/?ie=UTF8&tag=giftable02-20)
 
 Create a unique and unforgettable drinking experience with the Creative Drinking Cocktail Glass, a must-have for weddings and other special events.
 
@@ -69,11 +69,11 @@ The solution is in its unique design, which lets you to enjoy your favorite drin
 
 ✔️ Can hold up to 10 ounces of liquid
 
-[Buy from Amazon](https://www.amazon.com/Cocktail-Glass-Creative-Drinking-margarita/dp/B0919L6KXR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cocktail-Glass-Creative-Drinking-margarita/dp/B0919L6KXR/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Swan Crew Socks](https://www.amazon.com/Foozys-Womens-Animal-Fashion-Novelty/dp/B08HBNMYSW/?ie=UTF8&tag=avadalove-20) 
+### [4\. Swan Crew Socks](https://www.amazon.com/Foozys-Womens-Animal-Fashion-Novelty/dp/B08HBNMYSW/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Foozys-Womens-Animal-Fashion-Novelty/dp/B08HBNMYSW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Foozys-Womens-Animal-Fashion-Novelty/dp/B08HBNMYSW/?ie=UTF8&tag=giftable02-20)
 
 Infuse your sock collection with a touch of charm and comfort with the delightful Swan Crew Socks.
 
@@ -87,7 +87,7 @@ The Swan Crew Socks are crafted with care from a combination of high-quality fab
 
 ✔️ Universal fit suitable for shoe sizes 5-9
 
-[Buy from Amazon](https://www.amazon.com/Foozys-Womens-Animal-Fashion-Novelty/dp/B08HBNMYSW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Foozys-Womens-Animal-Fashion-Novelty/dp/B08HBNMYSW/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Swans Pop-Up Card](https://www.lovepop.com/products/swans-pop-up-card?variant=30884575936585)
 
@@ -107,9 +107,9 @@ This card is the perfect size for mailing through the mail or giving in person, 
 
 [Buy from Lovepop](https://www.lovepop.com/products/swans-pop-up-card?variant=30884575936585)
 
-### [6\.  Swan Earrings](https://www.amazon.com/ELFRONT-Earrings-Valentines-Christmas-Girlfriend/dp/B0C2PN3K3Z/?ie=UTF8&tag=avadalove-20)
+### [6\.  Swan Earrings](https://www.amazon.com/ELFRONT-Earrings-Valentines-Christmas-Girlfriend/dp/B0C2PN3K3Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ELFRONT-Earrings-Valentines-Christmas-Girlfriend/dp/B0C2PN3K3Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ELFRONT-Earrings-Valentines-Christmas-Girlfriend/dp/B0C2PN3K3Z/?ie=UTF8&tag=giftable02-20)
 
 Discover the beauty of elegance and grace with the exquisite Swan Earrings, a stunning accessory you won't want to miss.
 
@@ -123,7 +123,7 @@ The Swan Earrings, handcrafted with care, feature a delicate and detailed swan p
 
 ✔️ Hypoallergenic hooks suitable for sensitive ears
 
-[Buy from Amazon](https://www.amazon.com/ELFRONT-Earrings-Valentines-Christmas-Girlfriend/dp/B0C2PN3K3Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ELFRONT-Earrings-Valentines-Christmas-Girlfriend/dp/B0C2PN3K3Z/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Couple Metal Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1088572912/personalized-swan-couple-metal-sign)
 
@@ -143,9 +143,9 @@ This finely created metal sign is the right size to accent any environment, meas
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1088572912/personalized-swan-couple-metal-sign)
 
-### [8\. Swan Keychain](https://www.amazon.com/ENSIANTH-Keychain-Yourself-Inspirational-Positive/dp/B085HR34S2/?ie=UTF8&tag=avadalove-20) 
+### [8\. Swan Keychain](https://www.amazon.com/ENSIANTH-Keychain-Yourself-Inspirational-Positive/dp/B085HR34S2/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/ENSIANTH-Keychain-Yourself-Inspirational-Positive/dp/B085HR34S2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ENSIANTH-Keychain-Yourself-Inspirational-Positive/dp/B085HR34S2/?ie=UTF8&tag=giftable02-20)
 
 In search of a unique and meaningful accessory to elevate your mood? Look no more—the enchanting Swan Keychain is here to inspire!
 
@@ -159,11 +159,11 @@ The Swan Keychain is handcrafted with care and includes a lovely swan motif that
 
 ✔️ Inspirational message engraved for positive affirmation
 
-[Buy from Amazon](https://www.amazon.com/ENSIANTH-Keychain-Yourself-Inspirational-Positive/dp/B085HR34S2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ENSIANTH-Keychain-Yourself-Inspirational-Positive/dp/B085HR34S2/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Mini Pop Fidget](https://www.amazon.com/Roaqua-Fidget-Sensory-Birthday-Classroom/dp/B0C24KDPP9/?ie=UTF8&tag=avadalove-20)
+### [9\. Mini Pop Fidget](https://www.amazon.com/Roaqua-Fidget-Sensory-Birthday-Classroom/dp/B0C24KDPP9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Roaqua-Fidget-Sensory-Birthday-Classroom/dp/B0C24KDPP9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Roaqua-Fidget-Sensory-Birthday-Classroom/dp/B0C24KDPP9/?ie=UTF8&tag=giftable02-20)
 
 Keep your hands moving and your mind engaged with the highly addictive Roaqua Mini Pop Fidget. This exciting new sensory toy is perfect for anyone who loves to fidget!
 
@@ -177,7 +177,7 @@ This toy is intended to last and can survive even the most ardent fidgeting beca
 
 ✔️ Portable and easy to take with you on the go
 
-[Buy from Amazon](https://www.amazon.com/Roaqua-Fidget-Sensory-Birthday-Classroom/dp/B0C24KDPP9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Roaqua-Fidget-Sensory-Birthday-Classroom/dp/B0C24KDPP9/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Swan Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=http://etsy.com/listing/1309902144/always-be-yourself-unless-you-can-be-a)
 
@@ -197,9 +197,9 @@ Its double-walled stainless steel structure keeps your beverages hot or cold at 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=http://etsy.com/listing/1309902144/always-be-yourself-unless-you-can-be-a)
 
-### [11\. Blue Swan](https://www.amazon.com/YU-FENG-Jewelry-Collectible-Figurines/dp/B07V8HWJWP/?ie=UTF8&tag=avadalove-20)
+### [11\. Blue Swan](https://www.amazon.com/YU-FENG-Jewelry-Collectible-Figurines/dp/B07V8HWJWP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YU-FENG-Jewelry-Collectible-Figurines/dp/B07V8HWJWP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YU-FENG-Jewelry-Collectible-Figurines/dp/B07V8HWJWP/?ie=UTF8&tag=giftable02-20)
 
 Admire the soft blue color and sparkling crystal accents of the YU FENG Blue Swan figurine, a true work of art.
 
@@ -213,11 +213,11 @@ The Blue Swan is the perfect size for exhibiting on your dressing table or mantl
 
 ✔️ Soft blue color and sparkling crystal accents add a touch of glamour
 
-[Buy from Amazon](https://www.amazon.com/YU-FENG-Jewelry-Collectible-Figurines/dp/B07V8HWJWP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YU-FENG-Jewelry-Collectible-Figurines/dp/B07V8HWJWP/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Sparkle Crystal Swan](https://www.amazon.com/Figurine-Collection-Paperweight-Centerpiece-Ornament/dp/B017STCT0O/?ie=UTF8&tag=avadalove-20)
+### [12\. Sparkle Crystal Swan](https://www.amazon.com/Figurine-Collection-Paperweight-Centerpiece-Ornament/dp/B017STCT0O/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Figurine-Collection-Paperweight-Centerpiece-Ornament/dp/B017STCT0O/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Figurine-Collection-Paperweight-Centerpiece-Ornament/dp/B017STCT0O/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchanting beauty of the Sparkle Crystal Swan Figurine—an exquisite masterpiece that effortlessly blends elegance and enchantment. Curious to discover this significant product that adds a dazzling sparkle to your space?
 
@@ -231,7 +231,7 @@ This magnificent figurine, measuring approximately 2.5 inches in height and 3.5 
 
 ✔️ The sparkling presence creates an enchanting ambiance
 
-[Buy from Amazon](https://www.amazon.com/Figurine-Collection-Paperweight-Centerpiece-Ornament/dp/B017STCT0O/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Figurine-Collection-Paperweight-Centerpiece-Ornament/dp/B017STCT0O/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. White Swarovski Swan Brooch Pin](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1397864454/white-swarovski-swan-brooch-pin-for)
 
@@ -269,9 +269,9 @@ This Swan Throw Pillow, measuring approximately 18x18 inches, is the ideal accen
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1301597205/animal-kingdom-series-couple-dog-and)
 
-### [15\. Swan Pull String Activity](https://www.amazon.com/Montessori-Activity-Sensory-Teething-Stroller/dp/B0BFNLLGZ2/?ie=UTF8&tag=avadalove-20)
+### [15\. Swan Pull String Activity](https://www.amazon.com/Montessori-Activity-Sensory-Teething-Stroller/dp/B0BFNLLGZ2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Montessori-Activity-Sensory-Teething-Stroller/dp/B0BFNLLGZ2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Montessori-Activity-Sensory-Teething-Stroller/dp/B0BFNLLGZ2/?ie=UTF8&tag=giftable02-20)
 
 Keep your little one entertained and engaged with the Swan Pull String Activity - a unique and captivating activity toy.
 
@@ -285,11 +285,11 @@ The Swan Pull String Activity is appropriately sized for tiny hands to grip and 
 
 ✔️ High-quality, non-toxic materials
 
-[Buy from Amazon](https://www.amazon.com/Montessori-Activity-Sensory-Teething-Stroller/dp/B0BFNLLGZ2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Montessori-Activity-Sensory-Teething-Stroller/dp/B0BFNLLGZ2/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Swan Plush Toy](https://www.amazon.com/TAMMYFLYFLY-Swan-Plush-Toy-White/dp/B07P554WNW/?ie=UTF8&tag=avadalove-20)
+### [16\. Swan Plush Toy](https://www.amazon.com/TAMMYFLYFLY-Swan-Plush-Toy-White/dp/B07P554WNW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TAMMYFLYFLY-Swan-Plush-Toy-White/dp/B07P554WNW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TAMMYFLYFLY-Swan-Plush-Toy-White/dp/B07P554WNW/?ie=UTF8&tag=giftable02-20)
 
 Need some enchantment in your life? The Swan Plush Toy is the perfect choice! This captivating and whimsical creation will ignite your curiosity and take you on a journey through a world of wonder.
 
@@ -303,7 +303,7 @@ Its plush texture is not only delightfully soft, but also extremely robust, assu
 
 ✔️ Soft and Huggable Material
 
-[Buy from Amazon](https://www.amazon.com/TAMMYFLYFLY-Swan-Plush-Toy-White/dp/B07P554WNW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TAMMYFLYFLY-Swan-Plush-Toy-White/dp/B07P554WNW/?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Swan Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1376780988/swan-bracelet-black-big-bird-swan-charms)
 
@@ -323,9 +323,9 @@ The Swan Bracelet, which is roughly 7 inches in length, is the ideal accessory f
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1376780988/swan-bracelet-black-big-bird-swan-charms)
 
-### [18\. Swan Mug](https://www.amazon.com/Always-Yourself-Unless-Swan-Then/dp/B07G9QG9PR/?ie=UTF8&tag=avadalove-20)
+### [18\. Swan Mug](https://www.amazon.com/Always-Yourself-Unless-Swan-Then/dp/B07G9QG9PR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Always-Yourself-Unless-Swan-Then/dp/B07G9QG9PR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Always-Yourself-Unless-Swan-Then/dp/B07G9QG9PR/?ie=UTF8&tag=giftable02-20)
 
 Dreaming of a more refined sipping experience? Delight in the enchantment of the Swan Mug! This captivating and whimsical creation is bound to pique your curiosity and elevate your sipping experience.
 
@@ -339,11 +339,11 @@ Let's take a closer look at the lovely characteristics of this Swan Mug. First, 
 
 ✔️ Sturdy Handle for Comfortable Grip
 
-[Buy from Amazon](https://www.amazon.com/Always-Yourself-Unless-Swan-Then/dp/B07G9QG9PR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Always-Yourself-Unless-Swan-Then/dp/B07G9QG9PR/?ie=UTF8&tag=giftable02-20)
 
-### [19\.  Swan T-Shirt](https://www.amazon.com/Swan-Lovers-Always-Yourself-T-Shirt/dp/B08L4KXWJ7/?ie=UTF8&tag=avadalove-20)
+### [19\.  Swan T-Shirt](https://www.amazon.com/Swan-Lovers-Always-Yourself-T-Shirt/dp/B08L4KXWJ7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Swan-Lovers-Always-Yourself-T-Shirt/dp/B08L4KXWJ7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Swan-Lovers-Always-Yourself-T-Shirt/dp/B08L4KXWJ7/?ie=UTF8&tag=giftable02-20)
 
 Elevate your casual style with the Swan T-Shirt - a comfortable and fashionable shirt that's perfect for swan lovers.
 
@@ -357,11 +357,11 @@ The Swan T-Shirt is available in a variety of sizes to fit every body shape, mea
 
 ✔️ Available in a range of sizes
 
-[Buy from Amazon](https://www.amazon.com/Swan-Lovers-Always-Yourself-T-Shirt/dp/B08L4KXWJ7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Swan-Lovers-Always-Yourself-T-Shirt/dp/B08L4KXWJ7/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Swan Candle Holder with Led](https://www.amazon.com/Anniversary-Valentines-Engagement-Christmas-Birthday/dp/B0BC8RWJND/?ie=UTF8&tag=avadalove-20)
+### [20\. Swan Candle Holder with Led](https://www.amazon.com/Anniversary-Valentines-Engagement-Christmas-Birthday/dp/B0BC8RWJND/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Anniversary-Valentines-Engagement-Christmas-Birthday/dp/B0BC8RWJND/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Anniversary-Valentines-Engagement-Christmas-Birthday/dp/B0BC8RWJND/?ie=UTF8&tag=giftable02-20)
 
 Craving a sophisticated and ambient vibe in your decor? Experience the beauty of the Swan Candle Holder with LED!
 
@@ -375,11 +375,11 @@ This candle holder is 4.72 inches tall and 6.3 inches wide, giving it the ideal 
 
 ✔️ Perfect Size for Various Decor Spaces
 
-[Buy from Amazon](https://www.amazon.com/Anniversary-Valentines-Engagement-Christmas-Birthday/dp/B0BC8RWJND/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Anniversary-Valentines-Engagement-Christmas-Birthday/dp/B0BC8RWJND/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Dream Blanket](https://www.amazon.com/aden-anais-Blanket-Lightweight-Breathable/dp/B07KWW96J9/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Dream Blanket](https://www.amazon.com/aden-anais-Blanket-Lightweight-Breathable/dp/B07KWW96J9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/aden-anais-Blanket-Lightweight-Breathable/dp/B07KWW96J9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/aden-anais-Blanket-Lightweight-Breathable/dp/B07KWW96J9/?th=1?ie=UTF8&tag=giftable02-20)
 
 Keep your baby warm and snug with the Dream Blanket- the perfect blanket for snuggling up with your little one.
 
@@ -393,7 +393,7 @@ The Dream Blanket is amply large, measuring roughly 47 by 47 inches, and is idea
 
 ✔️ Generously sized at approximately 47 x 47 inches
 
-[Buy from Amazon](https://www.amazon.com/aden-anais-Blanket-Lightweight-Breathable/dp/B07KWW96J9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/aden-anais-Blanket-Lightweight-Breathable/dp/B07KWW96J9/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Swan Keyring](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1180494574/swan-keyring-swan-keychain-keychain-for)
 
@@ -413,9 +413,9 @@ This keychain is approximately 2.5 inches long, giving it the ideal size for hol
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1180494574/swan-keyring-swan-keychain-keychain-for)
 
-### [23\. Pearl Necklace](https://www.amazon.com/FANCIME-Freshwater-Sterling-Solitaire-Birthstone/dp/B088M11TDW/?ie=UTF8&tag=avadalove-20)
+### [23\. Pearl Necklace](https://www.amazon.com/FANCIME-Freshwater-Sterling-Solitaire-Birthstone/dp/B088M11TDW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FANCIME-Freshwater-Sterling-Solitaire-Birthstone/dp/B088M11TDW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FANCIME-Freshwater-Sterling-Solitaire-Birthstone/dp/B088M11TDW/?ie=UTF8&tag=giftable02-20)
 
 Elevate your jewelry game with the Pearl Necklace- a timeless and elegant piece that's perfect for any occasion.
 
@@ -429,11 +429,11 @@ This necklace is approximately 18 inches long and lays wonderfully on the collar
 
 ✔️ Adjustable length to suit any neckline
 
-[Buy from Amazon](https://www.amazon.com/FANCIME-Freshwater-Sterling-Solitaire-Birthstone/dp/B088M11TDW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FANCIME-Freshwater-Sterling-Solitaire-Birthstone/dp/B088M11TDW/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Swan Shaped Glass Barometer](https://www.amazon.com/Glassic-Gifts-Shaped-Glass-Barometer/dp/B00MREWKLY/?ie=UTF8&tag=avadalove-20)
+### [24\. Swan Shaped Glass Barometer](https://www.amazon.com/Glassic-Gifts-Shaped-Glass-Barometer/dp/B00MREWKLY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Glassic-Gifts-Shaped-Glass-Barometer/dp/B00MREWKLY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Glassic-Gifts-Shaped-Glass-Barometer/dp/B00MREWKLY/?ie=UTF8&tag=giftable02-20)
 
 In search of a centerpiece that captures both elegance and scientific wonder? Delight in the beauty of the Swan Shaped Glass Barometer!
 
@@ -447,7 +447,7 @@ This glass barometer is 8.6 inches tall and 4.3 inches wide, making it a signifi
 
 ✔️ Substantial Size for Eye-Catching Display
 
-[Buy from Amazon](https://www.amazon.com/Glassic-Gifts-Shaped-Glass-Barometer/dp/B00MREWKLY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Glassic-Gifts-Shaped-Glass-Barometer/dp/B00MREWKLY/?ie=UTF8&tag=giftable02-20)
 
 ### [25\.  Swan Stickers](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1344012810/random-swan-stickers-free-shipping)
 
@@ -467,9 +467,9 @@ The stickers are composed of high-quality materials, assuring long-lasting adher
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1344012810/random-swan-stickers-free-shipping)
 
-### [26\. Crystal Swan](http://amazon.com/Stoppers-Decorative-Reusable-Beverage-Silicone/dp/B0BGSKN128/?th=1?ie=UTF8&tag=avadalove-20) 
+### [26\. Crystal Swan](http://amazon.com/Stoppers-Decorative-Reusable-Beverage-Silicone/dp/B0BGSKN128/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](http://amazon.com/Stoppers-Decorative-Reusable-Beverage-Silicone/dp/B0BGSKN128/?th=1?ie=UTF8&tag=avadalove-20)
+[](http://amazon.com/Stoppers-Decorative-Reusable-Beverage-Silicone/dp/B0BGSKN128/?th=1?ie=UTF8&tag=giftable02-20)
 
 Ready to take your wine enjoyment to new heights and leave a lasting impression? Discover the captivating Crystal Swan Wine Stoppers
 
@@ -483,7 +483,7 @@ These wine stoppers are not only beautiful but also functional. Each stopper is 
 
 ✔️ Reusable and Easy to Clean for Long-Lasting Use
 
-[Buy from Amazon](http://amazon.com/Stoppers-Decorative-Reusable-Beverage-Silicone/dp/B0BGSKN128/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](http://amazon.com/Stoppers-Decorative-Reusable-Beverage-Silicone/dp/B0BGSKN128/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Music Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1000818900/music-box-swan-lake)
 
@@ -503,9 +503,9 @@ This tiny sculpture, measuring 4 inches by 3 inches, is ideal for any tabletop o
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1000818900/music-box-swan-lake)
 
-### [28\. Musical Jewelry Storage Box](https://www.amazon.com/Jewelkeeper-Musical-Jewelry-Spinning-Ballerina/dp/B084JJ8MXD/r?ie=UTF8&tag=avadalove-20)
+### [28\. Musical Jewelry Storage Box](https://www.amazon.com/Jewelkeeper-Musical-Jewelry-Spinning-Ballerina/dp/B084JJ8MXD/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jewelkeeper-Musical-Jewelry-Spinning-Ballerina/dp/B084JJ8MXD/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jewelkeeper-Musical-Jewelry-Spinning-Ballerina/dp/B084JJ8MXD/r?ie=UTF8&tag=giftable02-20)
 
 For an enchanting way to store and showcase your jewelry collection, the Musical Jewelry Storage Box is a must-have.
 
@@ -519,11 +519,11 @@ It is roughly 6.1 inches long, 4.1 inches wide, and 3.3 inches tall, offering ad
 
 ✔️ Multiple Compartments for Organized Jewelry Storage.
 
-[Buy from Amazon](https://www.amazon.com/Jewelkeeper-Musical-Jewelry-Spinning-Ballerina/dp/B084JJ8MXD/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jewelkeeper-Musical-Jewelry-Spinning-Ballerina/dp/B084JJ8MXD/r?ie=UTF8&tag=giftable02-20)
 
-### [29\. 3D Crystal Swan](https://www.amazon.com/YWHL-Figurine-Valentines-Anniversary-Collection/dp/B0BQDQHCZL/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. 3D Crystal Swan](https://www.amazon.com/YWHL-Figurine-Valentines-Anniversary-Collection/dp/B0BQDQHCZL/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YWHL-Figurine-Valentines-Anniversary-Collection/dp/B0BQDQHCZL/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YWHL-Figurine-Valentines-Anniversary-Collection/dp/B0BQDQHCZL/?th=1?ie=UTF8&tag=giftable02-20)
 
 Surprise your loved one with a unique and stunning gift - the 3D Crystal Swan Figurine from YWHL is the perfect choice.
 
@@ -537,7 +537,7 @@ This tiny sculpture, measuring 2.4 x 2.4 x 3.9 inches, is ideal for any tabletop
 
 ✔️ Compact size, perfect for any space
 
-[Buy from Amazon](https://www.amazon.com/YWHL-Figurine-Valentines-Anniversary-Collection/dp/B0BQDQHCZL/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YWHL-Figurine-Valentines-Anniversary-Collection/dp/B0BQDQHCZL/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Swan Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1372168279/swan-swan-sign-swan-decor-swan-lover)
 
@@ -557,9 +557,9 @@ This sign is appropriately scaled to demand attention without overwhelming the s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1372168279/swan-swan-sign-swan-decor-swan-lover)
 
-### [31\.  White Swan Figurines](https://www.amazon.com/Easy-99-Figurines-Collection-Decoration/dp/B07S4DVL68/?ie=UTF8&tag=avadalove-20) 
+### [31\.  White Swan Figurines](https://www.amazon.com/Easy-99-Figurines-Collection-Decoration/dp/B07S4DVL68/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Easy-99-Figurines-Collection-Decoration/dp/B07S4DVL68/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Easy-99-Figurines-Collection-Decoration/dp/B07S4DVL68/?ie=UTF8&tag=giftable02-20)
 
 Want to spruce up your living quarters with a striking and individualistic decor piece? The White Swan Figurines are the perfect choice for adding some panache to your place.
 
@@ -573,11 +573,11 @@ These small pieces are the right size for any location, measuring 4.5 x 3.5 x 2.
 
 ✔️ Compact size, perfect for any space
 
-[Buy from Amazon](https://www.amazon.com/Easy-99-Figurines-Collection-Decoration/dp/B07S4DVL68/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Easy-99-Figurines-Collection-Decoration/dp/B07S4DVL68/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Clock Table](https://www.amazon.com/Matashi-Figurine-Christmas-Anniversary-Valentines/dp/B08HS6BQ1K/?ie=UTF8&tag=avadalove-20) 
+### [32\. Clock Table](https://www.amazon.com/Matashi-Figurine-Christmas-Anniversary-Valentines/dp/B08HS6BQ1K/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Matashi-Figurine-Christmas-Anniversary-Valentines/dp/B08HS6BQ1K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Matashi-Figurine-Christmas-Anniversary-Valentines/dp/B08HS6BQ1K/?ie=UTF8&tag=giftable02-20)
 
 Are you on the hunt for an unconventional and functional piece of furniture that can effortlessly merge beauty with usefulness? Discover the impeccable Clock Table.
 
@@ -591,7 +591,7 @@ This table is appropriately scaled to fit into a variety of locations, measuring
 
 ✔️ Versatile Placement Options in Various Rooms or Offices
 
-[Buy from Amazon](https://www.amazon.com/Matashi-Figurine-Christmas-Anniversary-Valentines/dp/B08HS6BQ1K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Matashi-Figurine-Christmas-Anniversary-Valentines/dp/B08HS6BQ1K/?ie=UTF8&tag=giftable02-20)
 
 ### [33\.  Swan Ring](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/967644888/sterling-silver-tiny-swan-ring-animal)
 
@@ -611,9 +611,9 @@ Its delicate and detailed embellishments set it apart from other rings, and its 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/967644888/sterling-silver-tiny-swan-ring-animal)
 
-### [34\. Plush Stuff Toy](https://www.amazon.com/Stuffed-Animal-Smooth-Goose-Plush/dp/B09TB47WC8/?ie=UTF8&tag=avadalove-20)
+### [34\. Plush Stuff Toy](https://www.amazon.com/Stuffed-Animal-Smooth-Goose-Plush/dp/B09TB47WC8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stuffed-Animal-Smooth-Goose-Plush/dp/B09TB47WC8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stuffed-Animal-Smooth-Goose-Plush/dp/B09TB47WC8/?ie=UTF8&tag=giftable02-20)
 
 Do you crave a fun-filled and comforting journey that can transport you to a world of joy and friendship? The delightful Plush Stuff Toy is the perfect companion to make this dream a reality.
 
@@ -627,7 +627,7 @@ This toy is the perfect size for cuddling and carrying around, measuring roughly
 
 ✔️ Compact Size for Easy Portability and On-the-Go Adventures
 
-[Buy from Amazon](https://www.amazon.com/Stuffed-Animal-Smooth-Goose-Plush/dp/B09TB47WC8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stuffed-Animal-Smooth-Goose-Plush/dp/B09TB47WC8/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Ballet Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1288938672/ballet-bag-personalized-swan-tote-bag)
 

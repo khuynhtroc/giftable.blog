@@ -17,9 +17,9 @@ Forget the mundane and embrace the extraordinary. Our Magpie Gifts are like hidd
 
 Join the league of gift-giving legends and surprise your loved ones with presents that will make them squeal with joy. Our Magpie Gifts collection is a treasure trove of wonders, just waiting to be explored. So, ditch the ordinary, think outside the box, and let your inner magpie guide you to the most enchanting gifts out there. Ready to shine brighter than a magpie on a mission? Shop our collection of 35 dazzling Magpie Gifts and become the hero of every occasion.
 
-### [1\. Magpie Plush Toy](https://www.amazon.com/ZHONGXIN-MADE-Magpie-Plush-Toy/dp/B0BKJP938V/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Magpie Plush Toy](https://www.amazon.com/ZHONGXIN-MADE-Magpie-Plush-Toy/dp/B0BKJP938V/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZHONGXIN-MADE-Magpie-Plush-Toy/dp/B0BKJP938V/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZHONGXIN-MADE-Magpie-Plush-Toy/dp/B0BKJP938V/?th=1?ie=UTF8&tag=giftable02-20)
 
 In need of a fun and colorful plush toy to brighten up your day? The Magpie Plush Toy from ZHONGXIN MADE might just do the trick! Its quirky design and lively colors are sure to bring a smile to your face.
 
@@ -33,11 +33,11 @@ This Magpie Plush Toy is the perfect size for cuddling up with at night or displ
 
 ✔️ Machine-washable fabric for easy cleaning
 
-[Buy from Amazon](https://www.amazon.com/ZHONGXIN-MADE-Magpie-Plush-Toy/dp/B0BKJP938V/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZHONGXIN-MADE-Magpie-Plush-Toy/dp/B0BKJP938V/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. A Meg Langslow Mystery](https://www.amazon.com/Gift-Magpie-Langslow-Mystery-Mysteries-ebook/dp/B084M1Q36J/?ie=UTF8&tag=avadalove-20) 
+### [2\. A Meg Langslow Mystery](https://www.amazon.com/Gift-Magpie-Langslow-Mystery-Mysteries-ebook/dp/B084M1Q36J/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Gift-Magpie-Langslow-Mystery-Mysteries-ebook/dp/B084M1Q36J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gift-Magpie-Langslow-Mystery-Mysteries-ebook/dp/B084M1Q36J/?ie=UTF8&tag=giftable02-20)
 
 Step into a world of mystery and mischief with "A Meg Langslow Mystery" - an enthralling series that will lift you on the edge of your seat, craving more.
 
@@ -51,11 +51,11 @@ With this engaging series, you may immerse yourself in Meg Langslow's rich unive
 
 ✔️ Available in multiple formats for convenience
 
-[Buy from Amazon](https://www.amazon.com/Gift-Magpie-Langslow-Mystery-Mysteries-ebook/dp/B084M1Q36J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gift-Magpie-Langslow-Mystery-Mysteries-ebook/dp/B084M1Q36J/?ie=UTF8&tag=giftable02-20)
 
-### [3\. A Magpie Memoir Hardcover](https://www.amazon.com/George-Magpie-Memoir-Frieda-Hughes/dp/1668016508/?ie=UTF8&tag=avadalove-20)
+### [3\. A Magpie Memoir Hardcover](https://www.amazon.com/George-Magpie-Memoir-Frieda-Hughes/dp/1668016508/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/George-Magpie-Memoir-Frieda-Hughes/dp/1668016508/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/George-Magpie-Memoir-Frieda-Hughes/dp/1668016508/?ie=UTF8&tag=giftable02-20)
 
 Want to lose yourself in a book that will stir your emotions and touch your soul? "A Magpie Memoir Hardcover" by Frieda Hughes is the perfect choice.
 
@@ -69,7 +69,7 @@ This 176-page hardback book is 6.2 x 9.3 inches and features heartbreaking and u
 
 ✔️ Durable hardcover construction for long-lasting enjoyment
 
-[Buy from Amazon](https://www.amazon.com/George-Magpie-Memoir-Frieda-Hughes/dp/1668016508/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/George-Magpie-Memoir-Frieda-Hughes/dp/1668016508/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Magpie Stained Glass Bird](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1444587627/magpie-stained-glass-bird-suncatcher)
 
@@ -89,9 +89,9 @@ This suncatcher, handcrafted with the highest care and accuracy, shows a lovely 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1444587627/magpie-stained-glass-bird-suncatcher)
 
-### [5\. Ceramic Coffee Mug](https://www.amazon.com/Ceramic-Anti-scalding-Handle-CYXChenyu-Porcelain/dp/B08MQGYTZK/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Ceramic Coffee Mug](https://www.amazon.com/Ceramic-Anti-scalding-Handle-CYXChenyu-Porcelain/dp/B08MQGYTZK/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ceramic-Anti-scalding-Handle-CYXChenyu-Porcelain/dp/B08MQGYTZK/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ceramic-Anti-scalding-Handle-CYXChenyu-Porcelain/dp/B08MQGYTZK/?th=1?ie=UTF8&tag=giftable02-20)
 
 Have you ever enjoyed indulging in your favorite coffee from a mug that combines aesthetic allure with unmatched comfort? This Ceramic Coffee Mug is the key to unlocking a world of extraordinary coffee experiences.
 
@@ -105,7 +105,7 @@ This wonderfully constructed mug carries a substantial 12 ounces of your favorit
 
 ✔️ Generous 12-ounce capacity for ample coffee indulgence
 
-[Buy from Amazon](https://www.amazon.com/Ceramic-Anti-scalding-Handle-CYXChenyu-Porcelain/dp/B08MQGYTZK/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ceramic-Anti-scalding-Handle-CYXChenyu-Porcelain/dp/B08MQGYTZK/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Brass Magpie Sculpture](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1280602798/brass-magpie-sculpture-magpie-statue)
 
@@ -161,9 +161,9 @@ This sculpture, made of high-quality wood and standing 4 inches tall, includes m
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1475044139/handcrafted-wood-bird-magpie-wood)
 
-### [9\. Figurine Magpie](https://www.amazon.com/Papo-50286-Figurine-Magpie-Multicolor/dp/B09VD4GGDS/?ie=UTF8&tag=avadalove-20)
+### [9\. Figurine Magpie](https://www.amazon.com/Papo-50286-Figurine-Magpie-Multicolor/dp/B09VD4GGDS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Papo-50286-Figurine-Magpie-Multicolor/dp/B09VD4GGDS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Papo-50286-Figurine-Magpie-Multicolor/dp/B09VD4GGDS/?ie=UTF8&tag=giftable02-20)
 
 Ready to transform your home into a haven of natural wonder? Allow the Figurine Magpie to captivate your senses and immerse you in the captivating world of these intelligent birds.
 
@@ -177,7 +177,7 @@ This exquisite figure is around 4.9 inches tall, allowing you to observe every d
 
 ✔️ Perfect for nature lovers and collectors alike
 
-[Buy from Amazon](https://www.amazon.com/Papo-50286-Figurine-Magpie-Multicolor/dp/B09VD4GGDS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Papo-50286-Figurine-Magpie-Multicolor/dp/B09VD4GGDS/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Home Decor Glass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1091538737/window-hanging-suncatcher-couple-of)
 
@@ -215,9 +215,9 @@ This necklace is not just attractive; it is also well-crafted and durable. The p
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/286964163/magpie-pendant-necklace-magpie-jewelry)
 
-### [12\. Coin Purse Short Style](https://www.amazon.com/Auntroen-Pattern-Portable-Foldable-Suitable/dp/B09L5L3TYR/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Coin Purse Short Style](https://www.amazon.com/Auntroen-Pattern-Portable-Foldable-Suitable/dp/B09L5L3TYR/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Auntroen-Pattern-Portable-Foldable-Suitable/dp/B09L5L3TYR/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Auntroen-Pattern-Portable-Foldable-Suitable/dp/B09L5L3TYR/?th=1?ie=UTF8&tag=giftable02-20)
 
 Fed up with the never-ending challenge of finding a stylish yet practical way to organize your coins and small essentials? Discover the Coin Purse Short Style!
 
@@ -231,11 +231,11 @@ This Coin Purse Short Style is made with accuracy and measures 4.7 inches in len
 
 ✔️ Fashionable patterns add a trendy touch to your style
 
-[Buy from Amazon](https://www.amazon.com/Auntroen-Pattern-Portable-Foldable-Suitable/dp/B09L5L3TYR/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Auntroen-Pattern-Portable-Foldable-Suitable/dp/B09L5L3TYR/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Decorative Throw Pillow](https://www.amazon.com/GICHUGI-18%E2%80%B3%C3%9718%E2%80%B3Anatomy-Cockatiel-Vintage-Decorative/dp/B0BJDFCHYG/?ie=UTF8&tag=avadalove-20)
+### [13\. Decorative Throw Pillow](https://www.amazon.com/GICHUGI-18%E2%80%B3%C3%9718%E2%80%B3Anatomy-Cockatiel-Vintage-Decorative/dp/B0BJDFCHYG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GICHUGI-18%E2%80%B3%C3%9718%E2%80%B3Anatomy-Cockatiel-Vintage-Decorative/dp/B0BJDFCHYG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GICHUGI-18%E2%80%B3%C3%9718%E2%80%B3Anatomy-Cockatiel-Vintage-Decorative/dp/B0BJDFCHYG/?ie=UTF8&tag=giftable02-20)
 
 Transform your home into a whimsical wonderland with the Decorative Throw Pillow. Its one-of-a-kind design and durable construction make it a smart investment.
 
@@ -249,7 +249,7 @@ This pillow is extremely useful and well-crafted. It is 18x18 inches, giving it 
 
 ✔️ Unique and charming design
 
-[Buy from Amazon](https://www.amazon.com/GICHUGI-18%E2%80%B3%C3%9718%E2%80%B3Anatomy-Cockatiel-Vintage-Decorative/dp/B0BJDFCHYG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GICHUGI-18%E2%80%B3%C3%9718%E2%80%B3Anatomy-Cockatiel-Vintage-Decorative/dp/B0BJDFCHYG/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Custom Street Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/560482709/magpie-magpie-gift-magpie-sign-magpie)
 
@@ -287,9 +287,9 @@ This Wooden Puzzle Box is the perfect size for little keepsakes, jewelry, or uni
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1288895743/magpie-wooden-puzzle-box-wooden-magpie)
 
-### [16\. Handmade Birds Ornament](https://www.amazon.com/HAOSUM-Stained-Hanging-Suncatcher-Friends/dp/B08BFCVXT7/?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Handmade Birds Ornament](https://www.amazon.com/HAOSUM-Stained-Hanging-Suncatcher-Friends/dp/B08BFCVXT7/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HAOSUM-Stained-Hanging-Suncatcher-Friends/dp/B08BFCVXT7/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HAOSUM-Stained-Hanging-Suncatcher-Friends/dp/B08BFCVXT7/?th=1?ie=UTF8&tag=giftable02-20)
 
 Bring the beauty of nature indoors with the gorgeous and intricate HAOSUM Handmade Birds Ornament. This stunning suncatcher is designed to showcase the beauty of birds in flight, with each bird uniquely crafted from stained glass in warm, inviting colors.
 
@@ -303,11 +303,11 @@ This suncatcher is ideal to match any area in your house, measuring around 13.5 
 
 ✔️ Versatile size for any room
 
-[Buy from Amazon](https://www.amazon.com/HAOSUM-Stained-Hanging-Suncatcher-Friends/dp/B08BFCVXT7/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HAOSUM-Stained-Hanging-Suncatcher-Friends/dp/B08BFCVXT7/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [17\. A Mother’s Healing Journey](https://www.amazon.com/Lies-Magpie-Postpartum-Depression-Esptein-Barr/dp/1647462452/?ie=UTF8&tag=avadalove-20) 
+### [17\. A Mother’s Healing Journey](https://www.amazon.com/Lies-Magpie-Postpartum-Depression-Esptein-Barr/dp/1647462452/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Lies-Magpie-Postpartum-Depression-Esptein-Barr/dp/1647462452/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lies-Magpie-Postpartum-Depression-Esptein-Barr/dp/1647462452/?ie=UTF8&tag=giftable02-20)
 
 Are you yearning for a powerful and uplifting story of courage and healing? Then, unveil the pages of "A Mother's Healing Journey"—a memoir that explores the profound impact of postpartum depression.
 
@@ -321,7 +321,7 @@ This paperback book, measuring 8.5 inches in height and 5.5 inches in breadth, p
 
 ✔️ Inspires hope and serves as a beacon of healing for mothers in need
 
-[Buy from Amazon](https://www.amazon.com/Lies-Magpie-Postpartum-Depression-Esptein-Barr/dp/1647462452/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lies-Magpie-Postpartum-Depression-Esptein-Barr/dp/1647462452/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Beaded Magpie Inspired Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1379055378/beaded-magpie-inspired-earrings)
 
@@ -359,9 +359,9 @@ This Magpie Metal Decor is made of robust metal and is an astounding 24 inches t
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1242565000/magpie-metal-wind-spinner-garden-decor)
 
-### [20\. Ceramic Mug Coffee](https://www.amazon.com/TZSSP-Ceramic-Coffee-Porcelain-Magpie/dp/B094CBJ447/?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Ceramic Mug Coffee](https://www.amazon.com/TZSSP-Ceramic-Coffee-Porcelain-Magpie/dp/B094CBJ447/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TZSSP-Ceramic-Coffee-Porcelain-Magpie/dp/B094CBJ447/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TZSSP-Ceramic-Coffee-Porcelain-Magpie/dp/B094CBJ447/?th=1?ie=UTF8&tag=giftable02-20)
 
 Start every day off right with the perfect cup of coffee in this stunning Ceramic Mug Coffee, showcasing an intricate magpie design.
 
@@ -375,11 +375,11 @@ This mug is precisely suited to accommodate your favorite hot beverage, measurin
 
 ✔️ Maintains temperature of your drink while remaining cool to the touch
 
-[Buy from Amazon](https://www.amazon.com/TZSSP-Ceramic-Coffee-Porcelain-Magpie/dp/B094CBJ447/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TZSSP-Ceramic-Coffee-Porcelain-Magpie/dp/B094CBJ447/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [21\. Sterling Silver](https://www.amazon.com/Santuzza-Sterling-Silver-Zirconia-Pattern/dp/B09Q89HGP3/?ie=UTF8&tag=avadalove-20)
+### [21\. Sterling Silver](https://www.amazon.com/Santuzza-Sterling-Silver-Zirconia-Pattern/dp/B09Q89HGP3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Santuzza-Sterling-Silver-Zirconia-Pattern/dp/B09Q89HGP3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Santuzza-Sterling-Silver-Zirconia-Pattern/dp/B09Q89HGP3/?ie=UTF8&tag=giftable02-20)
 
 Craving a piece of jewelry that epitomizes elegance and beauty? Look no further than the Sterling Silver Zirconia Pattern—a breathtaking masterpiece that will mesmerize you with its intricate details and timeless charm.
 
@@ -393,7 +393,7 @@ This Sterling Silver necklace has been meticulously crafted and is decorated wit
 
 ✔️ Timeless design that complements any style
 
-[Buy from Amazon](https://www.amazon.com/Santuzza-Sterling-Silver-Zirconia-Pattern/dp/B09Q89HGP3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Santuzza-Sterling-Silver-Zirconia-Pattern/dp/B09Q89HGP3/?ie=UTF8&tag=giftable02-20)
 
 ### [22\.  Long Scarf Light Blue](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1415724725/100-natural-mulberry-silk-68-x-22-long) 
 
@@ -431,9 +431,9 @@ Its rechargeable battery lasts up to 8 hours and the dimming mechanism allows yo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/480178115/magpie-thief-brooch-omens-collection)
 
-### [24\. Gold Wood Lamp](https://www.amazon.com/Moir%C3%A9-Dimmable-Rechargeable-Wireless-Illuminated/dp/B08GTNLQBM/?ie=UTF8&tag=avadalove-20)
+### [24\. Gold Wood Lamp](https://www.amazon.com/Moir%C3%A9-Dimmable-Rechargeable-Wireless-Illuminated/dp/B08GTNLQBM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Moir%C3%A9-Dimmable-Rechargeable-Wireless-Illuminated/dp/B08GTNLQBM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Moir%C3%A9-Dimmable-Rechargeable-Wireless-Illuminated/dp/B08GTNLQBM/?ie=UTF8&tag=giftable02-20)
 
 Eager to bring a touch of luxury to your surroundings? Behold the Gold Wood Lamp—a striking masterpiece that combines sophistication with the captivating beauty of nature.
 
@@ -447,11 +447,11 @@ This Gold Wood Lamp sits at a fantastic height of 18 inches, making it a spectac
 
 ✔️ Creates a warm and inviting ambiance with its soft illumination
 
-[Buy from Amazon](https://www.amazon.com/Moir%C3%A9-Dimmable-Rechargeable-Wireless-Illuminated/dp/B08GTNLQBM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Moir%C3%A9-Dimmable-Rechargeable-Wireless-Illuminated/dp/B08GTNLQBM/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Sterling Silver Enamel Pin](https://www.amazon.com/Santuzza-Sterling-Fashion-Jewelry-Handmade/dp/B08F9HNZHC/?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Sterling Silver Enamel Pin](https://www.amazon.com/Santuzza-Sterling-Fashion-Jewelry-Handmade/dp/B08F9HNZHC/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Santuzza-Sterling-Fashion-Jewelry-Handmade/dp/B08F9HNZHC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Santuzza-Sterling-Fashion-Jewelry-Handmade/dp/B08F9HNZHC/?th=1?ie=UTF8&tag=giftable02-20)
 
 Are you in need of an accessory that will make you stand out? Look no further than the Santuzza Sterling Silver Enamel Pin.
 
@@ -465,7 +465,7 @@ This pin is slightly over an inch long and is the ideal size to add a bit of fla
 
 ✔️ Sturdy clasp for secure wear
 
-[Buy from Amazon](https://www.amazon.com/Santuzza-Sterling-Fashion-Jewelry-Handmade/dp/B08F9HNZHC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Santuzza-Sterling-Fashion-Jewelry-Handmade/dp/B08F9HNZHC/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Bird Jewellery](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1064089493/two-magpies-pendant-handmade-ceramic)
 
@@ -485,9 +485,9 @@ This handcrafted ceramic necklace depicts 2 magpies sitting on a delicate branch
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1064089493/two-magpies-pendant-handmade-ceramic)
 
-### [27\. Decoration Golden Home](https://www.amazon.com/Sculpture-Decoration-Golden-Living-Annunciation/dp/B0B4SL987G/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Decoration Golden Home](https://www.amazon.com/Sculpture-Decoration-Golden-Living-Annunciation/dp/B0B4SL987G/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sculpture-Decoration-Golden-Living-Annunciation/dp/B0B4SL987G/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sculpture-Decoration-Golden-Living-Annunciation/dp/B0B4SL987G/?th=1?ie=UTF8&tag=giftable02-20)
 
 Enhance the ambiance of any room with the captivating Sculpture Decoration Golden Home Annunciation.
 
@@ -501,11 +501,11 @@ This sculpture, 8 inches tall and crafted of high-quality resin, is a long-lasti
 
 ✔️ High-quality resin material ensures durability and longevity
 
-[Buy from Amazon](https://www.amazon.com/Sculpture-Decoration-Golden-Living-Annunciation/dp/B0B4SL987G/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sculpture-Decoration-Golden-Living-Annunciation/dp/B0B4SL987G/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\.  Birdwatching T-Shirt](https://www.amazon.com/Magpie-Winter-Christmas-Birdwatching-T-Shirt/dp/B08HLVMZL7/?ie=UTF8&tag=avadalove-20)
+### [28\.  Birdwatching T-Shirt](https://www.amazon.com/Magpie-Winter-Christmas-Birdwatching-T-Shirt/dp/B08HLVMZL7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magpie-Winter-Christmas-Birdwatching-T-Shirt/dp/B08HLVMZL7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magpie-Winter-Christmas-Birdwatching-T-Shirt/dp/B08HLVMZL7/?ie=UTF8&tag=giftable02-20)
 
 Seeking a wardrobe staple that speaks to your **[birdwatching obsession](https://avada.io/loveable/gifts-bird-lovers/)**? Discover the Birdwatching T-Shirt—a must-have for avid birdwatchers who want to make a statement through their fashion choices.
 
@@ -519,7 +519,7 @@ This T-Shirt depicts a range of bird species in meticulous detail, adding a touc
 
 ✔️ High-quality materials ensure comfort and durability
 
-[Buy from Amazon](https://www.amazon.com/Magpie-Winter-Christmas-Birdwatching-T-Shirt/dp/B08HLVMZL7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magpie-Winter-Christmas-Birdwatching-T-Shirt/dp/B08HLVMZL7/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Cotton Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1072452541/100-recycled-cotton-tote-bag-of-british) 
 
@@ -557,9 +557,9 @@ This Magpie Bird Metal Sign is made of sturdy metal and is approximately 12 inch
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1306197442/personalized-magpie-bird-metal-sign-with)
 
-### [31\. Wall Decor Beautiful Silk](https://www.amazon.com/AtfArt-Beautiful-Scroll-Painting-Flower/dp/B09GK133P4/?th=1?ie=UTF8&tag=avadalove-20) 
+### [31\. Wall Decor Beautiful Silk](https://www.amazon.com/AtfArt-Beautiful-Scroll-Painting-Flower/dp/B09GK133P4/?th=1?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/AtfArt-Beautiful-Scroll-Painting-Flower/dp/B09GK133P4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AtfArt-Beautiful-Scroll-Painting-Flower/dp/B09GK133P4/?th=1?ie=UTF8&tag=giftable02-20)
 
 To enhance your living space, consider the Wall Decor Beautiful Silk Scroll Painting featuring an exquisite floral design.
 
@@ -573,11 +573,11 @@ This artwork is 23.6 by 35.4 inches and is constructed of high-quality silk fabr
 
 ✔️ Unique and one-of-a-kind design
 
-[Buy from Amazon](https://www.amazon.com/AtfArt-Beautiful-Scroll-Painting-Flower/dp/B09GK133P4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AtfArt-Beautiful-Scroll-Painting-Flower/dp/B09GK133P4/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Swallow and Magpie Decorative](https://www.amazon.com/Swallow-Magpie-Decorative-Matchbox-Matches/dp/B0BS8RQ6SB/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Swallow and Magpie Decorative](https://www.amazon.com/Swallow-Magpie-Decorative-Matchbox-Matches/dp/B0BS8RQ6SB/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Swallow-Magpie-Decorative-Matchbox-Matches/dp/B0BS8RQ6SB/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Swallow-Magpie-Decorative-Matchbox-Matches/dp/B0BS8RQ6SB/?th=1?ie=UTF8&tag=giftable02-20)
 
 Want to add a stunning and useful piece to your living space? Meet the Swallow and Magpie Decorative Matchbox.
 
@@ -591,11 +591,11 @@ It fits nicely in your hand, measuring 3.5 inches long, 2 inches wide, and 0.7 i
 
 ✔️ High-quality craftsmanship and attention to detail
 
-[Buy from Amazon](https://www.amazon.com/Swallow-Magpie-Decorative-Matchbox-Matches/dp/B0BS8RQ6SB/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Swallow-Magpie-Decorative-Matchbox-Matches/dp/B0BS8RQ6SB/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Glass Hanging Bird Magpie](https://www.amazon.com/Glass-Hanging-Bird-Magpie-Ornament/dp/B01864V4M4/?ie=UTF8&tag=avadalove-20)
+### [33\. Glass Hanging Bird Magpie](https://www.amazon.com/Glass-Hanging-Bird-Magpie-Ornament/dp/B01864V4M4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Glass-Hanging-Bird-Magpie-Ornament/dp/B01864V4M4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Glass-Hanging-Bird-Magpie-Ornament/dp/B01864V4M4/?ie=UTF8&tag=giftable02-20)
 
 Enliven your living area or garden with the delightful Glass Hanging Bird Magpie Ornament - an eye-catching and unique decor piece.
 
@@ -609,7 +609,7 @@ This lovely bird ornament is 3.5 x 4.7 x 6.3 inches and is made of high-quality 
 
 ✔️ Secure fastening mechanism for worry-free wear
 
-[Buy from Amazon](https://www.amazon.com/Glass-Hanging-Bird-Magpie-Ornament/dp/B01864V4M4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Glass-Hanging-Bird-Magpie-Ornament/dp/B01864V4M4/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Enamel Magpie Brooches](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1420259726/enamel-magpie-brooches-unisex-bird)
 

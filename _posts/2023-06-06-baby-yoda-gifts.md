@@ -17,11 +17,9 @@ Immerse yourself in the magic of Baby Yoda gifts with our selection of high-qual
 
 Let the irresistible cuteness of Baby Yoda bring a happy smile to you or that of your loved ones with our wonderful assortment of Baby Yoda gifts, available exclusively on Loveable.
 
-**You may also like**: **[Star Wars Gifts for Him](/star-wars-gifts-him/)**
+### [1\. Mandalorian Grogu Lunch Box](https://www.amazon.com/Kids-Mandalorian-Child-Backpack-Lunch/dp/B089DP96KW/?ie=UTF8&tag=giftable02-20)
 
-### [1\. Mandalorian Grogu Lunch Box](https://www.amazon.com/Kids-Mandalorian-Child-Backpack-Lunch/dp/B089DP96KW/?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Kids-Mandalorian-Child-Backpack-Lunch/dp/B089DP96KW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kids-Mandalorian-Child-Backpack-Lunch/dp/B089DP96KW/?ie=UTF8&tag=giftable02-20)
 
 This 4-piece Mandalorian Grogu Backpack With Lunch Box set is the ultimate gift for any Baby Yoda enthusiast.
 
@@ -35,11 +33,11 @@ The backpack measures 16 inches in height, 12 inches in width, and 5 inches in d
 
 ✔️ Encourage your baby to go to school
 
-[Buy from Amazon](https://www.amazon.com/Kids-Mandalorian-Child-Backpack-Lunch/dp/B089DP96KW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kids-Mandalorian-Child-Backpack-Lunch/dp/B089DP96KW/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Baby Yoda Crew Socks](https://www.amazon.com/Star-Wars-Baby-Print-Socks/dp/B089QZ3S5Y/?ie=UTF8&tag=avadalove-20) 
+### [2\. Baby Yoda Crew Socks](https://www.amazon.com/Star-Wars-Baby-Print-Socks/dp/B089QZ3S5Y/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Star-Wars-Baby-Print-Socks/dp/B089QZ3S5Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Baby-Print-Socks/dp/B089QZ3S5Y/?ie=UTF8&tag=giftable02-20)
 
 These officially licensed Star Wars socks are a must-have for any fan of the lovable character from The **[Mandalorian](/mandalorian-gifts/)** series.
 
@@ -53,11 +51,11 @@ These socks offer a snug fit and durability that will keep your feet cozy all da
 
 ✔️ Make your children outfit more fashionable and full of happiness
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Baby-Print-Socks/dp/B089QZ3S5Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Baby-Print-Socks/dp/B089QZ3S5Y/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Baby Yoda Fuse Bead Blister Kit](https://www.amazon.com/Perler-80-63090-Mandalorian-Blister-1004pcs/dp/B08B775KLX/?ie=UTF8&tag=avadalove-20)
+### [3\. Baby Yoda Fuse Bead Blister Kit](https://www.amazon.com/Perler-80-63090-Mandalorian-Blister-1004pcs/dp/B08B775KLX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Perler-80-63090-Mandalorian-Blister-1004pcs/dp/B08B775KLX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Perler-80-63090-Mandalorian-Blister-1004pcs/dp/B08B775KLX/?ie=UTF8&tag=giftable02-20)
 
 Whether you're a Star Wars enthusiast looking for a new project or searching for a unique present, this kit is sure to bring joy and entertainment.
 
@@ -71,11 +69,11 @@ Inside the blister kit, you'll find 1000 beads, a square pegboard, a pattern she
 
 ✔️ Showcase your love for the Star Wars universe
 
-[Buy from Amazon](https://www.amazon.com/Perler-80-63090-Mandalorian-Blister-1004pcs/dp/B08B775KLX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Perler-80-63090-Mandalorian-Blister-1004pcs/dp/B08B775KLX/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Mandalorian Edition Board Game](https://www.amazon.com/Operation-Game-Star-Mandalorian-Board/dp/B0853ZZHBX/?ie=UTF8&tag=avadalove-20)
+### [4\. Mandalorian Edition Board Game](https://www.amazon.com/Operation-Game-Star-Mandalorian-Board/dp/B0853ZZHBX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Operation-Game-Star-Mandalorian-Board/dp/B0853ZZHBX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Operation-Game-Star-Mandalorian-Board/dp/B0853ZZHBX/?ie=UTF8&tag=giftable02-20)
 
 This Baby Yoda game is sure to provide hours of entertainment for your kids.
 
@@ -89,7 +87,7 @@ Players must stop Baby Yoda from stealing items including a frog, a cup of soup,
 
 ✔️ Make your kids feel love, care and appreciation
 
-[Buy from Amazon](https://www.amazon.com/Operation-Game-Star-Mandalorian-Board/dp/B0853ZZHBX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Operation-Game-Star-Mandalorian-Board/dp/B0853ZZHBX/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Star Wars Phone Stand](https://www.etsy.com/listing/761964290/star-wars-phone-stand-3d-printed-star)
 
@@ -109,9 +107,9 @@ This phone stand is meticulously crafted with precision using PLA filament, a bi
 
 [Buy from Esty](https://www.etsy.com/listing/761964290/star-wars-phone-stand-3d-printed-star)
 
-### [6\. Figural Sherpa Bean Bag Chair](https://www.amazon.com/Idea-Nuova-Star-Wars-Mandalorian/dp/B08GCZW8WR/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. Figural Sherpa Bean Bag Chair](https://www.amazon.com/Idea-Nuova-Star-Wars-Mandalorian/dp/B08GCZW8WR/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Idea-Nuova-Star-Wars-Mandalorian/dp/B08GCZW8WR/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Idea-Nuova-Star-Wars-Mandalorian/dp/B08GCZW8WR/?th=1?ie=UTF8&tag=giftable02-20)
 
 Indulge in comfort and style with the Idea Nuova Figural Sherpa Trim Bean Bag Chair, and let the charm of Baby Yoda add a touch of whimsy to your relaxation time.
 
@@ -125,11 +123,11 @@ This bean bag chair is thoughtfully designed with a soft mink fabric that is gen
 
 ✔️ Offer the perfect spot to enjoy moments of relaxation
 
-[Buy from Amazon](https://www.amazon.com/Idea-Nuova-Star-Wars-Mandalorian/dp/B08GCZW8WR/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Idea-Nuova-Star-Wars-Mandalorian/dp/B08GCZW8WR/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. Baby Yoda Ankle Socks](https://www.amazon.com/Patterns-Juniors-Womens-Ankle-Socks/dp/B08WRVQZZ6/?ie=UTF8&tag=avadalove-20)
+### [7\. Baby Yoda Ankle Socks](https://www.amazon.com/Patterns-Juniors-Womens-Ankle-Socks/dp/B08WRVQZZ6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Patterns-Juniors-Womens-Ankle-Socks/dp/B08WRVQZZ6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Patterns-Juniors-Womens-Ankle-Socks/dp/B08WRVQZZ6/?ie=UTF8&tag=giftable02-20)
 
 The Baby Yoda Women's 5 Pack Ankle Socks are a must-have accessory for any Star Wars fan, especially those who adore the adorable character known as Baby Yoda.
 
@@ -143,7 +141,7 @@ The fabric blend ensures durability, making these socks suitable for everyday we
 
 ✔️ A perfect addition to any fan's wardrobe
 
-[Buy from Amazon](https://www.amazon.com/Patterns-Juniors-Womens-Ankle-Socks/dp/B08WRVQZZ6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Patterns-Juniors-Womens-Ankle-Socks/dp/B08WRVQZZ6/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Baby Yoda Planter Pot](https://www.etsy.com/listing/1079746592/baby-yoda-planter-pot-with-imitation)
 
@@ -163,9 +161,9 @@ This handcrafted masterpiece brings together the irresistible charm of Baby Yoda
 
 [Buy from Esty](https://www.etsy.com/listing/1079746592/baby-yoda-planter-pot-with-imitation)
 
-### [9\. Yoda Car Hanging](https://www.amazon.com/Alwoligag-Hanging-Accessories-Decoration-Suspension/dp/B0B2N1P9GP/?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Yoda Car Hanging](https://www.amazon.com/Alwoligag-Hanging-Accessories-Decoration-Suspension/dp/B0B2N1P9GP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Alwoligag-Hanging-Accessories-Decoration-Suspension/dp/B0B2N1P9GP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Alwoligag-Hanging-Accessories-Decoration-Suspension/dp/B0B2N1P9GP/?th=1?ie=UTF8&tag=giftable02-20)
 
 These car hanging accessories are a great option for a special gift for a fan of Baby Yoda.
 
@@ -179,11 +177,11 @@ This cute Yoda Baby accessory not only brings joy and style to your car but also
 
 ✔️ A delightful addition to your car's interior for years to come
 
-[Buy from Amazon](https://www.amazon.com/Alwoligag-Hanging-Accessories-Decoration-Suspension/dp/B0B2N1P9GP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Alwoligag-Hanging-Accessories-Decoration-Suspension/dp/B0B2N1P9GP/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [10\. Baby Yoda Toys](https://www.amazon.com/PAZATAO-Action-2-2-Inch-Souvenir-Decoration/dp/B0BX9TYCPH/?ie=UTF8&tag=avadalove-20)
+### [10\. Baby Yoda Toys](https://www.amazon.com/PAZATAO-Action-2-2-Inch-Souvenir-Decoration/dp/B0BX9TYCPH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PAZATAO-Action-2-2-Inch-Souvenir-Decoration/dp/B0BX9TYCPH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PAZATAO-Action-2-2-Inch-Souvenir-Decoration/dp/B0BX9TYCPH/?ie=UTF8&tag=giftable02-20)
 
 Embark on an extraordinary adventure with the Baby Yoda Toys for Kids and delve into the enchanting world of Star Wars like never before.
 
@@ -197,11 +195,11 @@ These versatile toys transcend mere playtime, serving as collectibles, souvenirs
 
 ✔️ Cherished collectibles and imaginative playmates
 
-[Buy from Amazon](https://www.amazon.com/PAZATAO-Action-2-2-Inch-Souvenir-Decoration/dp/B0BX9TYCPH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PAZATAO-Action-2-2-Inch-Souvenir-Decoration/dp/B0BX9TYCPH/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Baby Yoda Swaddle Blanket](https://www.amazon.com/Milk-Snob-Blanket-Star-Child/dp/B08JMCF94N/?ie=UTF8&tag=avadalove-20)
+### [11\. Baby Yoda Swaddle Blanket](https://www.amazon.com/Milk-Snob-Blanket-Star-Child/dp/B08JMCF94N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Milk-Snob-Blanket-Star-Child/dp/B08JMCF94N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Milk-Snob-Blanket-Star-Child/dp/B08JMCF94N/?ie=UTF8&tag=giftable02-20)
 
 Wrap your little one in cozy comfort with the Boy and Girl Swaddle Blanket featuring an adorable Baby Yoda print.
 
@@ -215,7 +213,7 @@ The dual-layer design provides extra warmth and comfort, ensuring a snug and sec
 
 ✔️ Perfect choice for anyone seeking comfort, and a touch of Star Wars magic
 
-[Buy from Amazon](https://www.amazon.com/Milk-Snob-Blanket-Star-Child/dp/B08JMCF94N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Milk-Snob-Blanket-Star-Child/dp/B08JMCF94N/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Amigurumi Car Hanging](https://www.etsy.com/listing/1053700498/rio-handmade-crochet-keychain-car-charm)
 
@@ -235,9 +233,9 @@ With their wide-eyed innocence and irresistible charm, these whimsical creations
 
 [Buy from Esty](https://www.etsy.com/listing/1053700498/rio-handmade-crochet-keychain-car-charm)
 
-### [13\. Grogu Reversible Plushie Toys](https://www.amazon.com/Biliful-Reversible-Plushie-Double-Sided-6-5Inch/dp/B0967KZZXP/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Grogu Reversible Plushie Toys](https://www.amazon.com/Biliful-Reversible-Plushie-Double-Sided-6-5Inch/dp/B0967KZZXP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Biliful-Reversible-Plushie-Double-Sided-6-5Inch/dp/B0967KZZXP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Biliful-Reversible-Plushie-Double-Sided-6-5Inch/dp/B0967KZZXP/?th=1?ie=UTF8&tag=giftable02-20)
 
 With the Grogu Reversible Plushie Toys, you can discover the magic of Grogu and have a delightful companion that lets you communicate your feelings silently.
 
@@ -251,11 +249,11 @@ Its huggable design brings comfort and joy, making it a cherished companion for 
 
 ✔️ Ensure a soft and huggable experience
 
-[Buy from Amazon](https://www.amazon.com/Biliful-Reversible-Plushie-Double-Sided-6-5Inch/dp/B0967KZZXP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Biliful-Reversible-Plushie-Double-Sided-6-5Inch/dp/B0967KZZXP/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [14\. Cute Baby Yoda Headbands](https://www.amazon.com/BLAISTER-Headbands-Scrunchies-Breathable-Accessories/dp/B08MXJ8G1S/?ie=UTF8&tag=avadalove-20)
+### [14\. Cute Baby Yoda Headbands](https://www.amazon.com/BLAISTER-Headbands-Scrunchies-Breathable-Accessories/dp/B08MXJ8G1S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BLAISTER-Headbands-Scrunchies-Breathable-Accessories/dp/B08MXJ8G1S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BLAISTER-Headbands-Scrunchies-Breathable-Accessories/dp/B08MXJ8G1S/?ie=UTF8&tag=giftable02-20)
 
 This adorable Cute Baby Yoda Headband is perfect for adding a cuteness to your everyday outfits or special occasions.
 
@@ -269,11 +267,11 @@ These plush and permeable headbands keep your child comfortable even during vigo
 
 ✔️ Add a playful touch with the lovable Baby Yoda design
 
-[Buy from Amazon](https://www.amazon.com/BLAISTER-Headbands-Scrunchies-Breathable-Accessories/dp/B08MXJ8G1S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BLAISTER-Headbands-Scrunchies-Breathable-Accessories/dp/B08MXJ8G1S/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Baby Yoda Girls’ Costume Hoodie](https://www.amazon.com/Baby-Yoda-Girls-Costume-Hoodie/dp/B08NPS9PGB/?ie=UTF8&tag=avadalove-20)
+### [15\. Baby Yoda Girls’ Costume Hoodie](https://www.amazon.com/Baby-Yoda-Girls-Costume-Hoodie/dp/B08NPS9PGB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Baby-Yoda-Girls-Costume-Hoodie/dp/B08NPS9PGB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Baby-Yoda-Girls-Costume-Hoodie/dp/B08NPS9PGB/?ie=UTF8&tag=giftable02-20)
 
 The Baby Yoda Girls' Costume Hoodie is a delightful piece of clothing that combines style, comfort, and the iconic charm of the beloved Star Wars character.
 
@@ -287,11 +285,11 @@ It's worth noting that this hoodie is officially licensed by Star Wars, guarante
 
 ✔️ Turn ordinary girls into extraordinary little Jedi master
 
-[Buy from Amazon](https://www.amazon.com/Baby-Yoda-Girls-Costume-Hoodie/dp/B08NPS9PGB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Baby-Yoda-Girls-Costume-Hoodie/dp/B08NPS9PGB/?ie=UTF8&tag=giftable02-20)
 
-### [16\. The Mandalorian Cosplay Hoodie](https://www.amazon.com/STAR-WARS-Mandalorian-Toddler-Cosplay/dp/B08643SFM2/?ie=UTF8&tag=avadalove-20) 
+### [16\. The Mandalorian Cosplay Hoodie](https://www.amazon.com/STAR-WARS-Mandalorian-Toddler-Cosplay/dp/B08643SFM2/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/STAR-WARS-Mandalorian-Toddler-Cosplay/dp/B08643SFM2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/STAR-WARS-Mandalorian-Toddler-Cosplay/dp/B08643SFM2/?ie=UTF8&tag=giftable02-20)
 
 The Mandalorian The Child Cosplay Hoodie is a must-have winter essential for your adventurous and imaginative child!
 
@@ -305,7 +303,7 @@ This sweatshirt, officially authorized by Star Wars, demonstrates its reliabilit
 
 ✔️ Keep your child warm during chilly winter days
 
-[Buy from Amazon](https://www.amazon.com/STAR-WARS-Mandalorian-Toddler-Cosplay/dp/B08643SFM2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/STAR-WARS-Mandalorian-Toddler-Cosplay/dp/B08643SFM2/?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Yoda Best Candle](https://www.etsy.com/listing/795719283/yoda-best-star-wars-yoda-lover-baby-yoda)
 
@@ -325,9 +323,9 @@ Soy wax is used to create a clean, even burn that fills your room with a comfort
 
 [Buy from Esty](https://www.etsy.com/listing/795719283/yoda-best-star-wars-yoda-lover-baby-yoda)
 
-### [18\. Yoda Cartoon Cup](https://www.amazon.com/JENRIVERA-Tumbler-Cartoon-insulation-Stainless/dp/B0C23ZT2YG/?ie=UTF8&tag=avadalove-20)
+### [18\. Yoda Cartoon Cup](https://www.amazon.com/JENRIVERA-Tumbler-Cartoon-insulation-Stainless/dp/B0C23ZT2YG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JENRIVERA-Tumbler-Cartoon-insulation-Stainless/dp/B0C23ZT2YG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JENRIVERA-Tumbler-Cartoon-insulation-Stainless/dp/B0C23ZT2YG/?ie=UTF8&tag=giftable02-20)
 
 Cartoon Cup, a magical 20oz insulated vessel that promises to take your drinking experience to new realms of wonder and delight.
 
@@ -341,11 +339,11 @@ This cup is equipped with a BPA-free lid that is leak-resistant, easy to clean, 
 
 ✔️ Bring a touch of magic to every sip
 
-[Buy from Amazon](https://www.amazon.com/JENRIVERA-Tumbler-Cartoon-insulation-Stainless/dp/B0C23ZT2YG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JENRIVERA-Tumbler-Cartoon-insulation-Stainless/dp/B0C23ZT2YG/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Star Wars Snow Globe](https://www.amazon.com/Star-Wars-Mandalorian-Decoration-Collectibles/dp/B09LLMNT5D/?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. Star Wars Snow Globe](https://www.amazon.com/Star-Wars-Mandalorian-Decoration-Collectibles/dp/B09LLMNT5D/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Star-Wars-Mandalorian-Decoration-Collectibles/dp/B09LLMNT5D/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Mandalorian-Decoration-Collectibles/dp/B09LLMNT5D/?th=1?ie=UTF8&tag=giftable02-20)
 
 This snow globe is a true treasure for Star Wars enthusiasts, offering a delightful combination of enchanting design and collector's item appeal.
 
@@ -359,11 +357,11 @@ Its intricate design captures iconic Star Wars characters and scenes, encapsulat
 
 ✔️ Perfect collection to any Star Wars fan
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Mandalorian-Decoration-Collectibles/dp/B09LLMNT5D/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Mandalorian-Decoration-Collectibles/dp/B09LLMNT5D/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. Baby Yoda Toothpaste Cap](https://www.amazon.com/Toothpaste-Topper-G-rogu-Mandalorian-Dispenser/dp/B09NYMRH8N/?ie=UTF8&tag=avadalove-20)
+### [20\. Baby Yoda Toothpaste Cap](https://www.amazon.com/Toothpaste-Topper-G-rogu-Mandalorian-Dispenser/dp/B09NYMRH8N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toothpaste-Topper-G-rogu-Mandalorian-Dispenser/dp/B09NYMRH8N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toothpaste-Topper-G-rogu-Mandalorian-Dispenser/dp/B09NYMRH8N/?ie=UTF8&tag=giftable02-20)
 
 The adorable Baby Yoda Toothpaste Cap, a delightful addition to your daily dental routine.
 
@@ -377,7 +375,7 @@ This toothpaste cap ensures your safety and peace of mind. It is made from non-t
 
 ✔️ Transform a mundane activity into a moment of joy and cuteness
 
-[Buy from Amazon](https://www.amazon.com/Toothpaste-Topper-G-rogu-Mandalorian-Dispenser/dp/B09NYMRH8N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toothpaste-Topper-G-rogu-Mandalorian-Dispenser/dp/B09NYMRH8N/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Baby Yoda Bookmark](https://www.etsy.com/listing/1470547068/baby-yoda-bookmark-baby-yoda-literary) 
 
@@ -397,9 +395,9 @@ This unique accessory is crafted with care, using fabric and cotton fabric to cr
 
 [Buy from Esty](https://www.etsy.com/listing/1470547068/baby-yoda-bookmark-baby-yoda-literary)
 
-### [22\. Baby Yoda Stickers](https://www.amazon.com/Baby_Yoda-Stickers-Waterproof-Skateboard-Baby_Yoda-50Pcs/dp/B08B4J2JM4/?ie=UTF8&tag=avadalove-20)
+### [22\. Baby Yoda Stickers](https://www.amazon.com/Baby_Yoda-Stickers-Waterproof-Skateboard-Baby_Yoda-50Pcs/dp/B08B4J2JM4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Baby_Yoda-Stickers-Waterproof-Skateboard-Baby_Yoda-50Pcs/dp/B08B4J2JM4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Baby_Yoda-Stickers-Waterproof-Skateboard-Baby_Yoda-50Pcs/dp/B08B4J2JM4/?ie=UTF8&tag=giftable02-20)
 
 Baby Yoda Stickers, a collection of enchanting decals that bring the adorable charm of Baby Yoda to any surface.
 
@@ -413,11 +411,11 @@ With their versatile nature, these Baby Yoda Stickers can be attached to a almos
 
 ✔️ A reliable and long-lasting choice for showcasing your fandom
 
-[Buy from Amazon](https://www.amazon.com/Baby_Yoda-Stickers-Waterproof-Skateboard-Baby_Yoda-50Pcs/dp/B08B4J2JM4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Baby_Yoda-Stickers-Waterproof-Skateboard-Baby_Yoda-50Pcs/dp/B08B4J2JM4/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Baby Yoda Grogu 3D Snuggle Pillow](https://www.amazon.com/Jay-Franco-Mandalorian-Snuggle-Pillow/dp/B092PRFQFQ/?ie=UTF8&tag=avadalove-20)
+### [23\. Baby Yoda Grogu 3D Snuggle Pillow](https://www.amazon.com/Jay-Franco-Mandalorian-Snuggle-Pillow/dp/B092PRFQFQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jay-Franco-Mandalorian-Snuggle-Pillow/dp/B092PRFQFQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jay-Franco-Mandalorian-Snuggle-Pillow/dp/B092PRFQFQ/?ie=UTF8&tag=giftable02-20)
 
 Baby Yoda Grogu 3D Snuggle Pillow, the perfect companion for fans of the beloved Star Wars character!
 
@@ -431,7 +429,7 @@ This snuggling cushion is made of very soft microfibre and is intended to offer 
 
 ✔️ Help you experience a galaxy of comfort
 
-[Buy from Amazon](https://www.amazon.com/Jay-Franco-Mandalorian-Snuggle-Pillow/dp/B092PRFQFQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jay-Franco-Mandalorian-Snuggle-Pillow/dp/B092PRFQFQ/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Baby Yoda Engraved Cutting Board](https://www.etsy.com/listing/948400123/baby-yoda-mandalorian-may-the-fork-be)
 
@@ -451,9 +449,9 @@ It is meticulously handcrafted with care and precision, using high-quality wood 
 
 [Buy from Esty](https://www.etsy.com/listing/948400123/baby-yoda-mandalorian-may-the-fork-be)
 
-### [25\. Baby Yoda Embroidered Socks](https://www.amazon.com/Star-Wars-Embroidered-Adult-Socks/dp/B084ZW57JS/?ie=UTF8&tag=avadalove-20)
+### [25\. Baby Yoda Embroidered Socks](https://www.amazon.com/Star-Wars-Embroidered-Adult-Socks/dp/B084ZW57JS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Star-Wars-Embroidered-Adult-Socks/dp/B084ZW57JS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Embroidered-Adult-Socks/dp/B084ZW57JS/?ie=UTF8&tag=giftable02-20)
 
 As a great gift idea, the Baby Yoda Embroidered Ears Adult Crew Socks are sure to bring joy to any Baby Yoda fan in your life.
 
@@ -467,11 +465,11 @@ These officially licensed Star Wars socks feature an adorable Baby Yoda design w
 
 ✔️ Express your love for the Star Wars universe
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Embroidered-Adult-Socks/dp/B084ZW57JS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Embroidered-Adult-Socks/dp/B084ZW57JS/?ie=UTF8&tag=giftable02-20)
 
-### [26\. The Child Sleeveless Romper](https://www.amazon.com/Mandalorian-Girls-Sleeveless-Romper-10-12/dp/B08TPGQTMD/?ie=UTF8&tag=avadalove-20)
+### [26\. The Child Sleeveless Romper](https://www.amazon.com/Mandalorian-Girls-Sleeveless-Romper-10-12/dp/B08TPGQTMD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mandalorian-Girls-Sleeveless-Romper-10-12/dp/B08TPGQTMD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mandalorian-Girls-Sleeveless-Romper-10-12/dp/B08TPGQTMD/?ie=UTF8&tag=giftable02-20)
 
 The Child Girls Sleeveless Romper, a magical outfit designed to transport your little one into the enchanting world of Star Wars!
 
@@ -485,11 +483,11 @@ Prepare for an adventure with this romper's whimsical back button closures, maki
 
 ✔️ Perfect for traversing distant planets or simply twirling
 
-[Buy from Amazon](https://www.amazon.com/Mandalorian-Girls-Sleeveless-Romper-10-12/dp/B08TPGQTMD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mandalorian-Girls-Sleeveless-Romper-10-12/dp/B08TPGQTMD/?ie=UTF8&tag=giftable02-20)
 
-### [27\. The Child Chia Pet Stand](https://www.amazon.com/Exclusive-Chia-Pet-Floating-Decorative/dp/B08DRBZB1K/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. The Child Chia Pet Stand](https://www.amazon.com/Exclusive-Chia-Pet-Floating-Decorative/dp/B08DRBZB1K/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Exclusive-Chia-Pet-Floating-Decorative/dp/B08DRBZB1K/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Exclusive-Chia-Pet-Floating-Decorative/dp/B08DRBZB1K/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Child Chia Pet Floating Edition is an item that will make the recipient plant in a new way for sure!
 
@@ -503,11 +501,11 @@ As you embark on this cosmic gardening journey, witness the miracle of growth un
 
 ✔️ Unique item for home decor
 
-[Buy from Amazon](https://www.amazon.com/Exclusive-Chia-Pet-Floating-Decorative/dp/B08DRBZB1K/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Exclusive-Chia-Pet-Floating-Decorative/dp/B08DRBZB1K/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\. Baby Yoda Building Lego Toy](https://www.amazon.com/LEGO-BrickHeadz-Mandalorian-Featuring-Buildable/dp/B0849S7C5W/?ie=UTF8&tag=avadalove-20)
+### [28\. Baby Yoda Building Lego Toy](https://www.amazon.com/LEGO-BrickHeadz-Mandalorian-Featuring-Buildable/dp/B0849S7C5W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEGO-BrickHeadz-Mandalorian-Featuring-Buildable/dp/B0849S7C5W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEGO-BrickHeadz-Mandalorian-Featuring-Buildable/dp/B0849S7C5W/?ie=UTF8&tag=giftable02-20)
 
 The Baby Yoda Building Lego Toy is a surefire hit for any Star Wars lover or Lego enthusiast.
 
@@ -521,7 +519,7 @@ With its remarkable attention to detail, this Lego rendition of Baby Yoda is a t
 
 ✔️ Make every playtime session a unique experience
 
-[Buy from Amazon](https://www.amazon.com/LEGO-BrickHeadz-Mandalorian-Featuring-Buildable/dp/B0849S7C5W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEGO-BrickHeadz-Mandalorian-Featuring-Buildable/dp/B0849S7C5W/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Baby Yoda Coasters](https://www.etsy.com/listing/915142597/baby-yoda-coasters-set-of-4)
 
@@ -541,9 +539,9 @@ Each coaster is skillfully stained with the desired color, enhancing the natural
 
 [Buy from Esty](https://www.etsy.com/listing/915142597/baby-yoda-coasters-set-of-4)
 
-### [30\. Star Wars Snack Time Game](https://www.amazon.com/Star-Wars-Mandalorian-Snack-Time/dp/B08DDBL2PD/?ie=UTF8&tag=avadalove-20)
+### [30\. Star Wars Snack Time Game](https://www.amazon.com/Star-Wars-Mandalorian-Snack-Time/dp/B08DDBL2PD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Star-Wars-Mandalorian-Snack-Time/dp/B08DDBL2PD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Mandalorian-Snack-Time/dp/B08DDBL2PD/?ie=UTF8&tag=giftable02-20)
 
 Calling all Star Wars fans, get ready for an epic snacking showdown with the Star Wars Snack Time Game!
 
@@ -557,7 +555,7 @@ This exciting game is designed for two players, ages 4 and up, and guarantees en
 
 ✔️ Show off your passion to the Baby Yoda
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Mandalorian-Snack-Time/dp/B08DDBL2PD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Mandalorian-Snack-Time/dp/B08DDBL2PD/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Personalized Baby Yoda Keychain](https://www.etsy.com/listing/1159167776/personalized-baby-yoda-keychain-keyring)
 
@@ -577,9 +575,9 @@ Using premium PLA material, each keychain is painstakingly created with love and
 
 [Buy from Esty](https://www.etsy.com/listing/1159167776/personalized-baby-yoda-keychain-keyring)
 
-### [32\. Diamond Painting Art Stickers](https://www.amazon.com/BURBIG-Diamond-Painting-Stickers-Beginners/dp/B0BYMW9JY3/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Diamond Painting Art Stickers](https://www.amazon.com/BURBIG-Diamond-Painting-Stickers-Beginners/dp/B0BYMW9JY3/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BURBIG-Diamond-Painting-Stickers-Beginners/dp/B0BYMW9JY3/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BURBIG-Diamond-Painting-Stickers-Beginners/dp/B0BYMW9JY3/?th=1?ie=UTF8&tag=giftable02-20)
 
 Unlock the beauty of diamond painting and immerse yourself in the captivating world of anime with the Anime Diamond Painting Art Stickers for Teens.
 
@@ -593,11 +591,11 @@ Each sticker in this collection has been carefully crafted to capture the essenc
 
 ✔️ A special and unique item in your own Star War space
 
-[Buy from Amazon](https://www.amazon.com/BURBIG-Diamond-Painting-Stickers-Beginners/dp/B0BYMW9JY3/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BURBIG-Diamond-Painting-Stickers-Beginners/dp/B0BYMW9JY3/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. 3D Star Wars Night Light](https://www.amazon.com/Star-Wars-Night-Light-Kids/dp/B09CP17MHR/?ie=UTF8&tag=avadalove-20)
+### [33\. 3D Star Wars Night Light](https://www.amazon.com/Star-Wars-Night-Light-Kids/dp/B09CP17MHR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Star-Wars-Night-Light-Kids/dp/B09CP17MHR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Night-Light-Kids/dp/B09CP17MHR/?ie=UTF8&tag=giftable02-20)
 
 Go with this 3D Star Wars Night Light for Kids, you may improve sleep routines, create a calming environment, and add a dash of Star Wars magic.
 
@@ -611,11 +609,11 @@ With the ability to adjust light color using the included remote control or a si
 
 ✔️ Feature a soft, non-flickering light
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Night-Light-Kids/dp/B09CP17MHR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Night-Light-Kids/dp/B09CP17MHR/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Yoda Stuff Heart Keychain](https://www.amazon.com/Melix-Home-Mandalorian-Keychain-Keychains/dp/B0BRKV6VFD/r?ie=UTF8&tag=avadalove-20)
+### [34\. Yoda Stuff Heart Keychain](https://www.amazon.com/Melix-Home-Mandalorian-Keychain-Keychains/dp/B0BRKV6VFD/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Melix-Home-Mandalorian-Keychain-Keychains/dp/B0BRKV6VFD/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Melix-Home-Mandalorian-Keychain-Keychains/dp/B0BRKV6VFD/r?ie=UTF8&tag=giftable02-20)
 
 Celebrate your passion for baby Yoda and showcase your individuality with the Yoda Stuff Heart Keychains.
 
@@ -629,4 +627,4 @@ These charming keychains are made of high-quality 314L stainless steel, ensuring
 
 ✔️ A cherished symbol of your adoration for the Star Wars universe
 
-[Buy from Amazon](https://www.amazon.com/Melix-Home-Mandalorian-Keychain-Keychains/dp/B0BRKV6VFD/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Melix-Home-Mandalorian-Keychain-Keychains/dp/B0BRKV6VFD/r?ie=UTF8&tag=giftable02-20)

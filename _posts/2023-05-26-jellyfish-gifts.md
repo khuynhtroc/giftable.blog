@@ -17,9 +17,9 @@ Imagine the envy-inducing reactions when your friends step into your space and a
 
 But wait, there's more! Our jellyfish-inspired items can be a plush toy you can cuddle on the bed. They bring a touch of cuteness and uniqueness to your room. With over 35 jellyfish gifts, you'll have a hard time resisting the urge to indulge in multiple pieces. Who can blame you? Jellyfish charm knows no bounds!
 
-### [1\. Toy Fun Desk](https://www.amazon.com/Boxer-Gifts-Jellysquish-Jellyfish-BB2237/dp/B0B5RJVGTY/?ie=UTF8&tag=avadalove-20) 
+### [1\. Toy Fun Desk](https://www.amazon.com/Boxer-Gifts-Jellysquish-Jellyfish-BB2237/dp/B0B5RJVGTY/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Boxer-Gifts-Jellysquish-Jellyfish-BB2237/dp/B0B5RJVGTY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Boxer-Gifts-Jellysquish-Jellyfish-BB2237/dp/B0B5RJVGTY/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of fun and playfulness to your office or study space with the Jellysquish Jellyfish from Boxer Gifts - the ultimate Toy Fun Desk addition.
 
@@ -33,11 +33,11 @@ The Jellysquish Jellyfish is the perfect size for any desktop or tabletop, measu
 
 ✔️ Battery-powered for convenience
 
-[Buy from Amazon](https://www.amazon.com/Boxer-Gifts-Jellysquish-Jellyfish-BB2237/dp/B0B5RJVGTY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Boxer-Gifts-Jellysquish-Jellyfish-BB2237/dp/B0B5RJVGTY/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Leather Notebook](https://www.amazon.com/Jellyfish-Friendship-Notebook-Birthday-Graduation/dp/B0B9MQSQDP/?ie=UTF8&tag=avadalove-20) 
+### [2\. Leather Notebook](https://www.amazon.com/Jellyfish-Friendship-Notebook-Birthday-Graduation/dp/B0B9MQSQDP/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Jellyfish-Friendship-Notebook-Birthday-Graduation/dp/B0B9MQSQDP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jellyfish-Friendship-Notebook-Birthday-Graduation/dp/B0B9MQSQDP/?ie=UTF8&tag=giftable02-20)
 
 Unleash your creativity with the mesmerizing Jellyfish Friendship Leather Notebook - the ideal companion for your artistic endeavors!
 
@@ -51,7 +51,7 @@ This notebook's tiny dimension of 6 inches by 8 inches fits neatly into your bag
 
 ✔️ Generous page count ensures you won't run out of space for your ideas
 
-[Buy from Amazon](https://www.amazon.com/Jellyfish-Friendship-Notebook-Birthday-Graduation/dp/B0B9MQSQDP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jellyfish-Friendship-Notebook-Birthday-Graduation/dp/B0B9MQSQDP/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. LED Jellyfish Lamp](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1460092294/led-jellyfish-lamp-luminescent-fabric)
 
@@ -71,9 +71,9 @@ The LED Jellyfish Lamp is the ideal size for a tabletop, at 12 inches in height 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1460092294/led-jellyfish-lamp-luminescent-fabric)
 
-### [4\. Jellyfish Coloring Book](https://www.amazon.com/Jellyfish-Coloring-Adults-Animal-Books/dp/1947243772/?ie=UTF8&tag=avadalove-20)
+### [4\. Jellyfish Coloring Book](https://www.amazon.com/Jellyfish-Coloring-Adults-Animal-Books/dp/1947243772/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jellyfish-Coloring-Adults-Animal-Books/dp/1947243772/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jellyfish-Coloring-Adults-Animal-Books/dp/1947243772/?ie=UTF8&tag=giftable02-20)
 
 Embark on an artistic journey like no other as the captivating Jellyfish Coloring Book transports you to the depths of the ocean!
 
@@ -87,7 +87,7 @@ This coloring book, measuring 8.5 inches by 11 inches, gives you plenty of room 
 
 ✔️ Wide variety of illustrations cater to both beginners and experienced colorists
 
-[Buy from Amazon](https://www.amazon.com/Jellyfish-Coloring-Adults-Animal-Books/dp/1947243772/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jellyfish-Coloring-Adults-Animal-Books/dp/1947243772/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Jellyfish Air Planter](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/280978372/jellyfish-air-planter-hanging-air-plant)
 
@@ -107,9 +107,9 @@ The Jellyfish Air Planter, which is 8 inches in diameter and 16 inches in height
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/280978372/jellyfish-air-planter-hanging-air-plant)
 
-### [6\. Cell Phone Purse](https://www.amazon.com/Chala-Dazzled-Crossbody-Phone-Purse/dp/B07GNY3N9V/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. Cell Phone Purse](https://www.amazon.com/Chala-Dazzled-Crossbody-Phone-Purse/dp/B07GNY3N9V/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chala-Dazzled-Crossbody-Phone-Purse/dp/B07GNY3N9V/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chala-Dazzled-Crossbody-Phone-Purse/dp/B07GNY3N9V/?th=1?ie=UTF8&tag=giftable02-20)
 
 Keep your essentials within reach with the stylish Chala Dazzled Cell Phone Purse - the perfect fashionable accessory!
 
@@ -123,11 +123,11 @@ This cell phone purse is the right size for most smartphones, measuring 5.5 inch
 
 ✔️ Stylish and eye-catching design adds a fashionable touch to any outfit
 
-[Buy from Amazon](https://www.amazon.com/Chala-Dazzled-Crossbody-Phone-Purse/dp/B07GNY3N9V/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Chala-Dazzled-Crossbody-Phone-Purse/dp/B07GNY3N9V/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. Keychains Jellyfish](https://www.amazon.com/Enamel-Jellyfish-Keychain-Jewelry-Wallet/dp/B09VTHFLNN/?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Keychains Jellyfish](https://www.amazon.com/Enamel-Jellyfish-Keychain-Jewelry-Wallet/dp/B09VTHFLNN/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enamel-Jellyfish-Keychain-Jewelry-Wallet/dp/B09VTHFLNN/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enamel-Jellyfish-Keychain-Jewelry-Wallet/dp/B09VTHFLNN/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your everyday carry with the Enamel Keychains Jellyfish - a charming and distinctive accessory that is sure to turn heads.
 
@@ -141,7 +141,7 @@ With a height of about 2 inches, this keychain is small and simple to carry with
 
 ✔️ Lightweight and easy to carry
 
-[Buy from Amazon](https://www.amazon.com/Enamel-Jellyfish-Keychain-Jewelry-Wallet/dp/B09VTHFLNN/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enamel-Jellyfish-Keychain-Jewelry-Wallet/dp/B09VTHFLNN/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Jellyfish Dangle Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1238105964/jellyfish-dangle-earrings-cute-blue)
 
@@ -161,9 +161,9 @@ These earrings are roughly 2 inches long and are the perfect size to give a subt
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1238105964/jellyfish-dangle-earrings-cute-blue)
 
-### [9\.  Jellyfish Socks](https://www.amazon.com/Sock-Me-Jellyfish-Womens-Knee-High/dp/B009Y74SSU/?ie=UTF8&tag=avadalove-20)
+### [9\.  Jellyfish Socks](https://www.amazon.com/Sock-Me-Jellyfish-Womens-Knee-High/dp/B009Y74SSU/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sock-Me-Jellyfish-Womens-Knee-High/dp/B009Y74SSU/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sock-Me-Jellyfish-Womens-Knee-High/dp/B009Y74SSU/?ie=UTF8&tag=giftable02-20)
 
 Elevate your sock game with the Jellyfish Socks from Sock It To Me - a colorful and captivating option for those who want to showcase their fun-loving spirit.
 
@@ -177,11 +177,11 @@ The brilliant colors and whimsical pattern of these socks are one of its most no
 
 ✔️ Machine washable for easy care
 
-[Buy from Amazon](https://www.amazon.com/Sock-Me-Jellyfish-Womens-Knee-High/dp/B009Y74SSU/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sock-Me-Jellyfish-Womens-Knee-High/dp/B009Y74SSU/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Makeup Bag](https://www.amazon.com/MEIKIUP-Jellyfish-Makeup-Marine-Cosmetic/dp/B09DFB6DPZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Makeup Bag](https://www.amazon.com/MEIKIUP-Jellyfish-Makeup-Marine-Cosmetic/dp/B09DFB6DPZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MEIKIUP-Jellyfish-Makeup-Marine-Cosmetic/dp/B09DFB6DPZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MEIKIUP-Jellyfish-Makeup-Marine-Cosmetic/dp/B09DFB6DPZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Experience the ease of accessing your makeup essentials with the MEIKIUP Jellyfish Makeup Bag! This stylish and practical bag is designed to keep your cosmetics organized while adding a touch of marine-inspired charm to your beauty routine.
 
@@ -195,7 +195,7 @@ With measurements of 8.7 inches by 5.3 inches, this cosmetics bag has plenty of 
 
 ✔️ Water-resistant exterior provides added protection for your cosmetics.
 
-[Buy from Amazon](https://www.amazon.com/MEIKIUP-Jellyfish-Makeup-Marine-Cosmetic/dp/B09DFB6DPZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MEIKIUP-Jellyfish-Makeup-Marine-Cosmetic/dp/B09DFB6DPZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Jellyfish Stained Glass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1409339859/jellyfish-stained-glass-sun-catcher)
 
@@ -215,9 +215,9 @@ One of my favorite aspects of this Jellyfish Stained Glass Sun Catcher is its lo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1409339859/jellyfish-stained-glass-sun-catcher)
 
-### [12\. Jellyfish Rings](https://www.amazon.com/WINNICACA-Jellyfish-Sterling-Jewelry-Adjustable/dp/B09XK4DS52/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Jellyfish Rings](https://www.amazon.com/WINNICACA-Jellyfish-Sterling-Jewelry-Adjustable/dp/B09XK4DS52/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WINNICACA-Jellyfish-Sterling-Jewelry-Adjustable/dp/B09XK4DS52/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WINNICACA-Jellyfish-Sterling-Jewelry-Adjustable/dp/B09XK4DS52/?th=1?ie=UTF8&tag=giftable02-20)
 
 Indulge in the beauty of the ocean with WINNICACA Jellyfish Rings - a must-have accessory!
 
@@ -231,11 +231,11 @@ The adjustable design guarantees a secure fit and allows you to wear them on var
 
 ✔️ Captivating and unique design inspired by jellyfish.
 
-[Buy from Amazon](https://www.amazon.com/WINNICACA-Jellyfish-Sterling-Jewelry-Adjustable/dp/B09XK4DS52/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WINNICACA-Jellyfish-Sterling-Jewelry-Adjustable/dp/B09XK4DS52/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Stuffed Animals](https://www.amazon.com/TeeTurtle-Reversible-Octopus-Mini-Plush/dp/B07H48YNJ2/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Stuffed Animals](https://www.amazon.com/TeeTurtle-Reversible-Octopus-Mini-Plush/dp/B07H48YNJ2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TeeTurtle-Reversible-Octopus-Mini-Plush/dp/B07H48YNJ2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TeeTurtle-Reversible-Octopus-Mini-Plush/dp/B07H48YNJ2/?th=1?ie=UTF8&tag=giftable02-20)
 
 With the TeeTurtle Reversible Octopus Mini Plush, you'll never have to wonder how your stuffed animal is feeling - just flip it inside out to reveal a new expression!
 
@@ -249,7 +249,7 @@ This plush is tiny enough to take on the go while yet being fluffy enough to snu
 
 ✔️ Reversible feature allows for changing expressions and added playfulness
 
-[Buy from Amazon](https://www.amazon.com/TeeTurtle-Reversible-Octopus-Mini-Plush/dp/B07H48YNJ2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TeeTurtle-Reversible-Octopus-Mini-Plush/dp/B07H48YNJ2/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Jellyfish Phone Charm](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1431204165/jellyfish-phone-charm-cute-phone-charm)
 
@@ -269,9 +269,9 @@ This Jellyfish Phone Charm is roughly 2 inches tall and is the ideal size for at
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1431204165/jellyfish-phone-charm-cute-phone-charm)
 
-### [15\. Glass Jellyfish Figurines](https://www.amazon.com/Qf-Jellyfish-Handmade-Figurine-Weight/dp/B07GDHZ3DW/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Glass Jellyfish Figurines](https://www.amazon.com/Qf-Jellyfish-Handmade-Figurine-Weight/dp/B07GDHZ3DW/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Qf-Jellyfish-Handmade-Figurine-Weight/dp/B07GDHZ3DW/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Qf-Jellyfish-Handmade-Figurine-Weight/dp/B07GDHZ3DW/?th=1?ie=UTF8&tag=giftable02-20)
 
 Elevate your home decor game with these beautiful Glass Jellyfish Figurines, designed to add a touch of class and intrigue to any space.
 
@@ -285,11 +285,11 @@ These figurines are the right size to lend a touch of refinement to any area, me
 
 ✔️ Intricate attention to detail for a true collector's item
 
-[Buy from Amazon](https://www.amazon.com/Qf-Jellyfish-Handmade-Figurine-Weight/dp/B07GDHZ3DW/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Qf-Jellyfish-Handmade-Figurine-Weight/dp/B07GDHZ3DW/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Jellyfish Pendant](https://www.amazon.com/YFN-Jellyfish-Necklace-Sterling-Pendant/dp/B0BHY64LCG/?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Jellyfish Pendant](https://www.amazon.com/YFN-Jellyfish-Necklace-Sterling-Pendant/dp/B0BHY64LCG/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YFN-Jellyfish-Necklace-Sterling-Pendant/dp/B0BHY64LCG/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YFN-Jellyfish-Necklace-Sterling-Pendant/dp/B0BHY64LCG/?th=1?ie=UTF8&tag=giftable02-20)
 
 Showcase your unique style and love for marine life with the exquisite YFN Jellyfish Pendant Necklace - a captivating accessory.
 
@@ -303,11 +303,11 @@ This pendant itself is 0.79 inches tall and beautifully constructed to exhibit t
 
 ✔️ Comes with an elegant 18-inch chain for comfortable and stylish wear.
 
-[Buy from Amazon](https://www.amazon.com/YFN-Jellyfish-Necklace-Sterling-Pendant/dp/B0BHY64LCG/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YFN-Jellyfish-Necklace-Sterling-Pendant/dp/B0BHY64LCG/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [17\. Throw Blanket](https://www.amazon.com/Miblor-Glowing-Jellyfish-Underwater-Bedspread/dp/B08M9S5Y2X/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Throw Blanket](https://www.amazon.com/Miblor-Glowing-Jellyfish-Underwater-Bedspread/dp/B08M9S5Y2X/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Miblor-Glowing-Jellyfish-Underwater-Bedspread/dp/B08M9S5Y2X/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Miblor-Glowing-Jellyfish-Underwater-Bedspread/dp/B08M9S5Y2X/?th=1?ie=UTF8&tag=giftable02-20)
 
 Bring some magic and wonder into your home with the Miblor Glowing Jellyfish Throw Blanket - designed to add some whimsy and charm to any room.
 
@@ -321,7 +321,7 @@ This warm throw blanket is 50x60 inches and is ideal for lounging on the sofa, a
 
 ✔️ Versatile use as a throw blanket or decorative tapestry
 
-[Buy from Amazon](https://www.amazon.com/Miblor-Glowing-Jellyfish-Underwater-Bedspread/dp/B08M9S5Y2X/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Miblor-Glowing-Jellyfish-Underwater-Bedspread/dp/B08M9S5Y2X/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Eco-Friendly Market Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/264284775/jellyfish-eco-friendly-market-tote-bag) 
 
@@ -341,9 +341,9 @@ This tote bag is made of high-quality fabrics and is around 15.5 inches in width
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/264284775/jellyfish-eco-friendly-market-tote-bag)
 
-### [19\.  Lamp Night](https://www.amazon.com/CALOVER-Electric-Jellyfish-Christmas-Birthday/dp/B07C228KMX/?ie=UTF8&tag=avadalove-20)
+### [19\.  Lamp Night](https://www.amazon.com/CALOVER-Electric-Jellyfish-Christmas-Birthday/dp/B07C228KMX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CALOVER-Electric-Jellyfish-Christmas-Birthday/dp/B07C228KMX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CALOVER-Electric-Jellyfish-Christmas-Birthday/dp/B07C228KMX/?ie=UTF8&tag=giftable02-20)
 
 Searching for a lamp night that stands out from the rest? Look no further than the CALOVER Electric Jellyfish Lamp Night, designed to captivate and mesmerize.
 
@@ -357,7 +357,7 @@ This lamp night is the right size to lend a bit of magic to any area, at around 
 
 ✔️ Realistic design creates the illusion of a real jellyfish tank
 
-[Buy from Amazon](https://www.amazon.com/CALOVER-Electric-Jellyfish-Christmas-Birthday/dp/B07C228KMX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CALOVER-Electric-Jellyfish-Christmas-Birthday/dp/B07C228KMX/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Jellyfish Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1446433771/jellyfish-necklace-gold-cute-jellyfish)
 
@@ -377,9 +377,9 @@ The Jellyfish Necklace is meticulously designed and contains a delicate jellyfis
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1446433771/jellyfish-necklace-gold-cute-jellyfish)
 
-### [21\. Jellyfish Earrings](https://www.amazon.com/Jellyfish-Earrings-Hawaiian-Accessories-Birthday/dp/B0BPSNKPFQ/?ie=UTF8&tag=avadalove-20)
+### [21\. Jellyfish Earrings](https://www.amazon.com/Jellyfish-Earrings-Hawaiian-Accessories-Birthday/dp/B0BPSNKPFQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jellyfish-Earrings-Hawaiian-Accessories-Birthday/dp/B0BPSNKPFQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jellyfish-Earrings-Hawaiian-Accessories-Birthday/dp/B0BPSNKPFQ/?ie=UTF8&tag=giftable02-20)
 
 Make a splash with these beautiful and intricate Jellyfish Earrings - handmade from high-quality materials and perfect for anyone who loves marine life.
 
@@ -393,11 +393,11 @@ These earrings are crafted by hand from high-quality materials and are meant to 
 
 ✔️ Lightweight and comfortable for everyday wear
 
-[Buy from Amazon](https://www.amazon.com/Jellyfish-Earrings-Hawaiian-Accessories-Birthday/dp/B0BPSNKPFQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jellyfish-Earrings-Hawaiian-Accessories-Birthday/dp/B0BPSNKPFQ/?ie=UTF8&tag=giftable02-20)
 
-### [22\. 3D Laser Engraved Jellyfish](https://www.amazon.com/HDCRYSTALGIFTS-Jellyfish-Decorative-Silver-Plated-Decoration/dp/B0BWXRTMZP/?th=1?ie=UTF8&tag=avadalove-20)
+### [22\. 3D Laser Engraved Jellyfish](https://www.amazon.com/HDCRYSTALGIFTS-Jellyfish-Decorative-Silver-Plated-Decoration/dp/B0BWXRTMZP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HDCRYSTALGIFTS-Jellyfish-Decorative-Silver-Plated-Decoration/dp/B0BWXRTMZP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HDCRYSTALGIFTS-Jellyfish-Decorative-Silver-Plated-Decoration/dp/B0BWXRTMZP/?th=1?ie=UTF8&tag=giftable02-20)
 
 Dive into the beauty of the ocean with the exquisite 3D Laser Engraved Jellyfish - a decorative item that combines artistry and precision for a mesmerizing visual experience.
 
@@ -411,11 +411,11 @@ This 3D Laser Engraved Jellyfish is the perfect size to showcase on your mantle,
 
 ✔️ Creates a mesmerizing visual experience that captivates viewers.
 
-[Buy from Amazon](https://www.amazon.com/HDCRYSTALGIFTS-Jellyfish-Decorative-Silver-Plated-Decoration/dp/B0BWXRTMZP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HDCRYSTALGIFTS-Jellyfish-Decorative-Silver-Plated-Decoration/dp/B0BWXRTMZP/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [23\. Sea Ocean Life T-Shirt](https://www.amazon.com/Dont-Be-Jelly-Jellyfish-T-Shirt/dp/B0B4WT17HN/r?ie=UTF8&tag=avadalove-20)
+### [23\. Sea Ocean Life T-Shirt](https://www.amazon.com/Dont-Be-Jelly-Jellyfish-T-Shirt/dp/B0B4WT17HN/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dont-Be-Jelly-Jellyfish-T-Shirt/dp/B0B4WT17HN/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dont-Be-Jelly-Jellyfish-T-Shirt/dp/B0B4WT17HN/r?ie=UTF8&tag=giftable02-20)
 
 For a Sea Ocean Life T-Shirt that's both unique and stylish, you can't go wrong with the Don't Be Jelly Jellyfish T-Shirt.
 
@@ -429,7 +429,7 @@ Because the shirt is made of 100% cotton, it is soft and easy to wear all day. I
 
 ✔️ Affordable price point for such a unique and well-made piece
 
-[Buy from Amazon](https://www.amazon.com/Dont-Be-Jelly-Jellyfish-T-Shirt/dp/B0B4WT17HN/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dont-Be-Jelly-Jellyfish-T-Shirt/dp/B0B4WT17HN/r?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Jellyfish Float Pen](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1370233500/jellyfish-float-pen-floating-pen-liquid)
 
@@ -467,9 +467,9 @@ This Jellyfish Key Chain is the ideal size for attaching to your keys, bag, or p
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1249187583/handmade-crochet-jellyfish-key-chain)
 
-### [26\. Friendship Bookmark](https://www.amazon.com/Christmas-Friendship-Valentines-Graduation-Jellyfish/dp/B0BGKY61TP/?ie=UTF8&tag=avadalove-20)
+### [26\. Friendship Bookmark](https://www.amazon.com/Christmas-Friendship-Valentines-Graduation-Jellyfish/dp/B0BGKY61TP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-Friendship-Valentines-Graduation-Jellyfish/dp/B0BGKY61TP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-Friendship-Valentines-Graduation-Jellyfish/dp/B0BGKY61TP/?ie=UTF8&tag=giftable02-20)
 
 Embrace the joy of reading and enhance your book collection with the delightful Friendship Bookmark.
 
@@ -483,11 +483,11 @@ The Friendship Bookmark is approximately 4 inches long, giving it the ideal size
 
 ✔️ Makes a thoughtful and memorable gift for book lovers.
 
-[Buy from Amazon](https://www.amazon.com/Christmas-Friendship-Valentines-Graduation-Jellyfish/dp/B0BGKY61TP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-Friendship-Valentines-Graduation-Jellyfish/dp/B0BGKY61TP/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Jellyfish T-Shirt](https://www.amazon.com/Jellyfishes-Drawing-Gift-Vitruvian-Jellyfish/dp/B07V3LVS2L/?ie=UTF8&tag=avadalove-20)
+### [27\. Jellyfish T-Shirt](https://www.amazon.com/Jellyfishes-Drawing-Gift-Vitruvian-Jellyfish/dp/B07V3LVS2L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jellyfishes-Drawing-Gift-Vitruvian-Jellyfish/dp/B07V3LVS2L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jellyfishes-Drawing-Gift-Vitruvian-Jellyfish/dp/B07V3LVS2L/?ie=UTF8&tag=giftable02-20)
 
 Want to turn heads with your wardrobe? The Jellyfish T-Shirt, featuring an original and detailed design, is sure to do the trick.
 
@@ -501,7 +501,7 @@ This Jellyfish T-Shirt is available in a range of sizes to match every body shap
 
 ✔️ Available in a variety of sizes
 
-[Buy from Amazon](https://www.amazon.com/Jellyfishes-Drawing-Gift-Vitruvian-Jellyfish/dp/B07V3LVS2L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jellyfishes-Drawing-Gift-Vitruvian-Jellyfish/dp/B07V3LVS2L/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Jellyfish Engraved Glasses](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/841042631/jellyfish-engraved-glasses)
 
@@ -521,9 +521,9 @@ These glasses are 3.5 inches in diameter and 4.7 inches tall, making them the id
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/841042631/jellyfish-engraved-glasses)
 
-### [29\. Keychains Gifts](https://www.amazon.com/WXCATIM-Friendship-Keychains-Anniversary-Accessories/dp/B0B5Q7HPZM/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Keychains Gifts](https://www.amazon.com/WXCATIM-Friendship-Keychains-Anniversary-Accessories/dp/B0B5Q7HPZM/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WXCATIM-Friendship-Keychains-Anniversary-Accessories/dp/B0B5Q7HPZM/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WXCATIM-Friendship-Keychains-Anniversary-Accessories/dp/B0B5Q7HPZM/?th=1?ie=UTF8&tag=giftable02-20)
 
 Looking for a special way to celebrate your friendship? The Friendship Keychain is a adorable and meaningful choice.
 
@@ -537,7 +537,7 @@ These keychains are small enough to carry with you wherever you go, measuring ar
 
 ✔️ Smooth and polished finish for added elegance
 
-[Buy from Amazon](https://www.amazon.com/WXCATIM-Friendship-Keychains-Anniversary-Accessories/dp/B0B5Q7HPZM/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WXCATIM-Friendship-Keychains-Anniversary-Accessories/dp/B0B5Q7HPZM/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Jellyfish Silicone Watch](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1382829319/jellyfish-silicone-watch-band-laser)
 
@@ -557,9 +557,9 @@ The silicone material provides a pleasant fit on your wrist, and the adjustable 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1382829319/jellyfish-silicone-watch-band-laser)
 
-### [31\. Jellyfish Throw Pillow](https://www.amazon.com/Jellyfish-Pillow-Covers-Pillowcase-Bedroom/dp/B0BMZX7M47/?ie=UTF8&tag=avadalove-20)
+### [31\. Jellyfish Throw Pillow](https://www.amazon.com/Jellyfish-Pillow-Covers-Pillowcase-Bedroom/dp/B0BMZX7M47/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jellyfish-Pillow-Covers-Pillowcase-Bedroom/dp/B0BMZX7M47/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jellyfish-Pillow-Covers-Pillowcase-Bedroom/dp/B0BMZX7M47/?ie=UTF8&tag=giftable02-20)
 
 Surprise and delight your guests with the unique and elegant Moslion Jellyfish Throw Pillow, a standout piece in any room.
 
@@ -573,7 +573,7 @@ This Jellyfish Throw Pillow, measuring roughly 18 inches by 18 inches, is the id
 
 ✔️ Perfect size for adding to any living space
 
-[Buy from Amazon](https://www.amazon.com/Jellyfish-Pillow-Covers-Pillowcase-Bedroom/dp/B0BMZX7M47/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jellyfish-Pillow-Covers-Pillowcase-Bedroom/dp/B0BMZX7M47/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Jellyfish Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1023896334/jellyfish-mandala-engraved-stainless)
 
@@ -611,9 +611,9 @@ The Jellyfish Wall Art is also really useful. This huge painting, measuring 24x3
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/953116446/jellyfish-wall-art-wall-decor-glamour)
 
-### [34\. Night Light for Kids](https://www.amazon.com/Changing-Jellyfish-Silicone-Sleeping-Rechargeable/dp/B0BN45LZBV/?ie=UTF8&tag=avadalove-20)
+### [34\. Night Light for Kids](https://www.amazon.com/Changing-Jellyfish-Silicone-Sleeping-Rechargeable/dp/B0BN45LZBV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Changing-Jellyfish-Silicone-Sleeping-Rechargeable/dp/B0BN45LZBV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Changing-Jellyfish-Silicone-Sleeping-Rechargeable/dp/B0BN45LZBV/?ie=UTF8&tag=giftable02-20)
 
 Bring a touch of wonder and tranquility to your child's room with the enchanting Jellyfish Night Light for Kids.
 
@@ -627,7 +627,7 @@ This Jellyfish Night Light, which stands around 5 inches tall, is the ideal comp
 
 ✔️ Rechargeable battery ensures convenience and long-lasting use.
 
-[Buy from Amazon](https://www.amazon.com/Changing-Jellyfish-Silicone-Sleeping-Rechargeable/dp/B0BN45LZBV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Changing-Jellyfish-Silicone-Sleeping-Rechargeable/dp/B0BN45LZBV/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Sterling Silver Acrylic Jellyfish](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1436072148/sterling-silver-acrylic-jellyfish)
 

@@ -23,9 +23,9 @@ Our collection of 35 unique and thoughtfully chosen nurse retirement gifts in th
 - Best **[Retirement Gifts For Women](/retirement-gifts-women/)** To Honor Her Life's Work
 - Best **[Retirement Gifts For Men](/retirement-gifts-men/)** Who Has Everything
 
-### [1\. Wine Glass](https://www.amazon.com/Lolita-Happy-Retirement-Artisan-Painted/dp/B00I4AAZDA/?ie=UTF8&tag=avadalove-20)
+### [1\. Wine Glass](https://www.amazon.com/Lolita-Happy-Retirement-Artisan-Painted/dp/B00I4AAZDA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lolita-Happy-Retirement-Artisan-Painted/dp/B00I4AAZDA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lolita-Happy-Retirement-Artisan-Painted/dp/B00I4AAZDA/?ie=UTF8&tag=giftable02-20)
 
 This Wine Glass is the perfect gift to honor a retiring nurse and celebrate their remarkable contributions. This artisan-painted wine glass goes beyond its stunning appearance, offering benefits.
 
@@ -39,7 +39,7 @@ Give the retiring nurse in your life a gift that is as unique and extraordinary 
 
 ✔️ Durable craftsmanship and vibrant design for long-lasting enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Lolita-Happy-Retirement-Artisan-Painted/dp/B00I4AAZDA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lolita-Happy-Retirement-Artisan-Painted/dp/B00I4AAZDA/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Thank You Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1009149632/)
 
@@ -79,9 +79,9 @@ This wooden plaque goes beyond its eye-catching design, offering benefits that m
 
 [Buy from Loveable](https://loveable.ai/products/nurse-just-another-word-to-describe-a-person-strong-enough-to-tolerate-everything-wooden-plaque-custom-name-personalized-gift-for-nurses-christmas-gift-for-nurse-bestie-nursing-gifts-211icnnpwp290?variant=44159359484136?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [4\. Wish Jar](https://www.amazon.com/Top-Shelf-Retirement-Wish-Clear/dp/B018EKZPD4/?ie=UTF8&tag=avadalove-20)
+### [4\. Wish Jar](https://www.amazon.com/Top-Shelf-Retirement-Wish-Clear/dp/B018EKZPD4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Top-Shelf-Retirement-Wish-Clear/dp/B018EKZPD4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Top-Shelf-Retirement-Wish-Clear/dp/B018EKZPD4/?ie=UTF8&tag=giftable02-20)
 
 This Wish Jar is a unique and sentimental gift that allows you to capture all meaningful wishes and messages for your retiring nurse. This beautifully designed glass jar is super outstanding because of its charming appearance.
 
@@ -95,7 +95,7 @@ The jar is approximately 8.5 inches in height and 4.25 inches in diameter, makin
 
 ✔️ Ample space for personalized wishes
 
-[Buy from Amazon](https://www.amazon.com/Top-Shelf-Retirement-Wish-Clear/dp/B018EKZPD4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Top-Shelf-Retirement-Wish-Clear/dp/B018EKZPD4/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Acrylic Plaque](https://loveable.ai/products/puzzle-never-forget-that-you-are-the-piece-that-made-the-difference-wood-and-acrylic-plaque-best-gift-for-mentor-professor-teacher-boss-coworker-inspirational-quotes-retirement-gift-211icnlnwp237?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
@@ -115,9 +115,9 @@ This unique plaque is crafted with a coambination of wood and acrylic to make su
 
 [Buy from Loveable](https://loveable.ai/products/puzzle-never-forget-that-you-are-the-piece-that-made-the-difference-wood-and-acrylic-plaque-best-gift-for-mentor-professor-teacher-boss-coworker-inspirational-quotes-retirement-gift-211icnlnwp237?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [6\. Women’s Tiara](https://www.amazon.com/Forum-Novelties-Officially-Retired-Retirement/dp/B002IY5N0I/?ie=UTF8&tag=avadalove-20)
+### [6\. Women’s Tiara](https://www.amazon.com/Forum-Novelties-Officially-Retired-Retirement/dp/B002IY5N0I/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Forum-Novelties-Officially-Retired-Retirement/dp/B002IY5N0I/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Forum-Novelties-Officially-Retired-Retirement/dp/B002IY5N0I/?ie=UTF8&tag=giftable02-20)
 
 This special Women's Tiara is a fun and whimsical accessory that adds a touch of regal elegance to the retirement celebration of a beloved nurse. This tiara offers benefits that go beyond its eye-catching design.
 
@@ -131,7 +131,7 @@ The adjustable headband ensures a comfortable and secure fit, allowing the retir
 
 ✔️ Dazzling rhinestones and elegant silver finish
 
-[Buy from Amazon](https://www.amazon.com/Forum-Novelties-Officially-Retired-Retirement/dp/B002IY5N0I/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Forum-Novelties-Officially-Retired-Retirement/dp/B002IY5N0I/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Retirement T-shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1434117648/)
 
@@ -169,9 +169,9 @@ This light serves as a beacon of love and honor. The base has many LED lights th
 
 [Buy from Loveable](https://loveable.ai/products/stethoscope-nurses-have-the-biggest-hearts-custom-name-personalized-job-title-3d-led-light-best-gift-for-nurse-student-thank-you-gift-for-nurse-211icnnpll289?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [9\. Doctor’s Clock](https://www.amazon.com/Sanis-Enterprises-Doctors-3-5-Inch-Silver/dp/B001JT3XB4/?ie=UTF8&tag=avadalove-20)
+### [9\. Doctor’s Clock](https://www.amazon.com/Sanis-Enterprises-Doctors-3-5-Inch-Silver/dp/B001JT3XB4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sanis-Enterprises-Doctors-3-5-Inch-Silver/dp/B001JT3XB4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sanis-Enterprises-Doctors-3-5-Inch-Silver/dp/B001JT3XB4/?ie=UTF8&tag=giftable02-20)
 
 This Doctor's Clock is a sophisticated and meaningful gift celebrating the retiring nurse's dedicated service. It showcases a timeless aesthetic that complements any professional or personal space.
 
@@ -185,7 +185,7 @@ The clock's silent movement ensures a peaceful and unwind environment, enhancing
 
 ✔️ Compact size and easy-to-read dial
 
-[Buy from Amazon](https://www.amazon.com/Sanis-Enterprises-Doctors-3-5-Inch-Silver/dp/B001JT3XB4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sanis-Enterprises-Doctors-3-5-Inch-Silver/dp/B001JT3XB4/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Retirement Wind Chime](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1304729311/)
 
@@ -205,9 +205,9 @@ Express your love and admiration by giving a retiring nurse this charming wind c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1304729311/)
 
-### [11\. Square Clock](https://www.amazon.com/Enesco-Whatever-Scrambled-Numbers-Hanging/dp/B000BB567U/?ie=UTF8&tag=avadalove-20)
+### [11\. Square Clock](https://www.amazon.com/Enesco-Whatever-Scrambled-Numbers-Hanging/dp/B000BB567U/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Whatever-Scrambled-Numbers-Hanging/dp/B000BB567U/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Whatever-Scrambled-Numbers-Hanging/dp/B000BB567U/?ie=UTF8&tag=giftable02-20)
 
 This Square Clock is a unique and meaningful gift that holds significance in honoring the retiring nurse's journey. This distinctive clock showcases a playful design that brings a touch of whimsy and charm to any space.
 
@@ -221,11 +221,11 @@ Its importance lies in its ability to serve as a constant reminder of the precio
 
 ✔️ Eye-catching design and vibrant colors
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Whatever-Scrambled-Numbers-Hanging/dp/B000BB567U/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Whatever-Scrambled-Numbers-Hanging/dp/B000BB567U/?ie=UTF8&tag=giftable02-20)
 
-### [12\. 1500 Days Retirement Book](https://www.amazon.com/1500-Days-Fun-Things-Retirement/dp/B0B75GJTPZ/r?ie=UTF8&tag=avadalove-20)
+### [12\. 1500 Days Retirement Book](https://www.amazon.com/1500-Days-Fun-Things-Retirement/dp/B0B75GJTPZ/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/1500-Days-Fun-Things-Retirement/dp/B0B75GJTPZ/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/1500-Days-Fun-Things-Retirement/dp/B0B75GJTPZ/r?ie=UTF8&tag=giftable02-20)
 
 This 1500 Days Retirement Book is an essential companion that holds great value in the retiring nurse's journey. This delightful book guides you to embracing retirement's exciting and fulfilling adventures.
 
@@ -239,11 +239,11 @@ Its collection of 1500 fun and inspiring activities encourages the retiring nurs
 
 ✔️ Comprehensive collection of 1500 activities
 
-[Buy from Amazon](https://www.amazon.com/1500-Days-Fun-Things-Retirement/dp/B0B75GJTPZ/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/1500-Days-Fun-Things-Retirement/dp/B0B75GJTPZ/r?ie=UTF8&tag=giftable02-20)
 
-### [13\. Retirement Gifts Set](https://www.amazon.com/dp/B0B5KHYS93/?ie=UTF8&tag=avadalove-20)
+### [13\. Retirement Gifts Set](https://www.amazon.com/dp/B0B5KHYS93/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0B5KHYS93/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0B5KHYS93/?ie=UTF8&tag=giftable02-20)
 
 This Retirement Gifts Set is a great package with immense value in commemorating the retiring nurse's journey. This thoughtfully curated set is designed to honor their dedication and celebrate the beginning of a new chapter in life.
 
@@ -257,7 +257,7 @@ It includes meaningful items encompassing joy, relaxation, and reflection. From 
 
 ✔️ Personalized retirement journal for reflection
 
-[Buy from Amazon](https://www.amazon.com/dp/B0B5KHYS93/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0B5KHYS93/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Shape Acrylic Ornament](https://loveable.ai/products/nurse-uniform-personalized-name-custom-nickname-shape-acrylic-ornament-best-christmas-gift-for-nurse-bestie-bff-xmas-tree-hanging-for-coworker-mentor-thank-you-gift-for-nurses?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
@@ -277,9 +277,9 @@ The high-quality acrylic material ensures its durability and lasting beauty, ens
 
 [Buy from Loveable](https://loveable.ai/products/nurse-uniform-personalized-name-custom-nickname-shape-acrylic-ornament-best-christmas-gift-for-nurse-bestie-bff-xmas-tree-hanging-for-coworker-mentor-thank-you-gift-for-nurses?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [15\. Embroidered Blanket](https://www.amazon.com/Pavilion-Gift-Company-Officially-Embroidered/dp/B07WGQSBBG/?ie=UTF8&tag=avadalove-20)
+### [15\. Embroidered Blanket](https://www.amazon.com/Pavilion-Gift-Company-Officially-Embroidered/dp/B07WGQSBBG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pavilion-Gift-Company-Officially-Embroidered/dp/B07WGQSBBG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pavilion-Gift-Company-Officially-Embroidered/dp/B07WGQSBBG/?ie=UTF8&tag=giftable02-20)
 
 This Embroidered Blanket is a practical, cozy gift and a meaningful symbol of the retiree's transition into a new chapter of life. Its delicate embroidery adds a touch of sentimentality.
 
@@ -293,11 +293,11 @@ Your beloved nurse can use this blanket to decorate their home, and it lasts for
 
 ✔️ Thoughtfully embroidered with "Officially Retired" for sentimental value
 
-[Buy from Amazon](https://www.amazon.com/Pavilion-Gift-Company-Officially-Embroidered/dp/B07WGQSBBG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pavilion-Gift-Company-Officially-Embroidered/dp/B07WGQSBBG/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Retirement Workbook & Planner](https://www.amazon.com/Purposeful-Retirement-Workbook-Planner-Mindfulness/dp/1633538125/?ie=UTF8&tag=avadalove-20)
+### [16\. Retirement Workbook & Planner](https://www.amazon.com/Purposeful-Retirement-Workbook-Planner-Mindfulness/dp/1633538125/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Purposeful-Retirement-Workbook-Planner-Mindfulness/dp/1633538125/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Purposeful-Retirement-Workbook-Planner-Mindfulness/dp/1633538125/?ie=UTF8&tag=giftable02-20)
 
 This Retirement Workbook & Planner is a valuable resource designed specifically for retiring nurses embarking on a new chapter of their lives. Its expertly crafted workbook format empowers retiring nurses to explore their passions, and create a fulfilling retirement lifestyle.
 
@@ -311,7 +311,7 @@ This comprehensive guide offers invaluable insights, practical exercises, and mi
 
 ✔️ Perfect and wonderful keepsake
 
-[Buy from Amazon](https://www.amazon.com/Purposeful-Retirement-Workbook-Planner-Mindfulness/dp/1633538125/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Purposeful-Retirement-Workbook-Planner-Mindfulness/dp/1633538125/?ie=UTF8&tag=giftable02-20)
 
 ### [17\. Customized Name Blanket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1203115717/)
 
@@ -333,9 +333,9 @@ The ability to customize the blanket adds a personal touch, making it a truly un
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1203115717/)
 
-### [18\. Retirement Angel Stone](https://www.amazon.com/Enesco-Foundations-Retirement-Angel-Figurine/dp/B00F9TOU7Q/?ie=UTF8&tag=avadalove-20)
+### [18\. Retirement Angel Stone](https://www.amazon.com/Enesco-Foundations-Retirement-Angel-Figurine/dp/B00F9TOU7Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Foundations-Retirement-Angel-Figurine/dp/B00F9TOU7Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Foundations-Retirement-Angel-Figurine/dp/B00F9TOU7Q/?ie=UTF8&tag=giftable02-20)
 
 This beautiful Retirement Angel Stone captures the essence of gratitude, admiration, and well wishes, making it a perfect symbol of appreciation for their dedicated service.
 
@@ -349,7 +349,7 @@ With its intricate details and serene expression, the angel figurine serves as a
 
 ✔️ Gorgeous and charming angle
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Foundations-Retirement-Angel-Figurine/dp/B00F9TOU7Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Foundations-Retirement-Angel-Figurine/dp/B00F9TOU7Q/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. You’re Sunflower Necklace](https://loveable.ai/products/youre-sunflower-birthday-gifts-for-woman?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
@@ -369,9 +369,9 @@ The sunflower pendant symbolizes warmth, positivity, and growth, reflecting the 
 
 [Buy from Loveable](https://loveable.ai/products/youre-sunflower-birthday-gifts-for-woman?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [20\. Greetings Retirement Card](https://www.amazon.com/American-Greetings-Time-Retirement-Congratulations/dp/B00VNPC4CI/?ie=UTF8&tag=avadalove-20)
+### [20\. Greetings Retirement Card](https://www.amazon.com/American-Greetings-Time-Retirement-Congratulations/dp/B00VNPC4CI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/American-Greetings-Time-Retirement-Congratulations/dp/B00VNPC4CI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/American-Greetings-Time-Retirement-Congratulations/dp/B00VNPC4CI/?ie=UTF8&tag=giftable02-20)
 
 Do you want to leave a meaningful message to someone important in your life (and she is a retiring nurse), but you are pretty shy to talk about it directly? Not to worry, this unique Greetings Retirement Card will help you to do it!
 
@@ -385,7 +385,7 @@ The American Greetings Retirement Card measures approximately 5 x 7 inches, prov
 
 ✔️ Mix and match with any style of the gift box
 
-[Buy from Amazon](https://www.amazon.com/American-Greetings-Time-Retirement-Congratulations/dp/B00VNPC4CI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/American-Greetings-Time-Retirement-Congratulations/dp/B00VNPC4CI/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Phone Docking Station](https://loveable.ai/products/phone-docking-station-personalized-gift-ideas-for-doctor-nurse-lawyer-pharmacist-graduate-custom-organizer-accessories-holder-dock-station-304ihptlds493?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
@@ -405,9 +405,9 @@ It is super easy to prevent it from getting misplaced. In addition, the customiz
 
 [Buy from Loveable](https://loveable.ai/products/phone-docking-station-personalized-gift-ideas-for-doctor-nurse-lawyer-pharmacist-graduate-custom-organizer-accessories-holder-dock-station-304ihptlds493?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [22\. Nursing Keychain](https://www.amazon.com/keychain-Appreciation-Retirement-Farewell-Keychain/dp/B07W3QF7XX/?ie=UTF8&tag=avadalove-20)
+### [22\. Nursing Keychain](https://www.amazon.com/keychain-Appreciation-Retirement-Farewell-Keychain/dp/B07W3QF7XX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/keychain-Appreciation-Retirement-Farewell-Keychain/dp/B07W3QF7XX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/keychain-Appreciation-Retirement-Farewell-Keychain/dp/B07W3QF7XX/?ie=UTF8&tag=giftable02-20)
 
 This Nursing Keychain makes a perfect and suitable gift for a retiring nurse, as it symbolizes their contributions to healthcare. Let's help your beloved to organize all their messy keys tidily!
 
@@ -421,11 +421,11 @@ The Nursing Keychain is a valuable and heartfelt gift that holds great significa
 
 ✔️ Tiny size for easy carrying
 
-[Buy from Amazon](https://www.amazon.com/keychain-Appreciation-Retirement-Farewell-Keychain/dp/B07W3QF7XX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/keychain-Appreciation-Retirement-Farewell-Keychain/dp/B07W3QF7XX/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Nurse Soy Candle](https://www.amazon.com/Lavender-Scented-Candle-Practitioner-Accessories/dp/B09NBZGX8F/?ie=UTF8&tag=avadalove-20)
+### [23\. Nurse Soy Candle](https://www.amazon.com/Lavender-Scented-Candle-Practitioner-Accessories/dp/B09NBZGX8F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lavender-Scented-Candle-Practitioner-Accessories/dp/B09NBZGX8F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lavender-Scented-Candle-Practitioner-Accessories/dp/B09NBZGX8F/?ie=UTF8&tag=giftable02-20)
 
 This Nurse Soy Candle is a perfect and suitable gift for retiring nurses, allowing them to unwind and bask in tranquility while celebrating their remarkable contributions to healthcare.
 
@@ -439,7 +439,7 @@ This lavender-scented candle provides a calming ambiance, allowing the retiree t
 
 ✔️ Create a tranquil and breathable atmosphere
 
-[Buy from Amazon](https://www.amazon.com/Lavender-Scented-Candle-Practitioner-Accessories/dp/B09NBZGX8F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lavender-Scented-Candle-Practitioner-Accessories/dp/B09NBZGX8F/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Wood Wall Clock](https://loveable.ai/products/yoga-wood-wall-clock-yoga-studio-decor-for-wall-home-kitchen-bedroom-yoga-wall-art-meditation-wall-art-gifts-for-woman-men-212ihnbnwc955?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
@@ -459,9 +459,9 @@ With its elegant design and serene yoga-themed artwork, this clock makes a perfe
 
 [Buy from Loveable](https://loveable.ai/products/yoga-wood-wall-clock-yoga-studio-decor-for-wall-home-kitchen-bedroom-yoga-wall-art-meditation-wall-art-gifts-for-woman-men-212ihnbnwc955?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [25\. Porcelain Mug](https://www.amazon.com/Our-Name-Nicest-Nurse-Porcelain/dp/B0051I7590/?ie=UTF8&tag=avadalove-20)
+### [25\. Porcelain Mug](https://www.amazon.com/Our-Name-Nicest-Nurse-Porcelain/dp/B0051I7590/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Our-Name-Nicest-Nurse-Porcelain/dp/B0051I7590/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Our-Name-Nicest-Nurse-Porcelain/dp/B0051I7590/?ie=UTF8&tag=giftable02-20)
 
 The Porcelain Mug, with its heartfelt message, is a perfect and thoughtful gift for a retiring nurse. The mug's design showcases the statement "Our Name is Mud Nicest Nurse," emphasizing a nurse's remarkable kindness.
 
@@ -475,7 +475,7 @@ The mug's high-quality porcelain construction guarantees longevity, ensuring it 
 
 ✔️ High-quality porcelain construction ensures durability
 
-[Buy from Amazon](https://www.amazon.com/Our-Name-Nicest-Nurse-Porcelain/dp/B0051I7590/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Our-Name-Nicest-Nurse-Porcelain/dp/B0051I7590/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Nurse Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/829207637/)
 
@@ -513,9 +513,9 @@ The spacious main compartment and interior pockets offer ample storage space for
 
 [Buy from Loveable](https://loveable.ai/products/and-she-lived-happily-ever-after-custom-name-leather-handbag-best-retirement-funny-gift-for-retirement-301ihpnplb057?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [28\. Tissue Paper Bag](https://www.amazon.com/Hallmark-Signature-Medium-Tissue-Hooray/dp/B07HFMMF3G/?ie=UTF8&tag=avadalove-20)
+### [28\. Tissue Paper Bag](https://www.amazon.com/Hallmark-Signature-Medium-Tissue-Hooray/dp/B07HFMMF3G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hallmark-Signature-Medium-Tissue-Hooray/dp/B07HFMMF3G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hallmark-Signature-Medium-Tissue-Hooray/dp/B07HFMMF3G/?ie=UTF8&tag=giftable02-20)
 
 Introducing the Tissue Paper Bag - a perfect way to add a touch of celebration to any gift-giving occasion. This tissue paper bag features a vibrant "Hooray" design, making it a great choice for a retiring nurse. This Tissue Paper Bag is a valuable addition to any gift for a retiring nurse.
 
@@ -529,7 +529,7 @@ The bag measures approximately 9.6 inches in width, 9.6 inches in height, and 4.
 
 ✔️ Celebratory "Hooray" design
 
-[Buy from Amazon](https://www.amazon.com/Hallmark-Signature-Medium-Tissue-Hooray/dp/B07HFMMF3G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hallmark-Signature-Medium-Tissue-Hooray/dp/B07HFMMF3G/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Personalised Nurse Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1093869438/)
 
@@ -549,9 +549,9 @@ The custom print is a valuable and heartfelt gift for a retiring nurse. This bea
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1093869438/)
 
-### [30\. Crown Coffee Mug](https://www.amazon.com/Retirement-Retired-Grandma-Farewell-Coworker/dp/B0BHS8YJ75/?ie=UTF8&tag=avadalove-20)
+### [30\. Crown Coffee Mug](https://www.amazon.com/Retirement-Retired-Grandma-Farewell-Coworker/dp/B0BHS8YJ75/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Retirement-Retired-Grandma-Farewell-Coworker/dp/B0BHS8YJ75/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Retirement-Retired-Grandma-Farewell-Coworker/dp/B0BHS8YJ75/?ie=UTF8&tag=giftable02-20)
 
 The Crown Coffee Mug is a delightful and valuable gift for a retiring nurse. It is a beautiful gift that will bring joy and a sense of accomplishment to any retiring nurse.
 
@@ -565,11 +565,11 @@ The 11-ounce capacity is perfect for enjoying a morning coffee or tea. Made from
 
 ✔️ Beautiful crown design
 
-[Buy from Amazon](https://www.amazon.com/Retirement-Retired-Grandma-Farewell-Coworker/dp/B0BHS8YJ75/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Retirement-Retired-Grandma-Farewell-Coworker/dp/B0BHS8YJ75/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Retirement Ceramic Mug](https://www.amazon.com/Pavilion-Mark-My-Words-Retirement/dp/B007TMWIDO/?ie=UTF8&tag=avadalove-20)
+### [31\. Retirement Ceramic Mug](https://www.amazon.com/Pavilion-Mark-My-Words-Retirement/dp/B007TMWIDO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pavilion-Mark-My-Words-Retirement/dp/B007TMWIDO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pavilion-Mark-My-Words-Retirement/dp/B007TMWIDO/?ie=UTF8&tag=giftable02-20)
 
 Imagine the moment you and a person who is essential in your life (she is a retiring nurse) sit next to each other and enjoy a sip in this Retirement Ceramic Mug!
 
@@ -583,11 +583,11 @@ This mug is a wonderful and valuable gift for someone entering retirement. This 
 
 ✔️ Heartfelt and celebratory message
 
-[Buy from Amazon](https://www.amazon.com/Pavilion-Mark-My-Words-Retirement/dp/B007TMWIDO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pavilion-Mark-My-Words-Retirement/dp/B007TMWIDO/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Lounge Socks](https://www.amazon.com/Queen-Retired-Length-Lounge-Retirement/dp/B08ZC2FRCP/?ie=UTF8&tag=avadalove-20)
+### [32\. Lounge Socks](https://www.amazon.com/Queen-Retired-Length-Lounge-Retirement/dp/B08ZC2FRCP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Queen-Retired-Length-Lounge-Retirement/dp/B08ZC2FRCP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Queen-Retired-Length-Lounge-Retirement/dp/B08ZC2FRCP/?ie=UTF8&tag=giftable02-20)
 
 Looking for a perfect retirement gift for your favorite retiree? These "Queen Retired" lounge socks are just what you need! Made with soft and comfortable materials, these socks will keep their feet warm and cozy while they relax at home.
 
@@ -601,7 +601,7 @@ These socks are perfect for wearing around the house or to bed, and the one-size
 
 ✔️ Soft and comfortable fabric
 
-[Buy from Amazon](https://www.amazon.com/Queen-Retired-Length-Lounge-Retirement/dp/B08ZC2FRCP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Queen-Retired-Length-Lounge-Retirement/dp/B08ZC2FRCP/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Nurse Retirement Award](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1236055383/)
 
@@ -621,9 +621,9 @@ The Nurse Retirement Award is a thoughtful and meaningful gift to honor the dedi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1236055383/)
 
-### [34\. Weekly Schedule Mug](https://www.amazon.com/dp/B0B5DBV46L/?ie=UTF8&tag=avadalove-20)
+### [34\. Weekly Schedule Mug](https://www.amazon.com/dp/B0B5DBV46L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0B5DBV46L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0B5DBV46L/?ie=UTF8&tag=giftable02-20)
 
 Stay organized and start your day right with this Weekly Schedule Mug! This clever and practical mug is designed to help you plan your week. For example, the first paragraph would include 30 words.
 
@@ -637,7 +637,7 @@ This cleverly Weekly Schedule Mug features a weekly schedule grid printed on its
 
 ✔️ Dual functionality as a coffee mug and weekly planner
 
-[Buy from Amazon](https://www.amazon.com/dp/B0B5DBV46L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0B5DBV46L/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Nurse Preceptor Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1229278891/)
 
@@ -731,9 +731,9 @@ The message "May You Be Proud Of The Work You Do" is scribed in an appealing fon
 
 [Buy from Loveable](https://loveable.us/products/may-you-be-proud-of-the-work-you-do-personalized-canvas-gift-for-teacher-retirement-308ihpnpca893?variant=44666149929192?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 
-### [40\. May You Proud of The Work You Do Sign](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [40\. May You Proud of The Work You Do Sign](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 The May You Proud of The Work You Do Sign is an ideal way to honor someone's work life and celebrate their retirement. This beautifully crafted sign encapsulates the essence of retirement in a simple, yet profound manner.
 
@@ -749,7 +749,7 @@ Featuring high-quality construction, the sign offers robust durability to stand 
 
 ✔️ Perfect retirement gift
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CDL7CXMB?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [41\. Here’s To Your Next Adventure Pillow](https://loveable.us/products/heres-to-your-next-adventure-personalized-square-linen-pillow-retirement-gift-308ihplnts898?variant=44683020075240?utm_source=avada&ranking=&utm_source=&utm_campaign=35-thoughtful-nurse-retirement-gifts-to-honor-years-of-dedication-and-compassion)
 

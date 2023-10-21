@@ -15,8 +15,6 @@ Welcome to the world of Monty Python, where comedy and absurdity collide to form
 
 And now, you can bring a piece of that comedic magic into your own home with our selection of Monty Python-inspired gifts. Whether you're looking for a silly **[personalized t-shirt](/personalized-t-shirts/)** or a collectible figurine, we have something for every fan of this beloved comedy troupe. So why not treat yourself or a friend to a bit of Monty Python nostalgia? After all, "Always Look on the Bright Side of Life" - and what's brighter than a bit of Monty Python humor in your life?
 
-**Related:** Must-Have **[Downton Abbey Gifts](/downton-abbey-gifts/)** for Fans of the Beloved Series
-
 ### [1\. Monty Python’s Flying Circus Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1193757752/1-pack-of-monty-pythons-flying-circus)
 
 [](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1193757752/1-pack-of-monty-pythons-flying-circus)
@@ -35,9 +33,9 @@ Inside each pack, you'll find 10 cards, and there's a chance of getting some ran
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1193757752/1-pack-of-monty-pythons-flying-circus)
 
-### [2\. Quotes Coffee Mug](https://www.amazon.com/Monty-Python-Quotes-Coffee-Mug/dp/B00DW88RB6/r?ie=UTF8&tag=avadalove-20)
+### [2\. Quotes Coffee Mug](https://www.amazon.com/Monty-Python-Quotes-Coffee-Mug/dp/B00DW88RB6/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monty-Python-Quotes-Coffee-Mug/dp/B00DW88RB6/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monty-Python-Quotes-Coffee-Mug/dp/B00DW88RB6/r?ie=UTF8&tag=giftable02-20)
 
 The most suitable partner for your daily dose of caffeine is the "Quotes Coffee Mug"! Every time you sip from this mug, you'll grin since it's more than simply a vessel for your beverage.
 
@@ -51,11 +49,11 @@ Prepare to go on a journey filled with pleasure and laughter with these 20 state
 
 ✔️ Providing maximum entertainment value
 
-[Buy from Amazon](https://www.amazon.com/Monty-Python-Quotes-Coffee-Mug/dp/B00DW88RB6/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monty-Python-Quotes-Coffee-Mug/dp/B00DW88RB6/r?ie=UTF8&tag=giftable02-20)
 
-### [3\. Silly Walk Wall Clock](https://www.amazon.com/Tankrin-Ministry-Interesting-Bedroom-Kitchen/dp/B09HDC71PT/?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Silly Walk Wall Clock](https://www.amazon.com/Tankrin-Ministry-Interesting-Bedroom-Kitchen/dp/B09HDC71PT/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tankrin-Ministry-Interesting-Bedroom-Kitchen/dp/B09HDC71PT/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tankrin-Ministry-Interesting-Bedroom-Kitchen/dp/B09HDC71PT/?th=1?ie=UTF8&tag=giftable02-20)
 
 This Silly Walk Wall Clock will be perfect for you if you enjoy Monty Python's absurd antics.
 
@@ -69,11 +67,11 @@ The clock is the ideal size for any wall thanks to its circular design and 10" W
 
 ✔️ This clock's playful design and unique feature of being completely silent
 
-[Buy from Amazon](https://www.amazon.com/Tankrin-Ministry-Interesting-Bedroom-Kitchen/dp/B09HDC71PT/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tankrin-Ministry-Interesting-Bedroom-Kitchen/dp/B09HDC71PT/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [4\.  Sticky Notes Booklet](https://www.amazon.com/Monty-Python-Sticky-Notes-Booklet/dp/B00FBP9K7I/?th=1?ie=UTF8&tag=avadalove-20)
+### [4\.  Sticky Notes Booklet](https://www.amazon.com/Monty-Python-Sticky-Notes-Booklet/dp/B00FBP9K7I/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monty-Python-Sticky-Notes-Booklet/dp/B00FBP9K7I/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monty-Python-Sticky-Notes-Booklet/dp/B00FBP9K7I/?th=1?ie=UTF8&tag=giftable02-20)
 
 The "Sticky Notes Booklet" is a need for anybody who likes to keep stylishly organized. This sticky notebook is the ideal complement to your office or desk because it contains traditional Python iconography.
 
@@ -87,7 +85,7 @@ The book is small (3 1/4" X 4 1/4") when closed, making it convenient to carry i
 
 ✔️ Perfect for staying organized, taking notes, leaving reminders, or jotting down ideas
 
-[Buy from Amazon](https://www.amazon.com/Monty-Python-Sticky-Notes-Booklet/dp/B00FBP9K7I/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monty-Python-Sticky-Notes-Booklet/dp/B00FBP9K7I/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Monty Python Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1026597920/in-order-for-you-to-pass-you-must-bring)
 
@@ -107,9 +105,9 @@ It was expertly crafted from high-quality wood and painted with accuracy. This s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1026597920/in-order-for-you-to-pass-you-must-bring)
 
-### [6\. Killer Rabbit T-Shirt](https://www.amazon.com/Liquid-Blue-Python-Killer-T-Shirt-X-Large/dp/B00BT0HBA2/?ie=UTF8&tag=avadalove-20)
+### [6\. Killer Rabbit T-Shirt](https://www.amazon.com/Liquid-Blue-Python-Killer-T-Shirt-X-Large/dp/B00BT0HBA2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Liquid-Blue-Python-Killer-T-Shirt-X-Large/dp/B00BT0HBA2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Liquid-Blue-Python-Killer-T-Shirt-X-Large/dp/B00BT0HBA2/?ie=UTF8&tag=giftable02-20)
 
 Wearing this Killer Rabbit T-Shirt, you can flaunt your admiration for Monty Python! This Monty Python product contains a top-notch screen-print of the notorious Killer Rabbit from Monty Python and the Holy Grail movie.
 
@@ -123,11 +121,11 @@ Being made of 100% cotton guarantees comfort and breathability, making it a fant
 
 ✔️ Great way to show off your love for the comedy troupe
 
-[Buy from Amazon](https://www.amazon.com/Liquid-Blue-Python-Killer-T-Shirt-X-Large/dp/B00BT0HBA2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Liquid-Blue-Python-Killer-T-Shirt-X-Large/dp/B00BT0HBA2/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Silly Walks Unisex Analog Watch](https://www.amazon.com/Poster-Revolution-Monty-Python-Ministry/dp/B00DEN9ZHY/?ie=UTF8&tag=avadalove-20)
+### [7\. Silly Walks Unisex Analog Watch](https://www.amazon.com/Poster-Revolution-Monty-Python-Ministry/dp/B00DEN9ZHY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Poster-Revolution-Monty-Python-Ministry/dp/B00DEN9ZHY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Poster-Revolution-Monty-Python-Ministry/dp/B00DEN9ZHY/?ie=UTF8&tag=giftable02-20)
 
 In search of a watch that is equally ridiculous and useful? The Silly Walks Unisex Analog Watch is the perfect choice!
 
@@ -141,7 +139,7 @@ And don't worry, this watch was not created using public funds. Instead, the Sil
 
 ✔️ Making it a must-have for fans of the iconic comedy group
 
-[Buy from Amazon](https://www.amazon.com/Poster-Revolution-Monty-Python-Ministry/dp/B00DEN9ZHY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Poster-Revolution-Monty-Python-Ministry/dp/B00DEN9ZHY/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Ministry of Silly Walkers](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/834735858/ministry-of-silly-walkers-silly-walk)
 
@@ -161,9 +159,9 @@ This sign, made of premium 4mm corrugated plastic, is made to survive the weathe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/834735858/ministry-of-silly-walkers-silly-walk)
 
-### [9\. The Holy Grail Decal Sticker](https://www.amazon.com/French-Taunter-Monty-Python-Sticker/dp/B08GBHZMMZ?ie=UTF8&tag=avadalove-20)
+### [9\. The Holy Grail Decal Sticker](https://www.amazon.com/French-Taunter-Monty-Python-Sticker/dp/B08GBHZMMZ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/French-Taunter-Monty-Python-Sticker/dp/B08GBHZMMZ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/French-Taunter-Monty-Python-Sticker/dp/B08GBHZMMZ?ie=UTF8&tag=giftable02-20)
 
 Maybe like Monty Python and the Holy Grail, right? The Holy Grail Decal Sticker is something you'll like if this is the case. The ideal way to flaunt your devotion to one of the greatest films ever made is with this vinyl decal.
 
@@ -177,7 +175,7 @@ This sticker, which features a humorous movie meme, will make you grin every tim
 
 ✔️ Made from high-quality vinyl material
 
-[Buy from Amazon](https://www.amazon.com/French-Taunter-Monty-Python-Sticker/dp/B08GBHZMMZ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/French-Taunter-Monty-Python-Sticker/dp/B08GBHZMMZ?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Holy Grail Stretch Canvas](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1284645051/monty-python-no-ordinary-rabbit-holy)
 
@@ -197,9 +195,9 @@ Each canvas is created using premium materials and printed with eco-friendly ink
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1284645051/monty-python-no-ordinary-rabbit-holy)
 
-### [11\. Black Knight Plush](https://www.amazon.com/Toy-Vault-Black-Knight-Plush/dp/B000EIDV90?ie=UTF8&tag=avadalove-20)
+### [11\. Black Knight Plush](https://www.amazon.com/Toy-Vault-Black-Knight-Plush/dp/B000EIDV90?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toy-Vault-Black-Knight-Plush/dp/B000EIDV90?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toy-Vault-Black-Knight-Plush/dp/B000EIDV90?ie=UTF8&tag=giftable02-20)
 
 The Monty Python & the Holy Grail collection's Black Knight Plush from Toy Vault is a fully authorized item! For every lover of the renowned film, this 14-inch tall plush is a must-have.
 
@@ -213,7 +211,7 @@ The Black Knight Plush is distinguished by the fact that you may cut off its lim
 
 ✔️ An officially licensed product from Monty Python & the Holy Grail collection
 
-[Buy from Amazon](https://www.amazon.com/Toy-Vault-Black-Knight-Plush/dp/B000EIDV90?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toy-Vault-Black-Knight-Plush/dp/B000EIDV90?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Wooden Gift Box Removable Pin](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268063228/holy-hand-grenade-of-antioch-wooden-gift)
 
@@ -233,9 +231,9 @@ This wooden gift box is the ideal complement to any collection or display and is
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268063228/holy-hand-grenade-of-antioch-wooden-gift)
 
-### [13\. Dead Parrot Slippers](https://www.amazon.com/Toy-Vault-Python-Parrot-Slipper/dp/B01MXETL9C/?ie=UTF8&tag=avadalove-20)
+### [13\. Dead Parrot Slippers](https://www.amazon.com/Toy-Vault-Python-Parrot-Slipper/dp/B01MXETL9C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toy-Vault-Python-Parrot-Slipper/dp/B01MXETL9C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toy-Vault-Python-Parrot-Slipper/dp/B01MXETL9C/?ie=UTF8&tag=giftable02-20)
 
 The ultimate novelty gift for devoted Monty Python fans, the Dead Parrot Slippers! These slippers, which are modeled by the famous Monty Python cartoon from The Flying Circus, will make you smile.
 
@@ -249,11 +247,11 @@ These plush slippers are soft, cozy, and ideal for relaxing in the house. They a
 
 ✔️ Hilarious resting parrot design inspired by the iconic sketch
 
-[Buy from Amazon](https://www.amazon.com/Toy-Vault-Python-Parrot-Slipper/dp/B01MXETL9C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toy-Vault-Python-Parrot-Slipper/dp/B01MXETL9C/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Foot Soap](https://www.amazon.com/Monty-Python-Foot-Soap-Mini/dp/B09C9TMDLG?ie=UTF8&tag=avadalove-20)
+### [14\. Foot Soap](https://www.amazon.com/Monty-Python-Foot-Soap-Mini/dp/B09C9TMDLG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monty-Python-Foot-Soap-Mini/dp/B09C9TMDLG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monty-Python-Foot-Soap-Mini/dp/B09C9TMDLG?ie=UTF8&tag=giftable02-20)
 
 Searching for a soap that is entertaining and functional? Monty Python's Foot Soap is all that you need!
 
@@ -267,11 +265,11 @@ But this soap is more than just a novelty item; it also contains a nourishing mi
 
 ✔️ Unique and fun design featuring the iconic foot from Monty Python's Flying Circus
 
-[Buy from Amazon](https://www.amazon.com/Monty-Python-Foot-Soap-Mini/dp/B09C9TMDLG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monty-Python-Foot-Soap-Mini/dp/B09C9TMDLG?ie=UTF8&tag=giftable02-20)
 
-### [15\. Front Door Mats Home Decor](https://www.amazon.com/DoubleJun-Python-Machine-Washable-Backing/dp/B07Y876NN8/r?ie=UTF8&tag=avadalove-20)
+### [15\. Front Door Mats Home Decor](https://www.amazon.com/DoubleJun-Python-Machine-Washable-Backing/dp/B07Y876NN8/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DoubleJun-Python-Machine-Washable-Backing/dp/B07Y876NN8/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DoubleJun-Python-Machine-Washable-Backing/dp/B07Y876NN8/r?ie=UTF8&tag=giftable02-20)
 
 Welcome to the Front Door Mats Home Decor, the perfect touch to your interior design. This mat, which measures 29.5"(W) X 17.7"(L), uses heat dye sublimation printing on one side that won't fade or peel over time.
 
@@ -285,7 +283,7 @@ The end product is a stunning, colorful, and striking design guaranteed to draw 
 
 ✔️ Provides stability and prevents slipping
 
-[Buy from Amazon](https://www.amazon.com/DoubleJun-Python-Machine-Washable-Backing/dp/B07Y876NN8/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DoubleJun-Python-Machine-Washable-Backing/dp/B07Y876NN8/r?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Set of 4 Monty Python Silly Walk](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/915101309/set-of-4-monty-python-silly-walk)
 
@@ -431,9 +429,9 @@ This card, which the seller designed and digitally produced, has a premium print
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1196541346/monty-python-birthday-card-the-holy)
 
-### [24\. Movie Poster](https://www.amazon.com/Monty-Python-Grail-Movie-Poster/dp/B00VZHYU26?ie=UTF8&tag=avadalove-20)
+### [24\. Movie Poster](https://www.amazon.com/Monty-Python-Grail-Movie-Poster/dp/B00VZHYU26?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monty-Python-Grail-Movie-Poster/dp/B00VZHYU26?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monty-Python-Grail-Movie-Poster/dp/B00VZHYU26?ie=UTF8&tag=giftable02-20)
 
 Are you a die-hard movie fan searching for the ideal complement for your home theater? Pay attention nowhere else than this poster, a unique and difficult-to-find print that will elevate your movie-watching experience.
 
@@ -447,11 +445,11 @@ This poster is a professional copy that faithfully captures the spirit of the or
 
 ✔️ Safe and Secure Shipping
 
-[Buy from Amazon](https://www.amazon.com/Monty-Python-Grail-Movie-Poster/dp/B00VZHYU26?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monty-Python-Grail-Movie-Poster/dp/B00VZHYU26?ie=UTF8&tag=giftable02-20)
 
-### [25\. Retro Metal Signs](https://www.amazon.com/xikalong-Classic-Posters-Vintage-Decorative/dp/B09TSJYD1Y/?ie=UTF8&tag=avadalove-20)
+### [25\. Retro Metal Signs](https://www.amazon.com/xikalong-Classic-Posters-Vintage-Decorative/dp/B09TSJYD1Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/xikalong-Classic-Posters-Vintage-Decorative/dp/B09TSJYD1Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/xikalong-Classic-Posters-Vintage-Decorative/dp/B09TSJYD1Y/?ie=UTF8&tag=giftable02-20)
 
 Want to give the interior of your house or place of business a retro feel in a distinctive and fashionable way? Take a look at these Retro Metal Signs.
 
@@ -465,7 +463,7 @@ These signs, which are made of sturdy tin and have vintage and cinematic motifs,
 
 ✔️ Easy to mount on walls for a hassle-free display
 
-[Buy from Amazon](https://www.amazon.com/xikalong-Classic-Posters-Vintage-Decorative/dp/B09TSJYD1Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/xikalong-Classic-Posters-Vintage-Decorative/dp/B09TSJYD1Y/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Home Theater Canvas Wall Art Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/709689512/monty-python-and-the-holy-grail-movie)
 
@@ -503,9 +501,9 @@ The earrings have a clean and contemporary appearance thanks to their laser cutt
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/721366259/pointer-finger-earrings-hand-earrings)
 
-### [28\. Limited Edition Castle Catapult](https://www.amazon.com/dp/B013P0WZVS/?ie=UTF8&tag=avadalove-20)
+### [28\. Limited Edition Castle Catapult](https://www.amazon.com/dp/B013P0WZVS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B013P0WZVS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B013P0WZVS/?ie=UTF8&tag=giftable02-20)
 
 Ready to see a comedy that is amusing and funny? Find the "Limited Edition Castle Catapult" on Blu-ray when you want the best experience!
 
@@ -519,11 +517,11 @@ This movie is a must-see for any fan of traditional British humor since it has a
 
 ✔️ The film is packed with laugh-out-loud moments and witty humor
 
-[Buy from Amazon](https://www.amazon.com/dp/B013P0WZVS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B013P0WZVS/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Rabbit with Big Pointy Teeth](https://www.amazon.com/dp/B0006SIYH2/?ie=UTF8&tag=avadalove-20)
+### [29\. Rabbit with Big Pointy Teeth](https://www.amazon.com/dp/B0006SIYH2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0006SIYH2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0006SIYH2/?ie=UTF8&tag=giftable02-20)
 
 Have you been in pursuit of a pair of cute, fluffy shoes with a Monty Python and the Holy Grail theme? The Rabbit with Big Pointy Teeth slippers is your best option.
 
@@ -537,7 +535,7 @@ These white fur slippers will surely put a smile on everyone's face. The killer 
 
 ✔️ Fun and playful way to show off your love for the iconic comedy
 
-[Buy from Amazon](https://www.amazon.com/dp/B0006SIYH2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0006SIYH2/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Biggus Dickus Monty Python Beer Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/713478146/biggus-dickus-monty-python-beer-mug)
 
@@ -575,9 +573,9 @@ Even in high-traffic areas, the latex backing securely maintains the doormat and
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/970451340/go-away-or-i-shall-taunt-you-a-second)
 
-### [32\. Tim The Enchanter Hat](https://www.amazon.com/dp/B0006JGW8Y?ie=UTF8&tag=avadalove-20)
+### [32\. Tim The Enchanter Hat](https://www.amazon.com/dp/B0006JGW8Y?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0006JGW8Y?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0006JGW8Y?ie=UTF8&tag=giftable02-20)
 
 Do you like the old-school comedy movie Monty Python and the Holy Grail? Look no further than Toy Vault's officially authorized "Tim The Enchanter" hat.
 
@@ -591,11 +589,11 @@ One of many pieces in Toy Vault's Monty Python collection, this hat is the ideal
 
 ✔️ Makes an excellent gift for any Monty Python fan or comedy lover
 
-[Buy from Amazon](https://www.amazon.com/dp/B0006JGW8Y?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0006JGW8Y?ie=UTF8&tag=giftable02-20)
 
-### [33\. Grail Black Knight Pop](https://www.amazon.com/dp/B018FCLXBE?ie=UTF8&tag=avadalove-20)
+### [33\. Grail Black Knight Pop](https://www.amazon.com/dp/B018FCLXBE?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B018FCLXBE?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B018FCLXBE?ie=UTF8&tag=giftable02-20)
 
 Fans of Monty Python and the Holy Grail rejoice! Entertainment Earth brings an exclusive "Grail Black Knight Pop" vinyl figure that features the brave Black Knight in all his flesh-wounded glory.
 
@@ -609,11 +607,11 @@ This exclusive version comes with detached arms, just like in the classic comedy
 
 ✔️ Features the Black Knight in his flesh-wounded glory with detached arms
 
-[Buy from Amazon](https://www.amazon.com/dp/B018FCLXBE?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B018FCLXBE?ie=UTF8&tag=giftable02-20)
 
-### [34\.  Board Game](https://www.amazon.com/dp/B00JE79IZS?ie=UTF8&tag=avadalove-20)
+### [34\.  Board Game](https://www.amazon.com/dp/B00JE79IZS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B00JE79IZS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B00JE79IZS?ie=UTF8&tag=giftable02-20)
 
 Perform you **[enjoy playing board games](/gifts-board-game-lovers/)** with an animal theme? Afterward, you're in for a treat with this special "Animal Board Game"!
 
@@ -627,7 +625,7 @@ This game, which supports up to 6 people, is guaranteed to be entertaining and f
 
 ✔️ Can be enjoyed by people of all ages
 
-[Buy from Amazon](https://www.amazon.com/dp/B00JE79IZS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B00JE79IZS?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Monty Python Swallows Dad Hat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1090574978/monty-python-swallows-dad-hat?s)
 

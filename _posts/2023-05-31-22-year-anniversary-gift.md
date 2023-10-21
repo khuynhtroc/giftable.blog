@@ -73,9 +73,9 @@ This Custom Lamp is not only a lovely and meaningful present, but it is also use
 
 [Buy from Loveable](https://loveable.ai/products/tree-couple-style-to-my-wifehusband-never-forget-i-love-you-ability-to-see-yourself-through-my-eyes-3d-led-light-custom-lamp-weddinganniversaryvalentine-gift-302icnnpll118?variant=44276141064424?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 
-### [4\.  Metal Ornament](https://www.amazon.com/22nd-Anniversary-Idea-Ornament-Combination/dp/B08X77NSBG/r?ie=UTF8&tag=avadalove-20)
+### [4\.  Metal Ornament](https://www.amazon.com/22nd-Anniversary-Idea-Ornament-Combination/dp/B08X77NSBG/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/22nd-Anniversary-Idea-Ornament-Combination/dp/B08X77NSBG/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/22nd-Anniversary-Idea-Ornament-Combination/dp/B08X77NSBG/r?ie=UTF8&tag=giftable02-20)
 
 On the lookout for a truly remarkable memento to honor your 22nd anniversary? Discover the captivating Metal Ornament, a significant and heartfelt treasure that will serve as a cherished symbol of your love.
 
@@ -89,7 +89,7 @@ It has a modest yet striking size, measuring around 3 inches in diameter. The be
 
 ✔️ Exquisite metal ornament radiates elegance and charm
 
-[Buy from Amazon](https://www.amazon.com/22nd-Anniversary-Idea-Ornament-Combination/dp/B08X77NSBG/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/22nd-Anniversary-Idea-Ornament-Combination/dp/B08X77NSBG/r?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Home Wall Art Decor](https://loveable.ai/products/the-day-that-two-become-one-personalized-canvas-poster-home-wall-art-decor-custom-star-map-and-photo-anniversary-gifts-for-couple-209ihpthca149?variant=43814771294440?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 
@@ -199,9 +199,9 @@ This plaque, which measures roughly 8 inches by 10 inches, is provided by the pe
 
 [Buy from Loveable](https://loveable.ai/products/custom-star-map-with-favorite-song-best-personalized-acrylic-plaque-gift-for-anniversary-209ihpbnap156?&variant=43814786334952?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 
-### [11\. Glass Set](https://www.amazon.com/Spotted-Dog-Company-Vintage-Etched/dp/B0B9V9XW7L/?ie=UTF8&tag=avadalove-20)
+### [11\. Glass Set](https://www.amazon.com/Spotted-Dog-Company-Vintage-Etched/dp/B0B9V9XW7L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Spotted-Dog-Company-Vintage-Etched/dp/B0B9V9XW7L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Spotted-Dog-Company-Vintage-Etched/dp/B0B9V9XW7L/?ie=UTF8&tag=giftable02-20)
 
 Bring a touch of elegance to your next gathering with the Spotted Dog Company Vintage Etched Glass Set. This set of six glasses is dishwasher safe for easy cleaning and adds a touch of class to any occasion.
 
@@ -215,7 +215,7 @@ Each glass's engraved pattern adds a touch of elegance and nostalgia, while the 
 
 ✔️ Elegant etched design adds a touch of vintage charm.
 
-[Buy from Amazon](https://www.amazon.com/Spotted-Dog-Company-Vintage-Etched/dp/B0B9V9XW7L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Spotted-Dog-Company-Vintage-Etched/dp/B0B9V9XW7L/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Hammered Bronze Bowl](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1128037682/)
 
@@ -271,9 +271,9 @@ This canvas poster, available in a variety of sizes, makes an eye-catching wall 
 
 [Buy from Loveable](https://loveable.ai/products/skeleton-couple-tarot-card-custom-names-personalized-nicknames-canvasposter-gothic-couple-style-best-valentine-anniversary-gift-for-her-him-wall-hanging-212icnnpca217?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 
-### [15\. Infinity Love Candle Holder](https://www.amazon.com/OakiWay-Wedding-Gifts-Couple-Relationship/dp/B089KTTZR2/?ie=UTF8&tag=avadalove-20)
+### [15\. Infinity Love Candle Holder](https://www.amazon.com/OakiWay-Wedding-Gifts-Couple-Relationship/dp/B089KTTZR2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/OakiWay-Wedding-Gifts-Couple-Relationship/dp/B089KTTZR2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/OakiWay-Wedding-Gifts-Couple-Relationship/dp/B089KTTZR2/?ie=UTF8&tag=giftable02-20)
 
 Choose the Infinity Love Candle Holder for the perfect, one-of-a-kind gift for couples.
 
@@ -287,7 +287,7 @@ The Infinity Love Candle Holder is 10 inches by 4 inches and is made of high-qua
 
 ✔️ High-quality metal construction
 
-[Buy from Amazon](https://www.amazon.com/OakiWay-Wedding-Gifts-Couple-Relationship/dp/B089KTTZR2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/OakiWay-Wedding-Gifts-Couple-Relationship/dp/B089KTTZR2/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Personalized Brass Compass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1117454985/personalized-brass-compass-anniversary)
 
@@ -361,9 +361,9 @@ The Swans Pop-Up Card is 5 inches by 7 inches and is composed of high-quality pa
 
 [Buy from Lovepop](https://www.lovepop.com/products/swans-pop-up-card)
 
-### [20\. Lavender Scented Candle](https://www.amazon.com/Aromaflare-Anniversaries-Christmas-Valentines-Girlfriend/dp/B0BXCVSDV8/?ie=UTF8&tag=avadalove-20)
+### [20\. Lavender Scented Candle](https://www.amazon.com/Aromaflare-Anniversaries-Christmas-Valentines-Girlfriend/dp/B0BXCVSDV8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Aromaflare-Anniversaries-Christmas-Valentines-Girlfriend/dp/B0BXCVSDV8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Aromaflare-Anniversaries-Christmas-Valentines-Girlfriend/dp/B0BXCVSDV8/?ie=UTF8&tag=giftable02-20)
 
 Infuse your space with tranquility and indulge your senses with the Lavender Scented Candle. Explore the allure of its captivating aroma and experience a world of relaxation and curiosity.
 
@@ -377,7 +377,7 @@ The Lavender Scented Candle has a substantial burn duration of about 50 hours, a
 
 ✔️ Captivating lavender scent for a soothing ambiance.
 
-[Buy from Amazon](https://www.amazon.com/Aromaflare-Anniversaries-Christmas-Valentines-Girlfriend/dp/B0BXCVSDV8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Aromaflare-Anniversaries-Christmas-Valentines-Girlfriend/dp/B0BXCVSDV8/?ie=UTF8&tag=giftable02-20)
 
 ### [21\.  Personalized Wall Clock](https://loveable.ai/products/our-family-custom-number-of-member-personalized-wall-clock-best-gifts-for-mom-dad-family-grandparents-on-birthday-valentine-anniversaries-210ihpbnwc377?variant=43972477124840?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online) 
 
@@ -397,9 +397,9 @@ It's the right size for any space in your house, with a diameter of 12 inches. F
 
 [Buy from Loveable](https://loveable.ai/products/our-family-custom-number-of-member-personalized-wall-clock-best-gifts-for-mom-dad-family-grandparents-on-birthday-valentine-anniversaries-210ihpbnwc377?variant=43972477124840?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 
-### [22\. Romantic Couple Figurines](https://www.amazon.com/jinhuoba-Romantic-Figurines-Sculpture-Beautiful/dp/B07Q4RYQCJ/?ie=UTF8&tag=avadalove-20) 
+### [22\. Romantic Couple Figurines](https://www.amazon.com/jinhuoba-Romantic-Figurines-Sculpture-Beautiful/dp/B07Q4RYQCJ/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/jinhuoba-Romantic-Figurines-Sculpture-Beautiful/dp/B07Q4RYQCJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/jinhuoba-Romantic-Figurines-Sculpture-Beautiful/dp/B07Q4RYQCJ/?ie=UTF8&tag=giftable02-20)
 
 Unleash the power of romance in your home with the mesmerizing Romantic Couple Figurines. Let them ignite your curiosity and bring a touch of beauty and love to your space.
 
@@ -413,11 +413,11 @@ The Romantic Couple Figurines are 10 inches tall and include rich features that 
 
 ✔️ Intricate details that bring the figurines to life.
 
-[Buy from Amazon](https://www.amazon.com/jinhuoba-Romantic-Figurines-Sculpture-Beautiful/dp/B07Q4RYQCJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/jinhuoba-Romantic-Figurines-Sculpture-Beautiful/dp/B07Q4RYQCJ/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Wedding Anniversary Card](https://www.amazon.com/TANWIH-Wedding-Anniversary-Husband-Engraved/dp/B09K5KRZDG/?ie=UTF8&tag=avadalove-20)
+### [23\. Wedding Anniversary Card](https://www.amazon.com/TANWIH-Wedding-Anniversary-Husband-Engraved/dp/B09K5KRZDG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TANWIH-Wedding-Anniversary-Husband-Engraved/dp/B09K5KRZDG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TANWIH-Wedding-Anniversary-Husband-Engraved/dp/B09K5KRZDG/?ie=UTF8&tag=giftable02-20)
 
 Want to make your wedding anniversary truly unforgettable? Try gifting this gorgeous Wedding Anniversary Card.
 
@@ -431,7 +431,7 @@ This little yet powerful card is 4.5 by 3 inches and fits nicely in the palm of 
 
 ✔️ Unique and memorable way to celebrate your anniversary
 
-[Buy from Amazon](https://www.amazon.com/TANWIH-Wedding-Anniversary-Husband-Engraved/dp/B09K5KRZDG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TANWIH-Wedding-Anniversary-Husband-Engraved/dp/B09K5KRZDG/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Tiny Copper Card](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1443581266/22-years-hand-stamped-miniature)
 
@@ -451,9 +451,9 @@ The Tiny Copper Card is about 1.5 × 1.5 inches, yet its sentimental worth is en
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1443581266/22-years-hand-stamped-miniature)
 
-### [25\. After 22-Year Mug](https://www.amazon.com/YouNique-Designs-Anniversary-Coffee-Wedding/dp/B07N8WHKXN/?ie=UTF8&tag=avadalove-20)
+### [25\. After 22-Year Mug](https://www.amazon.com/YouNique-Designs-Anniversary-Coffee-Wedding/dp/B07N8WHKXN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YouNique-Designs-Anniversary-Coffee-Wedding/dp/B07N8WHKXN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YouNique-Designs-Anniversary-Coffee-Wedding/dp/B07N8WHKXN/?ie=UTF8&tag=giftable02-20)
 
 Give a gift that's both practical and sentimental – this stunning Coffee Mug from YouNique Designs fits the bill.
 
@@ -467,11 +467,11 @@ This durable porcelain mug is 4 by 4 inches and fits wonderfully in the hand. It
 
 ✔️ High-quality ceramic material built to last
 
-[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Anniversary-Coffee-Wedding/dp/B07N8WHKXN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YouNique-Designs-Anniversary-Coffee-Wedding/dp/B07N8WHKXN/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Happy Tag Keychain](https://www.amazon.com/Copper-Keychain-Engraved-Happy-Anniversary/dp/B01J6QIHV2/?ie=UTF8&tag=avadalove-20)
+### [26\. Happy Tag Keychain](https://www.amazon.com/Copper-Keychain-Engraved-Happy-Anniversary/dp/B01J6QIHV2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Copper-Keychain-Engraved-Happy-Anniversary/dp/B01J6QIHV2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Copper-Keychain-Engraved-Happy-Anniversary/dp/B01J6QIHV2/?ie=UTF8&tag=giftable02-20)
 
 Embrace the beauty of a gift that symbolizes love and practicality. Experience the Tag Keychain Engraved, a remarkable piece that captures the essence of a special anniversary.
 
@@ -485,7 +485,7 @@ This Tag Keychain Engraved is approximately 1.5 inches long and comes with a rob
 
 ✔️ Durable copper construction ensures longevity.
 
-[Buy from Amazon](https://www.amazon.com/Copper-Keychain-Engraved-Happy-Anniversary/dp/B01J6QIHV2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Copper-Keychain-Engraved-Happy-Anniversary/dp/B01J6QIHV2/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. You Are My Life Canvas](https://loveable.ai/products/insta-background-you-are-my-source-life-personalized-canvas-poster-best-anniversary-gifts-for-couple-home-decor-wall-art-208ihpthca056?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 
@@ -541,9 +541,9 @@ This tiny keychain is 2 by 3 inches and fits nicely in your pocket or purse. It'
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1087529253/personalized-leather-photo-keychain)
 
-### [30\. Back In 2001 Decoration](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Anniversary/dp/B0834F89Z6/?ie=UTF8&tag=avadalove-20)
+### [30\. Back In 2001 Decoration](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Anniversary/dp/B0834F89Z6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Anniversary/dp/B0834F89Z6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Anniversary/dp/B0834F89Z6/?ie=UTF8&tag=giftable02-20)
 
 Turn your birthday into a magical affair with the captivating Birthday Decoration by Katie Doodle.
 
@@ -557,11 +557,11 @@ Every printed pattern presents the most outstanding events that happended in 200
 
 ✔️ Versatile and suitable for different party spaces.
 
-[Buy from Amazon](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Anniversary/dp/B0834F89Z6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Anniversary/dp/B0834F89Z6/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Wooden Heart Plaque](https://www.amazon.com/STOFINITY-22nd-Wedding-Anniversary-Gifts/dp/B0BY49QNLY/?ie=UTF8&tag=avadalove-20)
+### [31\. Wooden Heart Plaque](https://www.amazon.com/STOFINITY-22nd-Wedding-Anniversary-Gifts/dp/B0BY49QNLY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/STOFINITY-22nd-Wedding-Anniversary-Gifts/dp/B0BY49QNLY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/STOFINITY-22nd-Wedding-Anniversary-Gifts/dp/B0BY49QNLY/?ie=UTF8&tag=giftable02-20)
 
 Honor your love and commitment with the exquisite Wooden Heart Plaque, a perfect 22nd wedding anniversary gift.
 
@@ -575,7 +575,7 @@ The Wooden Heart Plaque is 5 by 5 inches in size, making it ideal for displaying
 
 ✔️ Durable and made with high-quality materials.
 
-[Buy from Amazon](https://www.amazon.com/STOFINITY-22nd-Wedding-Anniversary-Gifts/dp/B0BY49QNLY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/STOFINITY-22nd-Wedding-Anniversary-Gifts/dp/B0BY49QNLY/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Bracelets Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/262751776/unique-wedding-gift-for-couple-bracelets)
 
@@ -595,9 +595,9 @@ The Bracelets Gift is a passionate declaration of love and dedication, not just 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/262751776/unique-wedding-gift-for-couple-bracelets)
 
-### [33\. Metal Date Night Dice](https://www.amazon.com/Year-Anniversary-Metal-Date-Night/dp/B07RSZQYM8/?ie=UTF8&tag=avadalove-20)
+### [33\. Metal Date Night Dice](https://www.amazon.com/Year-Anniversary-Metal-Date-Night/dp/B07RSZQYM8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Year-Anniversary-Metal-Date-Night/dp/B07RSZQYM8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Year-Anniversary-Metal-Date-Night/dp/B07RSZQYM8/?ie=UTF8&tag=giftable02-20)
 
 Take your date nights to new heights with the Metal Date Night Dice, a captivating set that will keep the spark alive and create lasting memories.
 
@@ -611,11 +611,11 @@ Each dice has several activity alternatives, such as "cook a meal together," "ha
 
 ✔️ Compact and portable, perfect for date nights on the go.
 
-[Buy from Amazon](https://www.amazon.com/Year-Anniversary-Metal-Date-Night/dp/B07RSZQYM8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Year-Anniversary-Metal-Date-Night/dp/B07RSZQYM8/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Cutting Board](https://www.amazon.com/Personalized-Wedding-Anniversary-Cutting-Handmade/dp/B08W3P711K/?ie=UTF8&tag=avadalove-20)
+### [34\. Cutting Board](https://www.amazon.com/Personalized-Wedding-Anniversary-Cutting-Handmade/dp/B08W3P711K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Wedding-Anniversary-Cutting-Handmade/dp/B08W3P711K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Wedding-Anniversary-Cutting-Handmade/dp/B08W3P711K/?ie=UTF8&tag=giftable02-20)
 
 Nothing says "I care" on a wedding anniversary quite like the Personalized Cutting Board, an unforgettable and meaningful keepsake.
 
@@ -629,11 +629,11 @@ This high-quality cutting board is 12 by 9 inches and is composed of natural bam
 
 ✔️ Perfect size and weight for both everyday use and display.
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Wedding-Anniversary-Cutting-Handmade/dp/B08W3P711K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Wedding-Anniversary-Cutting-Handmade/dp/B08W3P711K/?ie=UTF8&tag=giftable02-20)
 
-### [35\. I Survived T-Shirt](https://www.amazon.com/22nd-Wedding-Anniversary-Couples-Husband/dp/B07XRPSZF1/?ie=UTF8&tag=avadalove-20)
+### [35\. I Survived T-Shirt](https://www.amazon.com/22nd-Wedding-Anniversary-Couples-Husband/dp/B07XRPSZF1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/22nd-Wedding-Anniversary-Couples-Husband/dp/B07XRPSZF1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/22nd-Wedding-Anniversary-Couples-Husband/dp/B07XRPSZF1/?ie=UTF8&tag=giftable02-20)
 
 Need a fashionable and memorable gift for your 22nd anniversary? The 22 Years T-Shirt is the perfect expression of your enduring love and commitment.
 
@@ -647,7 +647,7 @@ This t-shirt is made of high-quality fabrics, ensuring comfort and durability. I
 
 ✔️ A meaningful way to celebrate and showcase your 22 years of love and commitment.
 
-[Buy from Amazon](https://www.amazon.com/22nd-Wedding-Anniversary-Couples-Husband/dp/B07XRPSZF1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/22nd-Wedding-Anniversary-Couples-Husband/dp/B07XRPSZF1/?ie=UTF8&tag=giftable02-20)
 
 ### [36\. Till Death Do Us Apart T-shirt Two Sides](https://loveable.ai/products/till-death-do-us-apart-personalized-g500-t-shirt-two-sides-gift-for-couple-306ihpbnts732?variant=44609879441640?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-22-year-anniversary-gifts-you-can-find-online)
 

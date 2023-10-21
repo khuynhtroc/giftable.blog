@@ -17,9 +17,9 @@ Right here, we offer a wide variety of stunning coral products that will impress
 
 Now, dive into a realm where beauty meets symbolism, where the ocean's wonders meet the creativity of human hands. Explore the depths of coral-inspired treasures and find the perfect gift to leave a lasting impression on your loved ones. Embark on this enchanting journey and bring the beauty of coral into their lives. Have a good day!
 
-### [1\. Decorative Coral Stone Box](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B00FS2MB0W/?ie=UTF8&tag=avadalove-20)
+### [1\. Decorative Coral Stone Box](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B00FS2MB0W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B00FS2MB0W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B00FS2MB0W/?ie=UTF8&tag=giftable02-20)
 
 Unveil the secrets of elegance and style with coral gifts that evoke a sense of luxury and refinement. Imagine gifting your loved ones a stunning Decorative Coral Box, a true masterpiece that transcends ordinary storage.
 
@@ -33,11 +33,11 @@ Its durable wood construction ensures long-lasting durability, while the meticul
 
 ✔️ Adds a touch of elegance and sophistication to any space
 
-[Buy from Amazon](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B00FS2MB0W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B00FS2MB0W/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Recycled Metal Home Decor](https://www.amazon.com/Anniversary-1988-2023-Recycled-Metal-Grandparents/dp/B0BM9RFL3X/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Recycled Metal Home Decor](https://www.amazon.com/Anniversary-1988-2023-Recycled-Metal-Grandparents/dp/B0BM9RFL3X/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Anniversary-1988-2023-Recycled-Metal-Grandparents/dp/B0BM9RFL3X/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Anniversary-1988-2023-Recycled-Metal-Grandparents/dp/B0BM9RFL3X/?th=1?ie=UTF8&tag=giftable02-20)
 
 Introducing the Anniversary Decor, a remarkable piece that encapsulates the love and milestones of a special couple. Whether it's a milestone anniversary or a sentimental gift for grandparents, this Anniversary Decor invokes warm emotions and creates a lasting impression.
 
@@ -51,7 +51,7 @@ Measuring 10 inches in length and 8 inches in height, this Anniversary Decor is 
 
 ✔️ Perfect size for versatile display in various home decor settings
 
-[Buy from Amazon](https://www.amazon.com/Anniversary-1988-2023-Recycled-Metal-Grandparents/dp/B0BM9RFL3X/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Anniversary-1988-2023-Recycled-Metal-Grandparents/dp/B0BM9RFL3X/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Fiery Sunset Coral Bowl](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/772465059/fiery-sunset-coral-bowl-beach-themed) 
 
@@ -71,9 +71,9 @@ The Fiery Sunset Coral Bowl is the ideal size for displaying fruits, snacks, or 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/772465059/fiery-sunset-coral-bowl-beach-themed)
 
-### [4\. Orgone Pyramid Healing Stone](https://www.amazon.com/CRISTALLIUM-Generator-Crystals-Meditation-Orgonite/dp/B0B69HF2QL/?th=1?ie=UTF8&tag=avadalove-20)
+### [4\. Orgone Pyramid Healing Stone](https://www.amazon.com/CRISTALLIUM-Generator-Crystals-Meditation-Orgonite/dp/B0B69HF2QL/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CRISTALLIUM-Generator-Crystals-Meditation-Orgonite/dp/B0B69HF2QL/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CRISTALLIUM-Generator-Crystals-Meditation-Orgonite/dp/B0B69HF2QL/?th=1?ie=UTF8&tag=giftable02-20)
 
 As you delve into the realm of meditation and self-reflection, these crystals become your allies, guiding you on a journey of spiritual growth and transformation.
 
@@ -89,11 +89,11 @@ Each Stone Generator Crystal measures 2 inches in height and is expertly crafted
 
 ✔️ Creates a powerful energy field that cleanses and balances
 
-[Buy from Amazon](https://www.amazon.com/CRISTALLIUM-Generator-Crystals-Meditation-Orgonite/dp/B0B69HF2QL/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CRISTALLIUM-Generator-Crystals-Meditation-Orgonite/dp/B0B69HF2QL/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [5\. Coral Pattern Organza Drawstring Gift Bags](https://www.amazon.com/YEKOLEYO-Pattern-Drawstring-Chocolate-Christmas/dp/B0BFLC4PZ8/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Coral Pattern Organza Drawstring Gift Bags](https://www.amazon.com/YEKOLEYO-Pattern-Drawstring-Chocolate-Christmas/dp/B0BFLC4PZ8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YEKOLEYO-Pattern-Drawstring-Chocolate-Christmas/dp/B0BFLC4PZ8/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YEKOLEYO-Pattern-Drawstring-Chocolate-Christmas/dp/B0BFLC4PZ8/?th=1?ie=UTF8&tag=giftable02-20)
 
 These delightful bags are a gateway to a world of imagination and joy. Imagine the anticipation as your loved ones receive their gifts tucked inside these beautiful bags, their eyes gleaming with delight.
 
@@ -109,11 +109,11 @@ Each drawstring bag measures 8.7 x 11.8 inches, providing ample space for variou
 
 ✔️ Durable and reusable, offering a sustainable gifting solution
 
-[Buy from Amazon](https://www.amazon.com/YEKOLEYO-Pattern-Drawstring-Chocolate-Christmas/dp/B0BFLC4PZ8/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YEKOLEYO-Pattern-Drawstring-Chocolate-Christmas/dp/B0BFLC4PZ8/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. Scented Tea Tin Candle with Coral Flower Fragrance](https://www.amazon.com/Collection-Fragrance-Housewarming-Essentials-Collectibles/dp/B09TSHQJ9K/?ie=UTF8&tag=avadalove-20)
+### [6\. Scented Tea Tin Candle with Coral Flower Fragrance](https://www.amazon.com/Collection-Fragrance-Housewarming-Essentials-Collectibles/dp/B09TSHQJ9K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Collection-Fragrance-Housewarming-Essentials-Collectibles/dp/B09TSHQJ9K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Collection-Fragrance-Housewarming-Essentials-Collectibles/dp/B09TSHQJ9K/?ie=UTF8&tag=giftable02-20)
 
 Ignite the flame of warmth and tranquility as the delicate scent of the coral candle fills the air, transporting you to a blissful oasis.
 
@@ -129,7 +129,7 @@ Crafted with premium-quality wax and infused with carefully selected scents, thi
 
 ✔️ Elegant coral design adds a touch of sophistication to any space
 
-[Buy from Amazon](https://www.amazon.com/Collection-Fragrance-Housewarming-Essentials-Collectibles/dp/B09TSHQJ9K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Collection-Fragrance-Housewarming-Essentials-Collectibles/dp/B09TSHQJ9K/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. White Cluster Coral](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1450865655/white-cluster-coral-3-6-100-genuine-sea)
 
@@ -191,9 +191,9 @@ The Coral Placemat is made from high-quality materials, ensuring durability and 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1073620247/coral-wedding-gift-35th-anniversary-gift)
 
-### [10\. Two Peas In A Pod Necklace](https://www.amazon.com/35th-Wedding-Anniversary-Gift-Necklace/dp/B07FPPFTVD/?ie=UTF8&tag=avadalove-20)
+### [10\. Two Peas In A Pod Necklace](https://www.amazon.com/35th-Wedding-Anniversary-Gift-Necklace/dp/B07FPPFTVD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/35th-Wedding-Anniversary-Gift-Necklace/dp/B07FPPFTVD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/35th-Wedding-Anniversary-Gift-Necklace/dp/B07FPPFTVD/?ie=UTF8&tag=giftable02-20)
 
 Experience the essence of love and celebrate 35 years of togetherness with the Coral Gifts Anniversary Necklace.
 
@@ -207,7 +207,7 @@ The pendant showcases delicate coral-like details, carefully crafted to mimic th
 
 ✔️ Thoughtful gift for commemorating 35 years of love and commitment
 
-[Buy from Amazon](https://www.amazon.com/35th-Wedding-Anniversary-Gift-Necklace/dp/B07FPPFTVD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/35th-Wedding-Anniversary-Gift-Necklace/dp/B07FPPFTVD/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. 35th Wedding Anniversary Personalised Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1237164561/35th-wedding-anniversary-personalised)
 
@@ -247,9 +247,9 @@ The double-walled construction offers excellent insulation, keeping your hot bev
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1408575456/coral-gift-boat-gifts-boat-tumbler)
 
-### [13\. Coral Lives Matter T-shirt](https://www.amazon.com/Coral-Saltwater-Reef-Aquarium-Hobbyist/dp/B07H596MQY/?ie=UTF8&tag=avadalove-20)
+### [13\. Coral Lives Matter T-shirt](https://www.amazon.com/Coral-Saltwater-Reef-Aquarium-Hobbyist/dp/B07H596MQY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coral-Saltwater-Reef-Aquarium-Hobbyist/dp/B07H596MQY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coral-Saltwater-Reef-Aquarium-Hobbyist/dp/B07H596MQY/?ie=UTF8&tag=giftable02-20)
 
 The T-Shirt sparks conversations, ignites curiosity, and fosters a deeper connection with our oceans.
 
@@ -265,11 +265,11 @@ The Coral T-Shirt is made from soft, breathable fabric that ensures comfort thro
 
 ✔️ Supports coral conservation and raises awareness
 
-[Buy from Amazon](https://www.amazon.com/Coral-Saltwater-Reef-Aquarium-Hobbyist/dp/B07H596MQY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coral-Saltwater-Reef-Aquarium-Hobbyist/dp/B07H596MQY/?ie=UTF8&tag=giftable02-20)
 
-### [14\. KhanImports Decorative Coral Stone Box](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B01AQSLYNC/?ie=UTF8&tag=avadalove-20)
+### [14\. KhanImports Decorative Coral Stone Box](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B01AQSLYNC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B01AQSLYNC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B01AQSLYNC/?ie=UTF8&tag=giftable02-20)
 
 The Coral Box is not merely an object; it is a vessel for cherished memories, a symbol of love, and a captivating piece of art. Gift it to your loved ones and let them experience the joy!
 
@@ -283,7 +283,7 @@ Crafted with meticulous attention to detail, the Coral Box is adorned with a han
 
 ✔️ Sturdy construction for long-lasting durability
 
-[Buy from Amazon](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B01AQSLYNC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Khan-Imports-Decorative-Coral-Traditional/dp/B01AQSLYNC/?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Coral Colored Beach Coastal Décor](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/960598468/real-natural-dried-sea-fans-6-18-coral)
 
@@ -323,9 +323,9 @@ The Copper Pendant boasts a length of 2 inches, perfectly showcasing its intrica
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1421926563/stingray-coral-gemstone-copper-pendant)
 
-### [17\. A Family Card Game About Ocean Animals](https://www.amazon.com/Ecosystem-Habitats-Classroom-Environments-Underwater/dp/B0BB4VXV1K/?ie=UTF8&tag=avadalove-20)
+### [17\. A Family Card Game About Ocean Animals](https://www.amazon.com/Ecosystem-Habitats-Classroom-Environments-Underwater/dp/B0BB4VXV1K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ecosystem-Habitats-Classroom-Environments-Underwater/dp/B0BB4VXV1K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ecosystem-Habitats-Classroom-Environments-Underwater/dp/B0BB4VXV1K/?ie=UTF8&tag=giftable02-20)
 
 Dive into the depths of imagination and explore the wonders of coral reefs, unveiling their hidden treasures and the delicate balance of marine life. This game will spark curiosity and foster environmental awareness.
 
@@ -341,11 +341,11 @@ The Card Game includes 72 beautifully illustrated cards, each depicting differen
 
 ✔️ Durable, high-quality cards for long-lasting enjoyment and learning
 
-[Buy from Amazon](https://www.amazon.com/Ecosystem-Habitats-Classroom-Environments-Underwater/dp/B0BB4VXV1K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ecosystem-Habitats-Classroom-Environments-Underwater/dp/B0BB4VXV1K/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Trinket Box with Removable Blue Coral Lid](https://www.amazon.com/Ceramic-Jewelry-Trinket-Holder-Removable/dp/B088N6VRGX/?ie=UTF8&tag=avadalove-20)
+### [18\. Trinket Box with Removable Blue Coral Lid](https://www.amazon.com/Ceramic-Jewelry-Trinket-Holder-Removable/dp/B088N6VRGX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ceramic-Jewelry-Trinket-Holder-Removable/dp/B088N6VRGX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ceramic-Jewelry-Trinket-Holder-Removable/dp/B088N6VRGX/?ie=UTF8&tag=giftable02-20)
 
 Unlock the enchantment of the sea with the Ceramic Trinket Box, a captivating treasure chest for your precious keepsakes. This coral gift evokes a sense of wonder and adds a touch of whimsy to any space.
 
@@ -361,7 +361,7 @@ The Ceramic Trinket Box measures 4.7 x 3.5 x 2.4 inches, providing ample space t
 
 ✔️ High-quality ceramic construction for durability and a polished finish
 
-[Buy from Amazon](https://www.amazon.com/Ceramic-Jewelry-Trinket-Holder-Removable/dp/B088N6VRGX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ceramic-Jewelry-Trinket-Holder-Removable/dp/B088N6VRGX/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Red Coral Pearl Stud Drop Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/864778451/red-coral-pearl-stud-drop-earrings-red)
 
@@ -381,9 +381,9 @@ The Red Coral Pearl Stud Drop Earrings feature red coral gemstones with a size o
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/864778451/red-coral-pearl-stud-drop-earrings-red)
 
-### [20\. Ocean Themed Throw Pillow Covers](https://www.amazon.com/Sanghing-Coastal-Decorative-Nautical-Cushion/dp/B0BFQRQQYY/?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Ocean Themed Throw Pillow Covers](https://www.amazon.com/Sanghing-Coastal-Decorative-Nautical-Cushion/dp/B0BFQRQQYY/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sanghing-Coastal-Decorative-Nautical-Cushion/dp/B0BFQRQQYY/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sanghing-Coastal-Decorative-Nautical-Cushion/dp/B0BFQRQQYY/?th=1?ie=UTF8&tag=giftable02-20)
 
 Transform your living space into a coastal oasis with the Sanghing Coastal Decorative Pillow Case. Dive into a world of serenity and tranquility as the gentle waves of the sea embrace your home.
 
@@ -397,7 +397,7 @@ The Decorative Pillow Case measures approximately 18 x 18 inches, making it an i
 
 ✔️ Easy to clean and maintain with machine washable convenience
 
-[Buy from Amazon](https://www.amazon.com/Sanghing-Coastal-Decorative-Nautical-Cushion/dp/B0BFQRQQYY/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sanghing-Coastal-Decorative-Nautical-Cushion/dp/B0BFQRQQYY/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Decorative Coral Reef Decor](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1359620244/decorative-coral-reef-decor-mothers-day)
 
@@ -417,9 +417,9 @@ The Decorative Coral Reef Decor measures 10 inches in height and 11 inches in wi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1359620244/decorative-coral-reef-decor-mothers-day)
 
-### [22\. Green Sea Turtle Coral Figurine Statue](https://www.amazon.com/dp/B0182XJ81S/?ie=UTF8&tag=avadalove-20)
+### [22\. Green Sea Turtle Coral Figurine Statue](https://www.amazon.com/dp/B0182XJ81S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0182XJ81S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0182XJ81S/?ie=UTF8&tag=giftable02-20)
 
 Embark on a mystical journey with the Yellow Moon Gifts Turtle Figurine. This captivating statue invites you to enter a realm where dreams and reality intertwine.
 
@@ -433,7 +433,7 @@ The Turtle Figurine measures approximately 6 inches in length, 4 inches in width
 
 ✔️ Vibrant yellow color adds a cheerful touch to any space
 
-[Buy from Amazon](https://www.amazon.com/dp/B0182XJ81S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0182XJ81S/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Personalized UV Print Picture Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1270560836/personalize-our-35th-anniversary)
 
@@ -453,9 +453,9 @@ This picture frame measures approximately 8 inches in height and 10 inches in wi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1270560836/personalize-our-35th-anniversary)
 
-### [24\. Create an Underwater Coral Reef Science Kit](https://www.amazon.com/WILD-Science-Environmental-Underwater-Chemical/dp/B08D2NNYYW/?ie=UTF8&tag=avadalove-20)
+### [24\. Create an Underwater Coral Reef Science Kit](https://www.amazon.com/WILD-Science-Environmental-Underwater-Chemical/dp/B08D2NNYYW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WILD-Science-Environmental-Underwater-Chemical/dp/B08D2NNYYW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WILD-Science-Environmental-Underwater-Chemical/dp/B08D2NNYYW/?ie=UTF8&tag=giftable02-20)
 
 Dive into the depths of knowledge and exploration as you discover the wonders of the coral reef ecosystem. This unique gift ignites curiosity, sparks the imagination, and fosters a sense of responsibility towards our natural world.
 
@@ -471,11 +471,11 @@ The Science Kit includes a comprehensive guidebook that offers step-by-step inst
 
 ✔️ High-quality materials and equipment for safe and enjoyable scientific exploration
 
-[Buy from Amazon](https://www.amazon.com/WILD-Science-Environmental-Underwater-Chemical/dp/B08D2NNYYW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WILD-Science-Environmental-Underwater-Chemical/dp/B08D2NNYYW/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Scented Candle Jar with Lid](https://www.amazon.com/Cheerful-Giver-Scented-Candle-Fragrance/dp/B095DQQ5KW/?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Scented Candle Jar with Lid](https://www.amazon.com/Cheerful-Giver-Scented-Candle-Fragrance/dp/B095DQQ5KW/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cheerful-Giver-Scented-Candle-Fragrance/dp/B095DQQ5KW/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cheerful-Giver-Scented-Candle-Fragrance/dp/B095DQQ5KW/?th=1?ie=UTF8&tag=giftable02-20)
 
 Let the flickering flame transport you to a world of coral lovers, where stories of underwater wonders and vibrant marine life come to life. This candle is the perfect gift for those who appreciate the beauty of coral reefs.
 
@@ -489,11 +489,11 @@ The Scented Candle features a high-quality blend of wax and fragrance that ensur
 
 ✔️ Beautiful coral-inspired design adds a touch of coastal charm
 
-[Buy from Amazon](https://www.amazon.com/Cheerful-Giver-Scented-Candle-Fragrance/dp/B095DQQ5KW/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cheerful-Giver-Scented-Candle-Fragrance/dp/B095DQQ5KW/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Cocktail Beverage Paper Napkins](https://www.amazon.com/Boston-International-Cocktail-Beverage-5-Inches/dp/B08W4RV651/?ie=UTF8&tag=avadalove-20)
+### [26\. Cocktail Beverage Paper Napkins](https://www.amazon.com/Boston-International-Cocktail-Beverage-5-Inches/dp/B08W4RV651/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Boston-International-Cocktail-Beverage-5-Inches/dp/B08W4RV651/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Boston-International-Cocktail-Beverage-5-Inches/dp/B08W4RV651/?ie=UTF8&tag=giftable02-20)
 
 Elevate your dining experience with the Boston International Coral Napkins.
 
@@ -507,7 +507,7 @@ The Coral Napkins are crafted with care, measuring 5 inches by 5 inches in size,
 
 ✔️ Eco-friendly water-based inks used for a sustainable dining experience
 
-[Buy from Amazon](https://www.amazon.com/Boston-International-Cocktail-Beverage-5-Inches/dp/B08W4RV651/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Boston-International-Cocktail-Beverage-5-Inches/dp/B08W4RV651/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Coral Fossil Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1460204561/coral-fossil-necklace-in-sterling-silver) 
 
@@ -545,9 +545,9 @@ These Coral Absorbent Drink Coasters are not only visually appealing but also hi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/230266792/coral-absorbent-drink-coasters-for-beach)
 
-### [29\. Teal Bathroom Decor Wall Art](https://www.amazon.com/Bathroom-Turtle-Turquoise-Seagrass-Background/dp/B0BTM2R546/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Teal Bathroom Decor Wall Art](https://www.amazon.com/Bathroom-Turtle-Turquoise-Seagrass-Background/dp/B0BTM2R546/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bathroom-Turtle-Turquoise-Seagrass-Background/dp/B0BTM2R546/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bathroom-Turtle-Turquoise-Seagrass-Background/dp/B0BTM2R546/?th=1?ie=UTF8&tag=giftable02-20)
 
 This wall decor brings a sense of tranquility and connection to nature. It serves as a reminder of the awe-inspiring wonders beneath the waves, making it a perfect gift for coral lovers who appreciate the beauty and importance of marine life.
 
@@ -561,11 +561,11 @@ The Turtle Wall Decor is crafted with attention to detail, measuring approximate
 
 ✔️ Versatile and easy to install, great for various rooms in your home
 
-[Buy from Amazon](https://www.amazon.com/Bathroom-Turtle-Turquoise-Seagrass-Background/dp/B0BTM2R546/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bathroom-Turtle-Turquoise-Seagrass-Background/dp/B0BTM2R546/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. 3D Coral Reef Centerpiece](https://www.amazon.com/Beistle-57323-Coral-Centerpiece-10-Inch/dp/B00AWGP5IY/?ie=UTF8&tag=avadalove-20)
+### [30\. 3D Coral Reef Centerpiece](https://www.amazon.com/Beistle-57323-Coral-Centerpiece-10-Inch/dp/B00AWGP5IY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Beistle-57323-Coral-Centerpiece-10-Inch/dp/B00AWGP5IY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Beistle-57323-Coral-Centerpiece-10-Inch/dp/B00AWGP5IY/?ie=UTF8&tag=giftable02-20)
 
 Elevate your table decor to new heights with the enchanting Coral Centerpiece. It serves as a symbolic gift, representing the delicate balance of marine ecosystems and the importance of coral preservation.
 
@@ -579,11 +579,11 @@ The Coral Centerpiece stands 10 inches tall, making it an eye-catching focal poi
 
 ✔️ Intricately designed coral branches in a vibrant shade of coral pink
 
-[Buy from Amazon](https://www.amazon.com/Beistle-57323-Coral-Centerpiece-10-Inch/dp/B00AWGP5IY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Beistle-57323-Coral-Centerpiece-10-Inch/dp/B00AWGP5IY/?ie=UTF8&tag=giftable02-20)
 
-### [31\. The Secret Life of Corals](https://www.amazon.com/Secret-Life-Corals-Rocks-that/dp/1604271884/?ie=UTF8&tag=avadalove-20)
+### [31\. The Secret Life of Corals](https://www.amazon.com/Secret-Life-Corals-Rocks-that/dp/1604271884/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Secret-Life-Corals-Rocks-that/dp/1604271884/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Secret-Life-Corals-Rocks-that/dp/1604271884/?ie=UTF8&tag=giftable02-20)
 
 This book serves as a portal to connect coral lovers with the intricate beauty and wonders of coral reefs. It unveils the secrets held within the rocks, revealing their profound connection to the delicate balance of our planet's ecosystems.
 
@@ -597,11 +597,11 @@ The Secret Life of Corals book offers a wealth of information and measures appro
 
 ✔️ Fosters a sense of responsibility toward coral conservation
 
-[Buy from Amazon](https://www.amazon.com/Secret-Life-Corals-Rocks-that/dp/1604271884/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Secret-Life-Corals-Rocks-that/dp/1604271884/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Artificial Coral Statue Figurine](https://www.amazon.com/dp/B0B58CYZ89/?ie=UTF8&tag=avadalove-20)
+### [32\. Artificial Coral Statue Figurine](https://www.amazon.com/dp/B0B58CYZ89/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0B58CYZ89/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0B58CYZ89/?ie=UTF8&tag=giftable02-20)
 
 This figurine serves as a mesmerizing centerpiece, evoking a sense of wonder and serenity. It is a perfect choice for coral lovers seeking to infuse their surroundings with elegance and a touch of marine magic.
 
@@ -615,7 +615,7 @@ The Coral Sculpture stands approximately 8 inches tall and is expertly crafted f
 
 ✔️ Low-maintenance and long-lasting beauty
 
-[Buy from Amazon](https://www.amazon.com/dp/B0B58CYZ89/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0B58CYZ89/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Blue Coastal Table Runner](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1035841708/blue-coastal-table-runner-fish-coral)
 

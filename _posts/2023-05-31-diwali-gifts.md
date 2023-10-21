@@ -17,9 +17,9 @@ Our extensive range of Diwali gifts offers a delightful fusion of tradition and 
 
 Celebrate the festival of Diwali by embracing the joy of giving and expressing your love through our unique and diverse selection. Let the spirit of Diwali illuminate your choices as you find the perfect gifts to convey your warm wishes and blessings. Join us to get a pretty gift to give your loved one on special day like Diawali holiday.
 
-### [1\. Set of Brass Copper Lotus Flower](https://www.amazon.com/SATVIK-Brass-Copper-Lotus-Diya/dp/B09CPZHXH2/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Set of Brass Copper Lotus Flower](https://www.amazon.com/SATVIK-Brass-Copper-Lotus-Diya/dp/B09CPZHXH2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SATVIK-Brass-Copper-Lotus-Diya/dp/B09CPZHXH2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SATVIK-Brass-Copper-Lotus-Diya/dp/B09CPZHXH2/?th=1?ie=UTF8&tag=giftable02-20)
 
 The SATVIK 12 Pc Set of Brass Copper Lotus Diya is a must-have for Diwali gifts.
 
@@ -33,11 +33,11 @@ The diya's akand design allows for a continuous and steady flame, creating a pea
 
 ✔️ Versatile decor for Diwali and other festivities
 
-[Buy from Amazon](https://www.amazon.com/SATVIK-Brass-Copper-Lotus-Diya/dp/B09CPZHXH2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SATVIK-Brass-Copper-Lotus-Diya/dp/B09CPZHXH2/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. Gourmet Food Bouquet Platter](https://www.amazon.com/Holiday-Thanksgiving-Christmas-Arrangement-Birthday/dp/B01LOZ311O/?ie=UTF8&tag=avadalove-20)
+### [2\. Gourmet Food Bouquet Platter](https://www.amazon.com/Holiday-Thanksgiving-Christmas-Arrangement-Birthday/dp/B01LOZ311O/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Holiday-Thanksgiving-Christmas-Arrangement-Birthday/dp/B01LOZ311O/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Holiday-Thanksgiving-Christmas-Arrangement-Birthday/dp/B01LOZ311O/?ie=UTF8&tag=giftable02-20)
 
 The Mixed Nuts Gift Basket in the Red Gold Box is a delightful choice for Diwali gifts or any special occasion.
 
@@ -53,11 +53,11 @@ With a weight of 1 pound, this gift is perfect for indulging in a healthy and fl
 
 ✔️ Healthy and satisfying snack option
 
-[Buy from Amazon](https://www.amazon.com/Holiday-Thanksgiving-Christmas-Arrangement-Birthday/dp/B01LOZ311O/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Holiday-Thanksgiving-Christmas-Arrangement-Birthday/dp/B01LOZ311O/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Arts and Crafts DIY Kit](https://www.amazon.com/Stained-Mandala-Markers-Suncatchers-Beginners/dp/B09X1YX59W/?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Arts and Crafts DIY Kit](https://www.amazon.com/Stained-Mandala-Markers-Suncatchers-Beginners/dp/B09X1YX59W/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stained-Mandala-Markers-Suncatchers-Beginners/dp/B09X1YX59W/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stained-Mandala-Markers-Suncatchers-Beginners/dp/B09X1YX59W/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Arts and Crafts DIY Kit is a wonderful choice for a creative and engaging Diwali gift.
 
@@ -73,7 +73,7 @@ Once completed, the suncatchers can be applied to windows, adding a touch of col
 
 ✔️ Suitable for various age groups and skill levels
 
-[Buy from Amazon](https://www.amazon.com/Stained-Mandala-Markers-Suncatchers-Beginners/dp/B09X1YX59W/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stained-Mandala-Markers-Suncatchers-Beginners/dp/B09X1YX59W/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Multi Color Tea Light Holders](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1290706108/wholesale-multi-color-tea-light-holders)
 
@@ -93,9 +93,9 @@ With their vibrant and captivating colors, they create a festive atmosphere in a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1290706108/wholesale-multi-color-tea-light-holders)
 
-### [5\. Aromatherapy Candles](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Aromatherapy Candles](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?th=1?ie=UTF8&tag=giftable02-20)
 
 Scented candles are a wonderful choice for Diwali gifts, as they symbolize light, warmth, and create a serene atmosphere.
 
@@ -109,11 +109,11 @@ Each candle is carefully crafted to deliver a unique olfactory experience, allow
 
 ✔️ Gift set includes four enchanting fragrances
 
-[Buy from Amazon](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. Assorted Tea Gift Sets](https://www.amazon.com/VAHDAM-Beautiful-Presentation-Ingredients-Christmas/dp/B00VIDY1GC/?ie=UTF8&tag=avadalove-20)
+### [6\. Assorted Tea Gift Sets](https://www.amazon.com/VAHDAM-Beautiful-Presentation-Ingredients-Christmas/dp/B00VIDY1GC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VAHDAM-Beautiful-Presentation-Ingredients-Christmas/dp/B00VIDY1GC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VAHDAM-Beautiful-Presentation-Ingredients-Christmas/dp/B00VIDY1GC/?ie=UTF8&tag=giftable02-20)
 
 Assorted Tea Gift Sets in the Blush flavor are a perfect choice for **[tea lovers](/gifts-tea-lovers/)** and make excellent gifts. Each set contains 90g (3.17oz) of premium tea in three delightful flavors.
 
@@ -129,11 +129,11 @@ Even if you prefer a soothing herbal blend, a robust black tea, or a refreshing 
 
 ✔️ Offers a diverse and satisfying tea experience
 
-[Buy from Amazon](https://www.amazon.com/VAHDAM-Beautiful-Presentation-Ingredients-Christmas/dp/B00VIDY1GC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VAHDAM-Beautiful-Presentation-Ingredients-Christmas/dp/B00VIDY1GC/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Volcanic Stone Statue T-Light Holder](https://www.amazon.com/Volcanic-Statue-T-light-Holder-Praying/dp/B00DZ1J2FK/?ie=UTF8&tag=avadalove-20)
+### [7\. Volcanic Stone Statue T-Light Holder](https://www.amazon.com/Volcanic-Statue-T-light-Holder-Praying/dp/B00DZ1J2FK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Volcanic-Statue-T-light-Holder-Praying/dp/B00DZ1J2FK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Volcanic-Statue-T-light-Holder-Praying/dp/B00DZ1J2FK/?ie=UTF8&tag=giftable02-20)
 
 The enlightened volcanic stone Praying Monk sculpture is a perfect choice for Diwali gifts. This exquisite piece depicts a serene monk in a meditative position, symbolizing peace and tranquility.
 
@@ -149,7 +149,7 @@ With its natural toned weathered finish, this statue adds a touch of elegance to
 
 ✔️ Natural toned weathered finish for an authentic look
 
-[Buy from Amazon](https://www.amazon.com/Volcanic-Statue-T-light-Holder-Praying/dp/B00DZ1J2FK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Volcanic-Statue-T-light-Holder-Praying/dp/B00DZ1J2FK/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Elephant Tealight Candle Holder](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1073604151/100-pcs-elephant-tealight-candle-holder)
 
@@ -169,9 +169,9 @@ Perfect for Diwali celebrations, they provide a beautiful way to illuminate your
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1073604151/100-pcs-elephant-tealight-candle-holder)
 
-### [9\. Jewelry Silk Purse Pouch Gift Bags](https://www.amazon.com/MorTime-Jewellery-Jewelry-Multiple-Colors/dp/B0797RHBF1/?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Jewelry Silk Purse Pouch Gift Bags](https://www.amazon.com/MorTime-Jewellery-Jewelry-Multiple-Colors/dp/B0797RHBF1/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MorTime-Jewellery-Jewelry-Multiple-Colors/dp/B0797RHBF1/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MorTime-Jewellery-Jewelry-Multiple-Colors/dp/B0797RHBF1/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Jewelry Silk Purse Pouch Gift Bags are a wonderful choice for presenting Diwali gifts or storing and organizing your precious jewelry. This pack of 12 bags comes in multiple vibrant colors, adding a touch of elegance and charm to your gift-giving.
 
@@ -185,11 +185,11 @@ Each bag features a secure drawstring closure, allowing you to easily open and c
 
 ✔️ Made from high-quality silk for a luxurious feel
 
-[Buy from Amazon](https://www.amazon.com/MorTime-Jewellery-Jewelry-Multiple-Colors/dp/B0797RHBF1/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MorTime-Jewellery-Jewelry-Multiple-Colors/dp/B0797RHBF1/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [10\. Coasters for Drinks](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=avadalove-20)
+### [10\. Coasters for Drinks](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=giftable02-20)
 
 These Coasters for Drinks are a practical and stylish addition to any home, making them an ideal gift for birthdays, housewarmings, and various occasions.
 
@@ -205,7 +205,7 @@ The heat-resistant feature ensures they can handle hot beverages without damagin
 
 ✔️ Stylish and functional gift for various occasions
 
-[Buy from Amazon](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/InnoGear-Absorbing-Heat-Resistant-Housewarming-Apartment/dp/B07ZCTMQ4V/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Decorative Brass Turtle Leaf](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1233353920/decorative-brass-tortoise-turtle-leaf)
 
@@ -225,9 +225,9 @@ Its exquisite beauty makes it an ideal piece for Diwali decorations or as a thou
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1233353920/decorative-brass-tortoise-turtle-leaf)
 
-### [12\. Solar Outdoor Turtle Statue](https://www.amazon.com/Nacome-Garden-Statue-Figurine-Succulent/dp/B091ZFL4X5/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Solar Outdoor Turtle Statue](https://www.amazon.com/Nacome-Garden-Statue-Figurine-Succulent/dp/B091ZFL4X5/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nacome-Garden-Statue-Figurine-Succulent/dp/B091ZFL4X5/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nacome-Garden-Statue-Figurine-Succulent/dp/B091ZFL4X5/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Turtle Statue with Succulent and 7 LED Lights is a delightful addition to your outdoor decor and an excellent choice for unique housewarming gifts, especially for Diwali.
 
@@ -241,11 +241,11 @@ Bring a sense of joy and tranquility to your outdoor space or surprise your love
 
 ✔️ Durable construction for outdoor use
 
-[Buy from Amazon](https://www.amazon.com/Nacome-Garden-Statue-Figurine-Succulent/dp/B091ZFL4X5/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nacome-Garden-Statue-Figurine-Succulent/dp/B091ZFL4X5/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Biscotti Gift Baskets](https://www.amazon.com/Chocolate-Cookie-Valentines-Baskets-Thanksgiving/dp/B0081BE3E4/?ie=UTF8&tag=avadalove-20)
+### [13\. Biscotti Gift Baskets](https://www.amazon.com/Chocolate-Cookie-Valentines-Baskets-Thanksgiving/dp/B0081BE3E4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chocolate-Cookie-Valentines-Baskets-Thanksgiving/dp/B0081BE3E4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chocolate-Cookie-Valentines-Baskets-Thanksgiving/dp/B0081BE3E4/?ie=UTF8&tag=giftable02-20)
 
 The Biscotti Gift Baskets, with its delectable assortment of 12 cookie chocolates, is an exquisite choice for Diwali gifts.
 
@@ -259,7 +259,7 @@ This chocolate-covered cookie holiday gift box is filled with a variety of gourm
 
 ✔️ Thoughtful gift idea for mom, wife, sister, and women
 
-[Buy from Amazon](https://www.amazon.com/Chocolate-Cookie-Valentines-Baskets-Thanksgiving/dp/B0081BE3E4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Chocolate-Cookie-Valentines-Baskets-Thanksgiving/dp/B0081BE3E4/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Diwali Special Gift Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1471570052/personalized-diwali-special-gift-set)
 
@@ -279,9 +279,9 @@ The gift box itself is a heavy-duty decorative box adorned with a glittery ribbo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1471570052/personalized-diwali-special-gift-set)
 
-### [15\. Kuber Turtle Diya Decoration](https://www.amazon.com/Decoration-Handmade-Engraved-Traditional-Deepawali/dp/B075Z182VG/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Kuber Turtle Diya Decoration](https://www.amazon.com/Decoration-Handmade-Engraved-Traditional-Deepawali/dp/B075Z182VG/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decoration-Handmade-Engraved-Traditional-Deepawali/dp/B075Z182VG/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decoration-Handmade-Engraved-Traditional-Deepawali/dp/B075Z182VG/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Brass Kuber Turtle Diya is a magnificent addition to Diwali decorations and a perfect choice for gifting during the festival.
 
@@ -297,11 +297,11 @@ Each diya features golden engraved detailing on the virgin brass metal, adding a
 
 ✔️ Symbolizes prosperity and makes an ideal Diwali gift
 
-[Buy from Amazon](https://www.amazon.com/Decoration-Handmade-Engraved-Traditional-Deepawali/dp/B075Z182VG/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decoration-Handmade-Engraved-Traditional-Deepawali/dp/B075Z182VG/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Round Gold Votive Candle Holders](https://www.amazon.com/Volens-Votive-Holders-Mercury-Tealight/dp/B07F58TVHZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Round Gold Votive Candle Holders](https://www.amazon.com/Volens-Votive-Holders-Mercury-Tealight/dp/B07F58TVHZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Volens-Votive-Holders-Mercury-Tealight/dp/B07F58TVHZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Volens-Votive-Holders-Mercury-Tealight/dp/B07F58TVHZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Round Gold Votive Candle Holders are a stunning addition to your home decor and a perfect choice for creating an enchanting ambiance during Diwali celebrations.
 
@@ -315,11 +315,11 @@ With a 2ʺ diameter (top) and 2ʺ height approximately, these votive tealight ca
 
 ✔️ Suitable for regular tealight candles and LED tea lights
 
-[Buy from Amazon](https://www.amazon.com/Volens-Votive-Holders-Mercury-Tealight/dp/B07F58TVHZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Volens-Votive-Holders-Mercury-Tealight/dp/B07F58TVHZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [17\. Hindu Om Wall Hanging Decor](https://www.amazon.com/Mie-Creations-Housewarming-Meditation-Decorative/dp/B099Z772Q8/?ie=UTF8&tag=avadalove-20)
+### [17\. Hindu Om Wall Hanging Decor](https://www.amazon.com/Mie-Creations-Housewarming-Meditation-Decorative/dp/B099Z772Q8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mie-Creations-Housewarming-Meditation-Decorative/dp/B099Z772Q8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mie-Creations-Housewarming-Meditation-Decorative/dp/B099Z772Q8/?ie=UTF8&tag=giftable02-20)
 
 The Hindu Om decor is a captivating piece that makes for an ideal Diwali gift and a stunning addition to your home decor.
 
@@ -335,7 +335,7 @@ The antique golden finish adds a touch of elegance and charm to the overall aest
 
 ✔️ Ideal as Diwali gifts and housewarming presents
 
-[Buy from Amazon](https://www.amazon.com/Mie-Creations-Housewarming-Meditation-Decorative/dp/B099Z772Q8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mie-Creations-Housewarming-Meditation-Decorative/dp/B099Z772Q8/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Iron Lotus Urli Pot](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/981985303/christmasdiwali-gift-iron-lotus-urlipot)
 
@@ -375,9 +375,9 @@ With only one nail needed for hanging and no assembly required, it's a hassle-fr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1015377361/3d-mandala-wall-art-gifts-for-women)
 
-### [20\. Gift Card in Yellow Swirl Box](https://www.amazon.com/Amazon-com-Gift-Card-Medallion-Box/dp/B0763VZ9Z7/r?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Gift Card in Yellow Swirl Box](https://www.amazon.com/Amazon-com-Gift-Card-Medallion-Box/dp/B0763VZ9Z7/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Gift-Card-Medallion-Box/dp/B0763VZ9Z7/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Gift-Card-Medallion-Box/dp/B0763VZ9Z7/r?th=1?ie=UTF8&tag=giftable02-20)
 
 This gift card comes beautifully presented inside a stylish gift box adorned with a yellow swirl design, adding an elegant touch to your gifting.
 
@@ -393,7 +393,7 @@ The Amazon.com Gift Card in a Yellow Swirl Box is a thoughtful and practical Diw
 
 ✔️ No fees and no expiration date for added convenience
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Medallion-Box/dp/B0763VZ9Z7/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Medallion-Box/dp/B0763VZ9Z7/r?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Mix Lot Indian Wedding Umbrella](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1041517708/10-pcs-mix-lot-indian-wedding-umbrella)
 
@@ -413,9 +413,9 @@ Created by traditional artisans of Jaipur, each umbrella features an exclusive d
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1041517708/10-pcs-mix-lot-indian-wedding-umbrella)
 
-### [22\. Red Lotus Shape Candle](https://www.amazon.com/SATVIK-Chandrarupa-Diya-Floral-Housewarming/dp/B0BXKT7N9C/r?th=1?ie=UTF8&tag=avadalove-20)
+### [22\. Red Lotus Shape Candle](https://www.amazon.com/SATVIK-Chandrarupa-Diya-Floral-Housewarming/dp/B0BXKT7N9C/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SATVIK-Chandrarupa-Diya-Floral-Housewarming/dp/B0BXKT7N9C/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SATVIK-Chandrarupa-Diya-Floral-Housewarming/dp/B0BXKT7N9C/r?th=1?ie=UTF8&tag=giftable02-20)
 
 The Floral Red Lotus Flower Shape Candle is designed in the shape of a red lotus flower, symbolizing beauty and prosperity.
 
@@ -429,11 +429,11 @@ Whether placed in your indoor home mandir, office temple, or used for Pujan and 
 
 ✔️ Perfect for Diwali gifts, home decor, and religious rituals
 
-[Buy from Amazon](https://www.amazon.com/SATVIK-Chandrarupa-Diya-Floral-Housewarming/dp/B0BXKT7N9C/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SATVIK-Chandrarupa-Diya-Floral-Housewarming/dp/B0BXKT7N9C/r?th=1?ie=UTF8&tag=giftable02-20)
 
-### [23\. Diwali Theme Party Gift Packs](https://www.amazon.com/Packs-Diwali-Birthday-Snacks-Decorations/dp/B0B77HT6ZY/?ie=UTF8&tag=avadalove-20)
+### [23\. Diwali Theme Party Gift Packs](https://www.amazon.com/Packs-Diwali-Birthday-Snacks-Decorations/dp/B0B77HT6ZY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Packs-Diwali-Birthday-Snacks-Decorations/dp/B0B77HT6ZY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Packs-Diwali-Birthday-Snacks-Decorations/dp/B0B77HT6ZY/?ie=UTF8&tag=giftable02-20)
 
 The 16 Packs of Diwali Theme Party Gift Packs are the perfect choice for spreading joy and delight during the festive season.
 
@@ -447,7 +447,7 @@ Each pack is thoughtfully curated with a variety of snacks and candy, making the
 
 ✔️ Doubles as vibrant party decorations
 
-[Buy from Amazon](https://www.amazon.com/Packs-Diwali-Birthday-Snacks-Decorations/dp/B0B77HT6ZY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Packs-Diwali-Birthday-Snacks-Decorations/dp/B0B77HT6ZY/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Gold Hamsa Hand Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1350670471/14k-gold-hamsa-hand-necklace-dainty)
 
@@ -467,9 +467,9 @@ The necklace is lightweight, making it comfortable to wear throughout the day. I
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1350670471/14k-gold-hamsa-hand-necklace-dainty)
 
-### [25\. Dried Fruit Gift Basket](https://www.amazon.com/Dried-Fruit-Gift-Basket-Multi-Functional/dp/B07CHSN691/?ie=UTF8&tag=avadalove-20)
+### [25\. Dried Fruit Gift Basket](https://www.amazon.com/Dried-Fruit-Gift-Basket-Multi-Functional/dp/B07CHSN691/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dried-Fruit-Gift-Basket-Multi-Functional/dp/B07CHSN691/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dried-Fruit-Gift-Basket-Multi-Functional/dp/B07CHSN691/?ie=UTF8&tag=giftable02-20)
 
 The Dried Fruit Gift Basket is a delightful and healthy gourmet snack box that is perfect for various occasions, including Diwali gifts.
 
@@ -485,11 +485,11 @@ This thoughtfully curated gift basket features a variety of dried fruits, offeri
 
 ✔️ Beautifully presented and suitable for gifting
 
-[Buy from Amazon](https://www.amazon.com/Dried-Fruit-Gift-Basket-Multi-Functional/dp/B07CHSN691/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dried-Fruit-Gift-Basket-Multi-Functional/dp/B07CHSN691/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Jasmine Scented Candle](https://www.amazon.com/JOLIE-MUSE-Jasmine-Fragrance-Christmas/dp/B01D1HEP0E/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Jasmine Scented Candle](https://www.amazon.com/JOLIE-MUSE-Jasmine-Fragrance-Christmas/dp/B01D1HEP0E/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JOLIE-MUSE-Jasmine-Fragrance-Christmas/dp/B01D1HEP0E/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JOLIE-MUSE-Jasmine-Fragrance-Christmas/dp/B01D1HEP0E/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Candles Gifts for Women are a perfect choice to create a soothing and aromatic atmosphere in any home.
 
@@ -505,11 +505,11 @@ This set of candles comes beautifully packaged in a gift box, making it an ideal
 
 ✔️ Long-lasting burn time of up to 70 hours
 
-[Buy from Amazon](https://www.amazon.com/JOLIE-MUSE-Jasmine-Fragrance-Christmas/dp/B01D1HEP0E/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JOLIE-MUSE-Jasmine-Fragrance-Christmas/dp/B01D1HEP0E/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Metal Birdcage Lantern](http://amazon.com/Nuptio-Tealight-Birdcage-Decorative-Centerpieces/dp/B07TNS8RKF/?ie=UTF8&tag=avadalove-20)
+### [27\. Metal Birdcage Lantern](http://amazon.com/Nuptio-Tealight-Birdcage-Decorative-Centerpieces/dp/B07TNS8RKF/?ie=UTF8&tag=giftable02-20)
 
-[](http://amazon.com/Nuptio-Tealight-Birdcage-Decorative-Centerpieces/dp/B07TNS8RKF/?ie=UTF8&tag=avadalove-20)
+[](http://amazon.com/Nuptio-Tealight-Birdcage-Decorative-Centerpieces/dp/B07TNS8RKF/?ie=UTF8&tag=giftable02-20)
 
 The Birdcage Lanterns are exquisite decorative pieces that add a touch of vintage charm to any occasion.
 
@@ -523,7 +523,7 @@ With their delicate birdcage design, they create a captivating ambiance when ill
 
 ✔️ Versatile use for weddings, parties, or home decor
 
-[Buy from Amazon](http://amazon.com/Nuptio-Tealight-Birdcage-Decorative-Centerpieces/dp/B07TNS8RKF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](http://amazon.com/Nuptio-Tealight-Birdcage-Decorative-Centerpieces/dp/B07TNS8RKF/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Punjabi Name Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297654717/)
 
@@ -583,9 +583,9 @@ With dimensions of 10_9_4 inches, these bags offer ample space to carry essentia
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1293938418/jute-bags-with-contrast-ganesha-print)
 
-### [31\. Golden Plated Laxmi Ganesha](https://www.amazon.com/Aluminium-Puja-Deepawali-Decorations-Dhanteras/dp/B08L96JHRH/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Golden Plated Laxmi Ganesha](https://www.amazon.com/Aluminium-Puja-Deepawali-Decorations-Dhanteras/dp/B08L96JHRH/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Aluminium-Puja-Deepawali-Decorations-Dhanteras/dp/B08L96JHRH/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Aluminium-Puja-Deepawali-Decorations-Dhanteras/dp/B08L96JHRH/?th=1?ie=UTF8&tag=giftable02-20)
 
 This beautiful Pooja Thali with Ganesh and Lakshmi idols is a perfect addition to your Diwali celebrations and makes for an exquisite Diwali gift.
 
@@ -601,7 +601,7 @@ With dimensions of 14 X 14 X 8 cm, it is a compact and convenient size. The Pooj
 
 ✔️ Includes diya stand and dhoop batti stand
 
-[Buy from Amazon](https://www.amazon.com/Aluminium-Puja-Deepawali-Decorations-Dhanteras/dp/B08L96JHRH/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Aluminium-Puja-Deepawali-Decorations-Dhanteras/dp/B08L96JHRH/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Acrylic Decorated Thali](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/620043393/acrylic-decorated-thalipeacock-embodied)
 
@@ -621,9 +621,9 @@ The vibrant colors and detailed peacock design enhance its visual appeal. With d
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/620043393/acrylic-decorated-thalipeacock-embodied)
 
-### [33\. Nut Gift Basket](https://www.amazon.com/reusable-Healthy-Gourmet-Sympathy-Birthday/dp/B0861QZN6C/?ie=UTF8&tag=avadalove-20)
+### [33\. Nut Gift Basket](https://www.amazon.com/reusable-Healthy-Gourmet-Sympathy-Birthday/dp/B0861QZN6C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/reusable-Healthy-Gourmet-Sympathy-Birthday/dp/B0861QZN6C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/reusable-Healthy-Gourmet-Sympathy-Birthday/dp/B0861QZN6C/?ie=UTF8&tag=giftable02-20)
 
 This Nut Gift Basket presented in a reusable wooden crate is a wonderful choice for Diwali gifts. The gourmet snack food box features a selection of high-quality nuts with different flavors, providing a healthy and satisfying treat.
 
@@ -639,11 +639,11 @@ The reusable wooden crate adds a touch of elegance and can be repurposed for oth
 
 ✔️ Suitable for different occasions and celebrations
 
-[Buy from Amazon](https://www.amazon.com/reusable-Healthy-Gourmet-Sympathy-Birthday/dp/B0861QZN6C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/reusable-Healthy-Gourmet-Sympathy-Birthday/dp/B0861QZN6C/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Touchstone Drawstring Bags](https://www.amazon.com/Touchstone-Gorgeous-Traditional-Packaging-Assorted/dp/B07RC3MG2X/?ie=UTF8&tag=avadalove-20)
+### [34\. Touchstone Drawstring Bags](https://www.amazon.com/Touchstone-Gorgeous-Traditional-Packaging-Assorted/dp/B07RC3MG2X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Touchstone-Gorgeous-Traditional-Packaging-Assorted/dp/B07RC3MG2X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Touchstone-Gorgeous-Traditional-Packaging-Assorted/dp/B07RC3MG2X/?ie=UTF8&tag=giftable02-20)
 
 These Touchstone Drawstring Bags are a perfect choice for Diwali gifts. The vibrant and multicolored pouches add a touch of elegance and cultural richness to any occasion.
 
@@ -657,4 +657,4 @@ The drawstring closure ensures the security of the contents while adding a charm
 
 ✔️ Set of six bags for versatility and convenience
 
-[Buy from Amazon](https://www.amazon.com/Touchstone-Gorgeous-Traditional-Packaging-Assorted/dp/B07RC3MG2X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Touchstone-Gorgeous-Traditional-Packaging-Assorted/dp/B07RC3MG2X/?ie=UTF8&tag=giftable02-20)

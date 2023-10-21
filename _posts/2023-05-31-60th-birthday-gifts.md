@@ -67,9 +67,9 @@ This Custom Whiskey Glasses and Decanters make the ideal presents! Excellent for
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1166480964/birthday-gift-60th-birthday-personalized)
 
-### [4\. Keychain Presents](https://www.amazon.com/Birthday-Gifts-Women-Keychain-Presents/dp/B08ZJQH1MS/?ie=UTF8&tag=avadalove-20)
+### [4\. Keychain Presents](https://www.amazon.com/Birthday-Gifts-Women-Keychain-Presents/dp/B08ZJQH1MS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Gifts-Women-Keychain-Presents/dp/B08ZJQH1MS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Gifts-Women-Keychain-Presents/dp/B08ZJQH1MS/?ie=UTF8&tag=giftable02-20)
 
 For someone who was born in 1962 and is just turning 60, these sweet birthday keychains make thoughtful and adorable 60th birthday gifts for your women.
 
@@ -81,11 +81,11 @@ For someone who was born in 1962 and is just turning 60, these sweet birthday ke
 
 ✔️ Come and be protected with a beautiful gift bag, ready for gift giving
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Gifts-Women-Keychain-Presents/dp/B08ZJQH1MS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Gifts-Women-Keychain-Presents/dp/B08ZJQH1MS/?ie=UTF8&tag=giftable02-20)
 
-### [5\. 60th Birthday Rose Gold Women](https://www.amazon.com/Birthday-Supplies-Decoration-Disposable-Tableware/dp/B092D96PK1/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. 60th Birthday Rose Gold Women](https://www.amazon.com/Birthday-Supplies-Decoration-Disposable-Tableware/dp/B092D96PK1/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Supplies-Decoration-Disposable-Tableware/dp/B092D96PK1/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Supplies-Decoration-Disposable-Tableware/dp/B092D96PK1/?th=1?ie=UTF8&tag=giftable02-20)
 
 Greetings on turning 60! With our 60th glasses pack, what better way to mark a 60th birthday? Our 60th birthday plates set adds a chic yet sassy touch to the decor and welcomes guests to the celebration.
 
@@ -97,7 +97,7 @@ Greetings on turning 60! With our 60th glasses pack, what better way to mark a 6
 
 ✔️ Great 60th Party Props
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Supplies-Decoration-Disposable-Tableware/dp/B092D96PK1/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Supplies-Decoration-Disposable-Tableware/dp/B092D96PK1/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Reasons We Love You](https://loveable.ai/products/reasons-we-love-you-best-personalized-postercanvas-gift-for-anniversary-208hnbnca569?variant=43770613039336?utm_source=avada&ranking=&utm_source=&utm_campaign=best-60th-birthday-gifts-to-surprise-your-love)
 
@@ -131,9 +131,9 @@ These cozy and fashionable socks make the ideal personalized 60th birthday prese
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/719359125/sixty-stunning-birthday-socks-60th)
 
-### [8\. 1962 Decade Nostalgic Candies](https://www.amazon.com/VINTAGE-CANDY-60TH-BIRTHDAY-RETRO/dp/B075NRVYG1/?ie=UTF8&tag=avadalove-20)
+### [8\. 1962 Decade Nostalgic Candies](https://www.amazon.com/VINTAGE-CANDY-60TH-BIRTHDAY-RETRO/dp/B075NRVYG1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VINTAGE-CANDY-60TH-BIRTHDAY-RETRO/dp/B075NRVYG1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VINTAGE-CANDY-60TH-BIRTHDAY-RETRO/dp/B075NRVYG1/?ie=UTF8&tag=giftable02-20)
 
 You'll receive about 3 lbs of traditional, vintage, and nostalgic candy for a quick trip down memory lane. Everyone has a tale to tell about the first time they tried well-known vintage retro candy, so join 'round and listen!
 
@@ -145,7 +145,7 @@ You'll receive about 3 lbs of traditional, vintage, and nostalgic candy for a qu
 
 ✔️ Have colorful packs
 
-[Buy from Amazon](https://www.amazon.com/VINTAGE-CANDY-60TH-BIRTHDAY-RETRO/dp/B075NRVYG1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VINTAGE-CANDY-60TH-BIRTHDAY-RETRO/dp/B075NRVYG1/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. I Heard You Turning](https://loveable.ai/products/i-heard-you-turningmust-be-fake-news-best-birthday-gift-for-him-207hnthje347?variant=43427929719016?utm_source=avada&ranking=&utm_source=&utm_campaign=best-60th-birthday-gifts-to-surprise-your-love)
 
@@ -243,9 +243,9 @@ These proof-quality commemoratives have fully embossed graphics on both sides an
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/947144075/pair-of-60th-birthday-silver-24ct-gold)
 
-### [15\. 60th Birthday Decorations Women](https://www.amazon.com/Birthday-Decorations-Including-Topper-Candles/dp/B09NXHQ9FZ/?ie=UTF8&tag=avadalove-20)
+### [15\. 60th Birthday Decorations Women](https://www.amazon.com/Birthday-Decorations-Including-Topper-Candles/dp/B09NXHQ9FZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Decorations-Including-Topper-Candles/dp/B09NXHQ9FZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Decorations-Including-Topper-Candles/dp/B09NXHQ9FZ/?ie=UTF8&tag=giftable02-20)
 
 Your 60th birthday sash has foil lettering and is made of premium glitter satin. The sash is 63 inches long and has a gold charm pin that allows you to quickly change the length as needed.
 
@@ -257,7 +257,7 @@ Your 60th birthday sash has foil lettering and is made of premium glitter satin.
 
 ✔️ Rose Gold Crown for Women
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Decorations-Including-Topper-Candles/dp/B09NXHQ9FZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Decorations-Including-Topper-Candles/dp/B09NXHQ9FZ/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. 60th Birthday Face Banner Personalized](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/978848556/60th-birthday-face-banner-personalized)
 
@@ -325,9 +325,9 @@ This Cuban link chain is a great idea for a 60th birthday gift for a dad, grandp
 
 [Buy from Loveable](https://loveable.ai/products/youre-not-old-youre-classic-best-personalized-gift-for-60-year-old-man-207hnthje346?utm_source=avada&ranking=&utm_source=&utm_campaign=best-60th-birthday-gifts-to-surprise-your-love)
 
-### [20\. Relaxing Spa Gift Box](https://www.amazon.com/Birthday-Women-Relaxing-Basket-Sister-Friend/dp/B09B9H6YB4/ref=sr_1_39?ie=UTF8&tag=avadalove-20)
+### [20\. Relaxing Spa Gift Box](https://www.amazon.com/Birthday-Women-Relaxing-Basket-Sister-Friend/dp/B09B9H6YB4/ref=sr_1_39?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Women-Relaxing-Basket-Sister-Friend/dp/B09B9H6YB4/ref=sr_1_39?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Women-Relaxing-Basket-Sister-Friend/dp/B09B9H6YB4/ref=sr_1_39?ie=UTF8&tag=giftable02-20)
 
 The perfect gift of leisure for your wife, mother, grandmother, sister, best friend, coworker, or anyone else celebrating their 60th birthday. That special lady in your life will undoubtedly feel appreciated and loved, thanks to this thoughtful gift box.
 
@@ -339,7 +339,7 @@ The perfect gift of leisure for your wife, mother, grandmother, sister, best fri
 
 ✔️ Multi-uses just in one box
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Women-Relaxing-Basket-Sister-Friend/dp/B09B9H6YB4/ref=sr_1_39?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Women-Relaxing-Basket-Sister-Friend/dp/B09B9H6YB4/ref=sr_1_39?ie=UTF8&tag=giftable02-20)
 
 ### [21\. 60th Birthday Gift for Dad](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1287668743/60th-birthday-gift-for-dad-custom-voice)
 
@@ -357,9 +357,9 @@ Wish your father a happy birthday in literal terms! This gift, which was made us
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1287668743/60th-birthday-gift-for-dad-custom-voice)
 
-### [22\. Gold Glitter 60th Birthday Party Table Decoration](https://www.etsy.com/listing/646783536/gold-glitter-60th-birthday-party-table?ie=UTF8&tag=avadalove-20)
+### [22\. Gold Glitter 60th Birthday Party Table Decoration](https://www.etsy.com/listing/646783536/gold-glitter-60th-birthday-party-table?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/646783536/gold-glitter-60th-birthday-party-table?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/646783536/gold-glitter-60th-birthday-party-table?ie=UTF8&tag=giftable02-20)
 
 At a 60th birthday party, this sparkly table centerpiece works well as the centerpiece. This will look fantastic in any party's decor! completed a birthday party's gold and black theme.
 
@@ -371,7 +371,7 @@ At a 60th birthday party, this sparkly table centerpiece works well as the cente
 
 ✔️ Made specially for birthday
 
-[Buy from Amazon](https://www.etsy.com/listing/646783536/gold-glitter-60th-birthday-party-table?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/646783536/gold-glitter-60th-birthday-party-table?ie=UTF8&tag=giftable02-20)
 
 ### [23\. 60th Birthday Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1058540977/60th-birthday-tote-bag-born-1962-vintage)
 
@@ -391,9 +391,9 @@ Whether you're honoring a parent, grandparent, friend, or another extraordinary 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1058540977/60th-birthday-tote-bag-born-1962-vintage)
 
-### [24\. French Press with Frothing Attachment](https://www.amazon.com/Hamilton-Beach-40400R-Attachment-Chocolate/dp/B00E5613M4/?ie=UTF8&tag=avadalove-20)
+### [24\. French Press with Frothing Attachment](https://www.amazon.com/Hamilton-Beach-40400R-Attachment-Chocolate/dp/B00E5613M4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hamilton-Beach-40400R-Attachment-Chocolate/dp/B00E5613M4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hamilton-Beach-40400R-Attachment-Chocolate/dp/B00E5613M4/?ie=UTF8&tag=giftable02-20)
 
 If your 60s beloved ones love spending time relaxing with coffee, tea, or other drink, this French Press with Frothing Attachment is one of the best 60th birthday gifts for them.
 
@@ -407,7 +407,7 @@ If your 60s beloved ones love spending time relaxing with coffee, tea, or other 
 
 ✔️ Well-designed
 
-[Buy from Amazon](https://www.amazon.com/Hamilton-Beach-40400R-Attachment-Chocolate/dp/B00E5613M4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hamilton-Beach-40400R-Attachment-Chocolate/dp/B00E5613M4/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. 60th Birthday Banner](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/713931194/happy-60th-birthday-banner-personalized)
 
@@ -475,9 +475,9 @@ For those who have 60th birthdays in the winter, this beanie hat is an ideal pre
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/725912634/60th-birthday-gift-beanie-hat-present)
 
-### [29\. 60th Birthday Decor Pots](https://www.amazon.com/GIFTAGIRL-60th-Birthday-Gifts-Women/dp/B09GK7SNX3/?ie=UTF8&tag=avadalove-20)
+### [29\. 60th Birthday Decor Pots](https://www.amazon.com/GIFTAGIRL-60th-Birthday-Gifts-Women/dp/B09GK7SNX3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GIFTAGIRL-60th-Birthday-Gifts-Women/dp/B09GK7SNX3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GIFTAGIRL-60th-Birthday-Gifts-Women/dp/B09GK7SNX3/?ie=UTF8&tag=giftable02-20)
 
 These original 60th birthday gift suggestions make for adorably adorable 60th birthday presents. These well-made pots, which come with 3 PLANTERS in EACH BOX, look fantastic grouped on a shelf in any house.
 
@@ -489,7 +489,7 @@ These original 60th birthday gift suggestions make for adorably adorable 60th bi
 
 ✔️ Arrives beautifully gift-wrapped and gift boxed
 
-[Buy from Amazon](https://www.amazon.com/GIFTAGIRL-60th-Birthday-Gifts-Women/dp/B09GK7SNX3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GIFTAGIRL-60th-Birthday-Gifts-Women/dp/B09GK7SNX3/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Personalized Canvas/Poster 60 Year Old](https://loveable.ai/products/happy-birthday-milestone-personalized-canvasposter-60-year-old-for-herhimgrandmagrandad-208ihnbnca560?utm_source=avada&ranking=&utm_source=&utm_campaign=best-60th-birthday-gifts-to-surprise-your-love)
 
@@ -543,9 +543,9 @@ Are you looking for 60th birthday gifts for your grandparents? Do you want some 
 
 [Buy from Loveable](https://loveable.ai/products/it-took-many-years-to-become-perfect-and-awesome-personalized-white-mug-best-gifts-for-birthdays-209ihpthmu180?utm_source=avada&ranking=&utm_source=&utm_campaign=best-60th-birthday-gifts-to-surprise-your-love)
 
-### [33\. Men’s Wally Loafer](https://www.amazon.com/Hey-Dude-Wally-Loafers-Brown/dp/B07933TTPZ/?ie=UTF8&tag=avadalove-20)
+### [33\. Men’s Wally Loafer](https://www.amazon.com/Hey-Dude-Wally-Loafers-Brown/dp/B07933TTPZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hey-Dude-Wally-Loafers-Brown/dp/B07933TTPZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hey-Dude-Wally-Loafers-Brown/dp/B07933TTPZ/?ie=UTF8&tag=giftable02-20)
 
 The best pair of men's shoes and an instant favorite in your modern-casual shoe collection is the Hey Dude Wally Men's Lace Up Loafers. A terrific 60th birthday gift for men turning 60.
 
@@ -559,11 +559,11 @@ The best pair of men's shoes and an instant favorite in your modern-casual shoe 
 
 ✔️ A wide range of choices
 
-[Buy from Amazon](https://www.amazon.com/Hey-Dude-Wally-Loafers-Brown/dp/B07933TTPZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hey-Dude-Wally-Loafers-Brown/dp/B07933TTPZ/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Sign Poster](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Women/dp/B097QC3B76/?ie=UTF8&tag=avadalove-20)
+### [34\. Sign Poster](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Women/dp/B097QC3B76/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Women/dp/B097QC3B76/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Women/dp/B097QC3B76/?ie=UTF8&tag=giftable02-20)
 
 With this adorable 60 years adored signature poster, you may get the best 60th birthday gifts or decorations for women. For any setting, this would make the ideal talking piece.
 
@@ -577,7 +577,7 @@ With this adorable 60 years adored signature poster, you may get the best 60th b
 
 ✔️ Value for money
 
-[Buy from Amazon](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Women/dp/B097QC3B76/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Katie-Doodle-Birthday-Decorations-Women/dp/B097QC3B76/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Back In 1963 Events Canvas Poster](https://loveable.us/products/back-in-1963-events-personalized-canvas-poster-wall-art-60th-birthday-gift-309ihpnpca180?variant=44822992617704?utm_source=avada&ranking=&utm_source=&utm_campaign=best-60th-birthday-gifts-to-surprise-your-love)
 

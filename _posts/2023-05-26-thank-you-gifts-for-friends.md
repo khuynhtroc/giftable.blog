@@ -71,9 +71,9 @@ The keychain can be personalized with your friends' names, making it a truly one
 
 [Buy from Loveable](https://loveable.ai/products/crazy-psycho-shit-made-us-friends-personalized-keychain-for-coworkers-on-christmas-211ihpnpkc517?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-thank-you-gifts-for-friends-to-express-your-gratitude)
 
-### [4\. Canvas Tote Bag](https://www.amazon.com/BeeGreen-Embroidery-Personalized-Monogram-Aesthetic/dp/B09MTBVR9W/?ie=UTF8&tag=avadalove-20)
+### [4\. Canvas Tote Bag](https://www.amazon.com/BeeGreen-Embroidery-Personalized-Monogram-Aesthetic/dp/B09MTBVR9W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BeeGreen-Embroidery-Personalized-Monogram-Aesthetic/dp/B09MTBVR9W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BeeGreen-Embroidery-Personalized-Monogram-Aesthetic/dp/B09MTBVR9W/?ie=UTF8&tag=giftable02-20)
 
 When it comes to thank-you gifts for friends, the Canvas Tote Bag from BeeGreen is a fantastic choice. This stylish and personalized bag is the perfect way to express your gratitude.
 
@@ -87,11 +87,11 @@ With its beautiful embroidery and monogram design, it adds a touch of elegance t
 
 ✔️ Personalized embroidery and monogram design
 
-[Buy from Amazon](https://www.amazon.com/BeeGreen-Embroidery-Personalized-Monogram-Aesthetic/dp/B09MTBVR9W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BeeGreen-Embroidery-Personalized-Monogram-Aesthetic/dp/B09MTBVR9W/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Leaf Necklace](https://www.amazon.com/Smiling-Wisdom-Pendant-Friendship-Necklace/dp/B01MQJ9UCY/?ie=UTF8&tag=avadalove-20)
+### [5\. Leaf Necklace](https://www.amazon.com/Smiling-Wisdom-Pendant-Friendship-Necklace/dp/B01MQJ9UCY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Smiling-Wisdom-Pendant-Friendship-Necklace/dp/B01MQJ9UCY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Smiling-Wisdom-Pendant-Friendship-Necklace/dp/B01MQJ9UCY/?ie=UTF8&tag=giftable02-20)
 
 The Leaf Necklace from Smiling Wisdom is a meaningful and heartfelt choice when finding the perfect, thank you gifts for friends.
 
@@ -105,7 +105,7 @@ The pendant features a delicate leaf design, crafted with attention to detail an
 
 ✔️ Symbolic leaf design
 
-[Buy from Amazon](https://www.amazon.com/Smiling-Wisdom-Pendant-Friendship-Necklace/dp/B01MQJ9UCY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Smiling-Wisdom-Pendant-Friendship-Necklace/dp/B01MQJ9UCY/?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Thank You Gift Basket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1253585808/)
 
@@ -125,9 +125,9 @@ The basket includes a variety of gourmet treats, such as artisanal chocolates, g
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1253585808/)
 
-### [7\. Engraved Thank You Cards](https://www.amazon.com/Meatl-Engraved-Friend-Employee-Appreciation/dp/B09V6TPJ39/?ie=UTF8&tag=avadalove-20)
+### [7\. Engraved Thank You Cards](https://www.amazon.com/Meatl-Engraved-Friend-Employee-Appreciation/dp/B09V6TPJ39/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Meatl-Engraved-Friend-Employee-Appreciation/dp/B09V6TPJ39/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Meatl-Engraved-Friend-Employee-Appreciation/dp/B09V6TPJ39/?ie=UTF8&tag=giftable02-20)
 
 When expressing gratitude to your friends, the Engraved Thank You Cards are a heartfelt and meaningful choice.
 
@@ -141,7 +141,7 @@ Each card features a heartfelt thank you message engraved with precision and car
 
 ✔️ Beautifully engraved messages
 
-[Buy from Amazon](https://www.amazon.com/Meatl-Engraved-Friend-Employee-Appreciation/dp/B09V6TPJ39/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Meatl-Engraved-Friend-Employee-Appreciation/dp/B09V6TPJ39/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Personalized Zodiac Necklace](https://loveable.ai/products/i-wish-that-you-find-happiness-wherever-life-may-lead-you-personalized-zodiac-sign-and-planet-necklace-silver-jewelry-best-birthday-gift-for-friends-for-her-for-daughtersisterwife-303ihplnje318?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-thank-you-gifts-for-friends-to-express-your-gratitude)
 
@@ -197,9 +197,9 @@ The night light is approximately 9 inches tall, making it the perfect size for a
 
 [Buy from Loveable](https://loveable.ai/collections/best-sellers/products/dreamcatcher-3d-night-light-7-color-change-decor-lamp-custom-dream-catcher-night-lights-best-gift-for-your-kids-mom-211ihpnpll520?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-thank-you-gifts-for-friends-to-express-your-gratitude)
 
-### [11\. Starfish Bracelet](https://www.amazon.com/Smiling-Wisdom-Difference-Appreciation-Encourage/dp/B079WJTBLV/?ie=UTF8&tag=avadalove-20)
+### [11\. Starfish Bracelet](https://www.amazon.com/Smiling-Wisdom-Difference-Appreciation-Encourage/dp/B079WJTBLV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Smiling-Wisdom-Difference-Appreciation-Encourage/dp/B079WJTBLV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Smiling-Wisdom-Difference-Appreciation-Encourage/dp/B079WJTBLV/?ie=UTF8&tag=giftable02-20)
 
 Oh! This exquisite piece of jewelry holds great value as a token of gratitude. The bracelet features a beautiful starfish charm that symbolizes strength and resilience, a pretty gifts to say "thank you" to your friends.
 
@@ -213,11 +213,11 @@ This bracelet is made with high-quality materials to ensure durability and lasti
 
 ✔️ Meaningful starfish charm symbolizes strength and resilience
 
-[Buy from Amazon](https://www.amazon.com/Smiling-Wisdom-Difference-Appreciation-Encourage/dp/B079WJTBLV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Smiling-Wisdom-Difference-Appreciation-Encourage/dp/B079WJTBLV/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Insulated Tumbler Cup](https://www.amazon.com/Best-Friend-Gift-Christmas-Friendship/dp/B091DK41D1/?ie=UTF8&tag=avadalove-20)
+### [12\. Insulated Tumbler Cup](https://www.amazon.com/Best-Friend-Gift-Christmas-Friendship/dp/B091DK41D1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Best-Friend-Gift-Christmas-Friendship/dp/B091DK41D1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Best-Friend-Gift-Christmas-Friendship/dp/B091DK41D1/?ie=UTF8&tag=giftable02-20)
 
 Imagine the joy of surprising your dear friend with a thoughtful gift that perfectly encapsulates your gratitude. The Insulated Tumbler Cup from Best Friend Gift is the ultimate expression of appreciation—a stylish and functional companion for their everyday adventures.
 
@@ -231,7 +231,7 @@ This premium tumbler boasts impeccable insulation, keeping their favorite bevera
 
 ✔️ Superior insulation for long-lasting beverage enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Best-Friend-Gift-Christmas-Friendship/dp/B091DK41D1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Best-Friend-Gift-Christmas-Friendship/dp/B091DK41D1/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Wedding Hand Fan](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1438871290/)
 
@@ -287,9 +287,9 @@ With its sleek white design and custom message, this mug is the perfect thank-yo
 
 [Buy from Loveable](https://loveable.ai/collections/best-sellers/products/making-the-world-a-better-place-best-personalized-birthday-gift-for-herhim-custom-white-mug-208hnbnmu564?utm_source=avada&ranking=&utm_source=&utm_campaign=35-best-thank-you-gifts-for-friends-to-express-your-gratitude)
 
-### [16\. Jewelry Trinket Dish](https://www.amazon.com/XJF-Appreciation-Gifts-Women-Birthday/dp/B0BBFM9PMS/?ie=UTF8&tag=avadalove-20)
+### [16\. Jewelry Trinket Dish](https://www.amazon.com/XJF-Appreciation-Gifts-Women-Birthday/dp/B0BBFM9PMS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/XJF-Appreciation-Gifts-Women-Birthday/dp/B0BBFM9PMS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/XJF-Appreciation-Gifts-Women-Birthday/dp/B0BBFM9PMS/?ie=UTF8&tag=giftable02-20)
 
 Searching for the perfect thank you gift for friends? Look no further than the Jewelry Trinket Dish. This exquisite dish is more than just a decorative piece. It's a symbol of appreciation and gratitude.
 
@@ -303,11 +303,11 @@ Moreover, this dish is a beautiful way to express your thanks to your friends. I
 
 ✔️ Elegant and stylish design
 
-[Buy from Amazon](https://www.amazon.com/XJF-Appreciation-Gifts-Women-Birthday/dp/B0BBFM9PMS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/XJF-Appreciation-Gifts-Women-Birthday/dp/B0BBFM9PMS/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Tea Bags Set](https://www.amazon.com/VAHDAM-Assorted-Sampler-Flavors-Winning/dp/B00VBUY3SS/?ie=UTF8&tag=avadalove-20)
+### [17\. Tea Bags Set](https://www.amazon.com/VAHDAM-Assorted-Sampler-Flavors-Winning/dp/B00VBUY3SS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VAHDAM-Assorted-Sampler-Flavors-Winning/dp/B00VBUY3SS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VAHDAM-Assorted-Sampler-Flavors-Winning/dp/B00VBUY3SS/?ie=UTF8&tag=giftable02-20)
 
 This delightful assortment of tea flavors is a wonderful way to express gratitude and appreciation. Your friends can indulge in a delightful tea experience with a wide variety of flavors.
 
@@ -321,11 +321,11 @@ The set includes carefully selected teas that are packed with freshness and flav
 
 ✔️ Diverse selection of tea flavors
 
-[Buy from Amazon](https://www.amazon.com/VAHDAM-Assorted-Sampler-Flavors-Winning/dp/B00VBUY3SS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VAHDAM-Assorted-Sampler-Flavors-Winning/dp/B00VBUY3SS/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Adorable Gift Basket](https://www.amazon.com/Luxe-England-Gifts-Best-Friend/dp/B0BV2Y6XM2/?ie=UTF8&tag=avadalove-20)
+### [18\. Adorable Gift Basket](https://www.amazon.com/Luxe-England-Gifts-Best-Friend/dp/B0BV2Y6XM2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Luxe-England-Gifts-Best-Friend/dp/B0BV2Y6XM2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Luxe-England-Gifts-Best-Friend/dp/B0BV2Y6XM2/?ie=UTF8&tag=giftable02-20)
 
 Thank you gifts for friends can be truly special, and the Luxe England Gift Basket is a delightful choice.
 
@@ -339,11 +339,11 @@ Filled with carefully curated items, it's a surprise that your friends will trul
 
 ✔️ Thoughtfully curated selection
 
-[Buy from Amazon](https://www.amazon.com/Luxe-England-Gifts-Best-Friend/dp/B0BV2Y6XM2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Luxe-England-Gifts-Best-Friend/dp/B0BV2Y6XM2/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Shower Bombs Steamers](https://www.amazon.com/Shinnywis-Birthday-Gifts-Women-Aromatherapy/dp/B09894N14R/?ie=UTF8&tag=avadalove-20)
+### [19\. Shower Bombs Steamers](https://www.amazon.com/Shinnywis-Birthday-Gifts-Women-Aromatherapy/dp/B09894N14R/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Shinnywis-Birthday-Gifts-Women-Aromatherapy/dp/B09894N14R/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Shinnywis-Birthday-Gifts-Women-Aromatherapy/dp/B09894N14R/?ie=UTF8&tag=giftable02-20)
 
 Regarding thank you gifts for friends, the Shower Bombs Steamers are a true gem. These aromatic shower bombs are designed to turn an ordinary shower into a luxurious spa-like experience.
 
@@ -357,7 +357,7 @@ With their compact size and easy-to-use design, these steamers make for a though
 
 ✔️ Aromatherapy at its finest
 
-[Buy from Amazon](https://www.amazon.com/Shinnywis-Birthday-Gifts-Women-Aromatherapy/dp/B09894N14R/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Shinnywis-Birthday-Gifts-Women-Aromatherapy/dp/B09894N14R/?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Personalized Thank-you Plaque](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1368367231/)
 
@@ -413,9 +413,9 @@ Each flower in the bouquet is intricately crafted with precision and attention t
 
 [Buy from Lovepop](https://www.lovepop.com/products/thank-you-flower-bouquet?variant=31918984003657)
 
-### [23\. Sterling Silver Necklace](https://www.amazon.com/THANK-YOU-NECKLACE-GIFT-sterling-silver/dp/B08XJJBB8J/?ie=UTF8&tag=avadalove-20)
+### [23\. Sterling Silver Necklace](https://www.amazon.com/THANK-YOU-NECKLACE-GIFT-sterling-silver/dp/B08XJJBB8J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/THANK-YOU-NECKLACE-GIFT-sterling-silver/dp/B08XJJBB8J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/THANK-YOU-NECKLACE-GIFT-sterling-silver/dp/B08XJJBB8J/?ie=UTF8&tag=giftable02-20)
 
 Crafted with care and precision, this necklace embodies the sentiment of appreciation in a beautiful and timeless design. The pendant, made of high-quality sterling silver, showcases the words "Thank You" in an exquisite and eye-catching font.
 
@@ -429,7 +429,7 @@ The necklace hangs delicately on a dainty chain, adding a touch of grace and sop
 
 ✔️ Elegant and heartfelt design
 
-[Buy from Amazon](https://www.amazon.com/THANK-YOU-NECKLACE-GIFT-sterling-silver/dp/B08XJJBB8J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/THANK-YOU-NECKLACE-GIFT-sterling-silver/dp/B08XJJBB8J/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Thank You Gift Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/661278750/)
 
@@ -449,9 +449,9 @@ From aromatic candles that create a cozy ambiance to gourmet treats that tantali
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/661278750/)
 
-### [25\. Jewelry Collection](https://www.amazon.com/SWAROVSKI-Infinity-Rose-gold-Bracelet-Crystal/dp/B0814Y7B63/?ie=UTF8&tag=avadalove-20)
+### [25\. Jewelry Collection](https://www.amazon.com/SWAROVSKI-Infinity-Rose-gold-Bracelet-Crystal/dp/B0814Y7B63/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SWAROVSKI-Infinity-Rose-gold-Bracelet-Crystal/dp/B0814Y7B63/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SWAROVSKI-Infinity-Rose-gold-Bracelet-Crystal/dp/B0814Y7B63/?ie=UTF8&tag=giftable02-20)
 
 This stunning bracelet embodies elegance and sophistication, with its delicate design and sparkling Swarovski crystals. Crafted with precision and attention to detail, it serves as a beautiful token of appreciation for your dear friend.
 
@@ -465,11 +465,11 @@ The rose gold finish adds a touch of warmth and charm, while the adjustable leng
 
 ✔️ Exquisite and timeless design
 
-[Buy from Amazon](https://www.amazon.com/SWAROVSKI-Infinity-Rose-gold-Bracelet-Crystal/dp/B0814Y7B63/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SWAROVSKI-Infinity-Rose-gold-Bracelet-Crystal/dp/B0814Y7B63/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Morse Code Bracelet](https://www.amazon.com/JoycuFF-Bracelets-Inspirational-Appreciation-Christmas/dp/B09VRTJQ7K/?ie=UTF8&tag=avadalove-20)
+### [26\. Morse Code Bracelet](https://www.amazon.com/JoycuFF-Bracelets-Inspirational-Appreciation-Christmas/dp/B09VRTJQ7K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JoycuFF-Bracelets-Inspirational-Appreciation-Christmas/dp/B09VRTJQ7K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JoycuFF-Bracelets-Inspirational-Appreciation-Christmas/dp/B09VRTJQ7K/?ie=UTF8&tag=giftable02-20)
 
 This bracelet comes with unique and meaningful "thank you" gifts for friends! The Morse Code Bracelet is a hidden gem that will leave a lasting impression.
 
@@ -483,11 +483,11 @@ It spells out a special message of gratitude. The combination of simplicity and 
 
 ✔️ Intriguing Morse code design
 
-[Buy from Amazon](https://www.amazon.com/JoycuFF-Bracelets-Inspirational-Appreciation-Christmas/dp/B09VRTJQ7K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JoycuFF-Bracelets-Inspirational-Appreciation-Christmas/dp/B09VRTJQ7K/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Gift Card](https://www.amazon.com/Amazon-com-Gift-Brown-Classic-Design/dp/B01K8RJVDQ/?ie=UTF8&tag=avadalove-20)
+### [27\. Gift Card](https://www.amazon.com/Amazon-com-Gift-Brown-Classic-Design/dp/B01K8RJVDQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Gift-Brown-Classic-Design/dp/B01K8RJVDQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Gift-Brown-Classic-Design/dp/B01K8RJVDQ/?ie=UTF8&tag=giftable02-20)
 
 When it comes to expressing gratitude and finding the perfect "thank you" gifts for friends, the Gift Card is an ideal choice. It allows your friends to choose exactly what they want from a wide range of products.
 
@@ -501,11 +501,11 @@ With its classic brown design, it exudes elegance and thoughtfulness. Whether fo
 
 ✔️ Versatile and customizable gift option
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Brown-Classic-Design/dp/B01K8RJVDQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Brown-Classic-Design/dp/B01K8RJVDQ/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Stainless Steel Tumbler](https://www.amazon.com/Sieral-Appreciation-Motivation-Multicolor-Insulated/dp/B0B6J387XC/?ie=UTF8&tag=avadalove-20)
+### [28\. Stainless Steel Tumbler](https://www.amazon.com/Sieral-Appreciation-Motivation-Multicolor-Insulated/dp/B0B6J387XC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sieral-Appreciation-Motivation-Multicolor-Insulated/dp/B0B6J387XC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sieral-Appreciation-Motivation-Multicolor-Insulated/dp/B0B6J387XC/?ie=UTF8&tag=giftable02-20)
 
 Looking to express your gratitude to your friends? The Stainless Steel Tumbler is the perfect "thank you" gift that combines style and functionality.
 
@@ -519,7 +519,7 @@ With its vibrant multicolor finish and durable stainless steel construction, it 
 
 ✔️ Stylish and eye-catching design
 
-[Buy from Amazon](https://www.amazon.com/Sieral-Appreciation-Motivation-Multicolor-Insulated/dp/B0B6J387XC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sieral-Appreciation-Motivation-Multicolor-Insulated/dp/B0B6J387XC/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Give Thanks Pop-Up Card](https://www.lovepop.com/products/give-thanks-fall-jar-pop-up-card?variant=39982815608905)
 
@@ -557,9 +557,9 @@ Each plant is carefully selected and comes beautifully packaged, ready to be gif
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1415941653/)
 
-### [31\. Relaxing Gift Box](https://www.amazon.com/Birthday-Friend-Relaxing-Friendship-Everything/dp/B09WLNXMJ5/?ie=UTF8&tag=avadalove-20)
+### [31\. Relaxing Gift Box](https://www.amazon.com/Birthday-Friend-Relaxing-Friendship-Everything/dp/B09WLNXMJ5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Friend-Relaxing-Friendship-Everything/dp/B09WLNXMJ5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Friend-Relaxing-Friendship-Everything/dp/B09WLNXMJ5/?ie=UTF8&tag=giftable02-20)
 
 Packed with soothing goodies, this Relaxing Gift Box is a perfect gift for your BFF! It's ideal to express gratitude and help your friends unwind and destress.
 
@@ -573,7 +573,7 @@ From luxurious bath salts and aromatic candles to a comfortable eye mask and a h
 
 ✔️ Thoughtfully curated relaxation essentials
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Friend-Relaxing-Friendship-Everything/dp/B09WLNXMJ5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Friend-Relaxing-Friendship-Everything/dp/B09WLNXMJ5/?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Personalized Refillable Portfolio](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248239574/)
 
@@ -593,9 +593,9 @@ It features multiple pockets and slots to hold essentials like pens, business ca
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248239574/)
 
-### [33\. Canvas Tote Bag](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=avadalove-20)
+### [33\. Canvas Tote Bag](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=giftable02-20)
 
 This Canvas Tote Bag is a stylish and practical choice. Crafted with high-quality canvas, it exudes a timeless elegance that will impress. Its spacious interior is perfect for carrying essentials like books, groceries, or even a stylish beach bag.
 
@@ -609,7 +609,7 @@ The sturdy handles ensure comfortable carrying, while the chic design adds a tou
 
 ✔️ Stylish and versatile design
 
-[Buy from Amazon](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Thank You Gift Basket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1264318411/)
 

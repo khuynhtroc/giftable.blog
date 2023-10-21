@@ -17,9 +17,9 @@ In cultures worldwide, koalas are associated with values such as love, protectio
 
 Indulge in the world of koalas and let your imagination soar as you discover the stunning array of this collection. And Explore the thought-provoking quotes, playful designs, and unexpected twists that make our Koala-inspired gifts genuinely exceptional. Let the irresistible charm of koalas inspire you to find that perfect gift that will create cherished memories and bring happiness to those you love!
 
-### [1\. Cozy Foldable Slipper](https://www.amazon.com/Snoozies-Pairable-Slipper-Socks-Slippers/dp/B08HCW5D79/?ie=UTF8&tag=avadalove-20)
+### [1\. Cozy Foldable Slipper](https://www.amazon.com/Snoozies-Pairable-Slipper-Socks-Slippers/dp/B08HCW5D79/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Snoozies-Pairable-Slipper-Socks-Slippers/dp/B08HCW5D79/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Snoozies-Pairable-Slipper-Socks-Slippers/dp/B08HCW5D79/?ie=UTF8&tag=giftable02-20)
 
 Step into a world of cozy comfort and whimsical delight with our enchanting collection of Koala Gifts, featuring the irresistibly adorable Koala Slippers.
 
@@ -35,11 +35,11 @@ Crafted with meticulous attention to detail, these Koala Slippers combine style,
 
 ✔️ Available in a range of sizes for adults and children
 
-[Buy from Amazon](https://www.amazon.com/Snoozies-Pairable-Slipper-Socks-Slippers/dp/B08HCW5D79/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Snoozies-Pairable-Slipper-Socks-Slippers/dp/B08HCW5D79/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Cute Koalas Soft Throw Blanket](https://www.amazon.com/Delerain-Blanket-Lightweight-Flannel-Travelling/dp/B07ZYZHBHP/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Cute Koalas Soft Throw Blanket](https://www.amazon.com/Delerain-Blanket-Lightweight-Flannel-Travelling/dp/B07ZYZHBHP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Delerain-Blanket-Lightweight-Flannel-Travelling/dp/B07ZYZHBHP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Delerain-Blanket-Lightweight-Flannel-Travelling/dp/B07ZYZHBHP/?th=1?ie=UTF8&tag=giftable02-20)
 
 Let the folklore surrounding koalas create a sense of enchantment, bringing joy and happiness to your home. Whether snuggled up on the couch, enjoying a cup of tea, or embarking on new adventures, this blanket is a source of comfort and an expression of love.
 
@@ -53,11 +53,11 @@ The lightweight design makes it perfect for all seasons, offering versatility an
 
 ✔️ Generously sized for ample coverage
 
-[Buy from Amazon](https://www.amazon.com/Delerain-Blanket-Lightweight-Flannel-Travelling/dp/B07ZYZHBHP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Delerain-Blanket-Lightweight-Flannel-Travelling/dp/B07ZYZHBHP/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Koala Bear Blue Love Heart Pendant Necklace](https://www.amazon.com/MEGA-CREATIVE-JEWELRY-Necklace-Swarovski/dp/B01N7RVH5H/?ie=UTF8&tag=avadalove-20)
+### [3\. Koala Bear Blue Love Heart Pendant Necklace](https://www.amazon.com/MEGA-CREATIVE-JEWELRY-Necklace-Swarovski/dp/B01N7RVH5H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MEGA-CREATIVE-JEWELRY-Necklace-Swarovski/dp/B01N7RVH5H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MEGA-CREATIVE-JEWELRY-Necklace-Swarovski/dp/B01N7RVH5H/?ie=UTF8&tag=giftable02-20)
 
 Inspired by the captivating allure of koalas, known for their gentle nature and profound wisdom, the Koala Necklace makes a perfect gift for your loved ones.
 
@@ -73,7 +73,7 @@ Adorned with Swarovski crystals, it radiates a captivating brilliance, adding a 
 
 ✔️ Symbolic representation of cherished memories and connection
 
-[Buy from Amazon](https://www.amazon.com/MEGA-CREATIVE-JEWELRY-Necklace-Swarovski/dp/B01N7RVH5H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MEGA-CREATIVE-JEWELRY-Necklace-Swarovski/dp/B01N7RVH5H/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Mom and Baby Koala Bear Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/697956326/mom-and-baby-koala-bear-necklace-in)
 
@@ -95,9 +95,9 @@ This necklace features a pendant showcasing an adorable koala pair. Made from hi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/697956326/mom-and-baby-koala-bear-necklace-in)
 
-### [5\. Koala Stickers](https://www.amazon.com/Stickers-Aiyale-Colorful-Bottles-Skateboard/dp/B091Y13HMT/?ie=UTF8&tag=avadalove-20)
+### [5\. Koala Stickers](https://www.amazon.com/Stickers-Aiyale-Colorful-Bottles-Skateboard/dp/B091Y13HMT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stickers-Aiyale-Colorful-Bottles-Skateboard/dp/B091Y13HMT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stickers-Aiyale-Colorful-Bottles-Skateboard/dp/B091Y13HMT/?ie=UTF8&tag=giftable02-20)
 
 Decorate your belongings with these charming stickers inspired by the playful spirit of koalas. Or share the love of koalas and surprise your loved ones with these inspiring and creative stickers that will undoubtedly bring smiles and happiness to their day.
 
@@ -113,11 +113,11 @@ Made with high-quality vinyl, these stickers are waterproof, durable, and long-l
 
 ✔️ A fun and creative way to personalize and customize belongings
 
-[Buy from Amazon](https://www.amazon.com/Stickers-Aiyale-Colorful-Bottles-Skateboard/dp/B091Y13HMT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stickers-Aiyale-Colorful-Bottles-Skateboard/dp/B091Y13HMT/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Doll Clothes & Accessories PJ Pajamas Outfit](https://www.amazon.com/Emily-Rose-Matching-Slippers-American/dp/B09FQGVCVB/?ie=UTF8&tag=avadalove-20) 
+### [6\. Doll Clothes & Accessories PJ Pajamas Outfit](https://www.amazon.com/Emily-Rose-Matching-Slippers-American/dp/B09FQGVCVB/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Emily-Rose-Matching-Slippers-American/dp/B09FQGVCVB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Emily-Rose-Matching-Slippers-American/dp/B09FQGVCVB/?ie=UTF8&tag=giftable02-20)
 
 Let your loved ones embark on exciting adventures and create lasting memories with this special doll. Inspired by the magic of koalas, this doll will ignite their imagination, bringing joy and warmth to their playtime.
 
@@ -133,11 +133,11 @@ The Emily Rose Doll with Matching Slippers is meticulously crafted with attentio
 
 ✔️ Moveable arms and legs for interactive and creative play
 
-[Buy from Amazon](https://www.amazon.com/Emily-Rose-Matching-Slippers-American/dp/B09FQGVCVB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Emily-Rose-Matching-Slippers-American/dp/B09FQGVCVB/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Koala Gift Couple Keychain](https://www.amazon.com/Keychain-Valentine-Christmas-Boyfriend-Girlfriend/dp/B07X3KZ276/?ie=UTF8&tag=avadalove-20)
+### [7\. Koala Gift Couple Keychain](https://www.amazon.com/Keychain-Valentine-Christmas-Boyfriend-Girlfriend/dp/B07X3KZ276/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Valentine-Christmas-Boyfriend-Girlfriend/dp/B07X3KZ276/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Valentine-Christmas-Boyfriend-Girlfriend/dp/B07X3KZ276/?ie=UTF8&tag=giftable02-20)
 
 Unlock a world of love and connection with the exquisite Koala Gifts keychain. Give your loved ones the gift of love and warmth with this inspirational keychain, a perfect way to show appreciation and strengthen bonds.
 
@@ -153,11 +153,11 @@ The keychain features a secure ring that keeps your keys safe and easily accessi
 
 ✔️ Secure key ring for easy organization and accessibility
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Valentine-Christmas-Boyfriend-Girlfriend/dp/B07X3KZ276/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Valentine-Christmas-Boyfriend-Girlfriend/dp/B07X3KZ276/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Animal Stud Earrings](https://www.amazon.com/Sterling-Silver-Koala-Stud-Earrings/dp/B09MSDJ78F/?ie=UTF8&tag=avadalove-20)
+### [8\. Animal Stud Earrings](https://www.amazon.com/Sterling-Silver-Koala-Stud-Earrings/dp/B09MSDJ78F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sterling-Silver-Koala-Stud-Earrings/dp/B09MSDJ78F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sterling-Silver-Koala-Stud-Earrings/dp/B09MSDJ78F/?ie=UTF8&tag=giftable02-20)
 
 Adorn yourself or surprise a loved one with these exquisite Koala Gifts earrings, embodying charm and elegance. These sterling silver stud earrings capture these beloved creatures' playful spirit and natural beauty.
 
@@ -173,7 +173,7 @@ The Koala Gifts earrings are finely crafted from sterling silver, ensuring durab
 
 ✔️ Versatile size that complements various outfits and styles
 
-[Buy from Amazon](https://www.amazon.com/Sterling-Silver-Koala-Stud-Earrings/dp/B09MSDJ78F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sterling-Silver-Koala-Stud-Earrings/dp/B09MSDJ78F/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Koala Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1332839365/koala-sweatshirt-cute-koala-sweater)
 
@@ -195,9 +195,9 @@ Made from high-quality materials, it provides a soft and cozy feel against your 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1332839365/koala-sweatshirt-cute-koala-sweater)
 
-### [10\. Koala Purse Playset with 2 Micro Dolls](https://www.amazon.com/Polly-Pocket-Adventures-Outdoor-Related-Removable/dp/B08J4FD8V9/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Koala Purse Playset with 2 Micro Dolls](https://www.amazon.com/Polly-Pocket-Adventures-Outdoor-Related-Removable/dp/B08J4FD8V9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Polly-Pocket-Adventures-Outdoor-Related-Removable/dp/B08J4FD8V9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Polly-Pocket-Adventures-Outdoor-Related-Removable/dp/B08J4FD8V9/?th=1?ie=UTF8&tag=giftable02-20)
 
 Step into a world of imagination and endless adventures with this delightful Koala Gifts purse playset. It's the perfect gift to foster creativity and provide hours of fun and entertainment.
 
@@ -213,11 +213,11 @@ The set includes a removable koala figure and various accessories, allowing chil
 
 ✔️ Develops fine motor skills and storytelling abilities
 
-[Buy from Amazon](https://www.amazon.com/Polly-Pocket-Adventures-Outdoor-Related-Removable/dp/B08J4FD8V9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Polly-Pocket-Adventures-Outdoor-Related-Removable/dp/B08J4FD8V9/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [11\. Kaola Bear Bracelet](https://www.amazon.com/Kaola-Bracelet-Koala-Jewelry-Girls/dp/B08F53PH2Q/?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. Kaola Bear Bracelet](https://www.amazon.com/Kaola-Bracelet-Koala-Jewelry-Girls/dp/B08F53PH2Q/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kaola-Bracelet-Koala-Jewelry-Girls/dp/B08F53PH2Q/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kaola-Bracelet-Koala-Jewelry-Girls/dp/B08F53PH2Q/?th=1?ie=UTF8&tag=giftable02-20)
 
 Indulge in the charm and elegance of this exquisite Koala Gifts bracelet. Its stunning design and symbolic representation serves as a perfect gift for your loved ones, capturing the essence of affection, friendship, and unity.
 
@@ -231,7 +231,7 @@ Made from high-quality materials, it features a comfortable fit and a secure cla
 
 ✔️ Charming koala charm adorned with sparkling crystal
 
-[Buy from Amazon](https://www.amazon.com/Kaola-Bracelet-Koala-Jewelry-Girls/dp/B08F53PH2Q/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kaola-Bracelet-Koala-Jewelry-Girls/dp/B08F53PH2Q/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Koala Notepad](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/941337068/koala-notepad-personalized-notepads)
 
@@ -253,9 +253,9 @@ This Koala Gifts notepad is thoughtfully crafted with premium-quality paper, ens
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/941337068/koala-notepad-personalized-notepads)
 
-### [13\. 3D Crystal Engrave Koala Bears Gifts](https://www.amazon.com/Daughter-Crystal-Engrave-Birthday-Unique/dp/B09F6KDD5B/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. 3D Crystal Engrave Koala Bears Gifts](https://www.amazon.com/Daughter-Crystal-Engrave-Birthday-Unique/dp/B09F6KDD5B/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Daughter-Crystal-Engrave-Birthday-Unique/dp/B09F6KDD5B/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Daughter-Crystal-Engrave-Birthday-Unique/dp/B09F6KDD5B/?th=1?ie=UTF8&tag=giftable02-20)
 
 Capture precious moments and turn them into timeless treasures with this exquisite Koala Gifts 3D crystal. Whether it's a birthday, anniversary, or special occasion, this 3D crystal is a symbol of love and appreciation, encapsulating memories that will be cherished forever.
 
@@ -269,7 +269,7 @@ This 3D crystal is made of high-quality materials that ensure its durability and
 
 ✔️ Versatile and elegant design complements any decor
 
-[Buy from Amazon](https://www.amazon.com/Daughter-Crystal-Engrave-Birthday-Unique/dp/B09F6KDD5B/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Daughter-Crystal-Engrave-Birthday-Unique/dp/B09F6KDD5B/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Personalized Koala Night Lights](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1120553211/koala-night-light-personalized-night)
 
@@ -289,9 +289,9 @@ It features a beautiful design that is both cute and functional, with a personal
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1120553211/koala-night-light-personalized-night)
 
-### [15\. Mum and Baby Koala Bear Plush](https://www.amazon.com/Koala-Plush-Stuffed-Animal-Simulation/dp/B09J85STVB/?ie=UTF8&tag=avadalove-20)
+### [15\. Mum and Baby Koala Bear Plush](https://www.amazon.com/Koala-Plush-Stuffed-Animal-Simulation/dp/B09J85STVB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Koala-Plush-Stuffed-Animal-Simulation/dp/B09J85STVB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Koala-Plush-Stuffed-Animal-Simulation/dp/B09J85STVB/?ie=UTF8&tag=giftable02-20)
 
 The Koala Plush is a delightful companion that brings your loved ones joy, comfort, and imagination. This soft and cuddly plush is not just a toy—it's a gateway to a world of creativity and storytelling.
 
@@ -307,7 +307,7 @@ With its endearing design and huggable size, this Koala Plush becomes a cherishe
 
 ✔️ Perfect size for snuggling and playtime adventures
 
-[Buy from Amazon](https://www.amazon.com/Koala-Plush-Stuffed-Animal-Simulation/dp/B09J85STVB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Koala-Plush-Stuffed-Animal-Simulation/dp/B09J85STVB/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Koala Family Pop-Up Card](https://www.lovepop.com/products/koala-family-pop-up-card?variant=19071086559305)
 
@@ -347,9 +347,9 @@ This adorable bookmark measures approximately 2.8 x 2.4 inches, making it the pe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1110988890/metalmorphose-3d-koala-bookmark)
 
-### [18\. Cute Baby Koala Bear Notebook](https://www.amazon.com/Koala-Friends-Notebook-Journal-Perfect/dp/1085925226/?ie=UTF8&tag=avadalove-20)
+### [18\. Cute Baby Koala Bear Notebook](https://www.amazon.com/Koala-Friends-Notebook-Journal-Perfect/dp/1085925226/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Koala-Friends-Notebook-Journal-Perfect/dp/1085925226/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Koala-Friends-Notebook-Journal-Perfect/dp/1085925226/?ie=UTF8&tag=giftable02-20)
 
 Open the pages of this whimsical journal, and you'll be transported to a world of imagination and inspiration. The adorable koala design sets the stage for a writing experience that is both heartwarming and uplifting.
 
@@ -363,11 +363,11 @@ The Koala Friends Notebook Journal measures 6 x 9 inches, providing ample space 
 
 ✔️ Compact and lightweight, making it convenient to carry with you wherever you go
 
-[Buy from Amazon](https://www.amazon.com/Koala-Friends-Notebook-Journal-Perfect/dp/1085925226/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Koala-Friends-Notebook-Journal-Perfect/dp/1085925226/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Koala Floral Case](https://www.amazon.com/Multifunction-Cosmetic-Toiletry-Accessories-Organizer/dp/B087C2P7TQ/?ie=UTF8&tag=avadalove-20)
+### [19\. Koala Floral Case](https://www.amazon.com/Multifunction-Cosmetic-Toiletry-Accessories-Organizer/dp/B087C2P7TQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Multifunction-Cosmetic-Toiletry-Accessories-Organizer/dp/B087C2P7TQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Multifunction-Cosmetic-Toiletry-Accessories-Organizer/dp/B087C2P7TQ/?ie=UTF8&tag=giftable02-20)
 
 Unleash your creativity and let your imagination soar as you explore the spacious compartments of this delightful case. It's not just a simple storage solution; it's a gateway to a realm of self-expression and personal transformation.
 
@@ -381,11 +381,11 @@ This Multifunction Cosmetic Case measures 9.4 x 7.5 x 3.5 inches, providing gene
 
 ✔️ Portable and lightweight, making it perfect for travel
 
-[Buy from Amazon](https://www.amazon.com/Multifunction-Cosmetic-Toiletry-Accessories-Organizer/dp/B087C2P7TQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Multifunction-Cosmetic-Toiletry-Accessories-Organizer/dp/B087C2P7TQ/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Advice From A Koala Bear Coffee Tumbler](https://www.amazon.com/ZOXIX-Stainless-Tumbler-Novelty-Insulated/dp/B0B6GKQZ9B/?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Advice From A Koala Bear Coffee Tumbler](https://www.amazon.com/ZOXIX-Stainless-Tumbler-Novelty-Insulated/dp/B0B6GKQZ9B/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZOXIX-Stainless-Tumbler-Novelty-Insulated/dp/B0B6GKQZ9B/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZOXIX-Stainless-Tumbler-Novelty-Insulated/dp/B0B6GKQZ9B/?th=1?ie=UTF8&tag=giftable02-20)
 
 Sip your favorite drink in style and let the enchanting Koala design transport you to a realm of imagination and wonder.
 
@@ -399,7 +399,7 @@ This Stainless Tumbler measures 7.3 inches in height and can hold up to 20 ounce
 
 ✔️ Generous capacity to satisfy your thirst on-the-go
 
-[Buy from Amazon](https://www.amazon.com/ZOXIX-Stainless-Tumbler-Novelty-Insulated/dp/B0B6GKQZ9B/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZOXIX-Stainless-Tumbler-Novelty-Insulated/dp/B0B6GKQZ9B/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Koala Glass](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1054612480/koala-glass-animalfigurine-inside)
 
@@ -419,9 +419,9 @@ Measuring 4 inches in height, this Koala Glass is the ideal size for sipping you
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1054612480/koala-glass-animalfigurine-inside)
 
-### [22\. Koala Ring 925 Sterling Silver Ring](https://www.amazon.com/JUSTKIDSTOY-Sterling-Silver-Adjustable-Jewelry/dp/B09J16HKJQ/?th=1?ie=UTF8&tag=avadalove-20)
+### [22\. Koala Ring 925 Sterling Silver Ring](https://www.amazon.com/JUSTKIDSTOY-Sterling-Silver-Adjustable-Jewelry/dp/B09J16HKJQ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JUSTKIDSTOY-Sterling-Silver-Adjustable-Jewelry/dp/B09J16HKJQ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JUSTKIDSTOY-Sterling-Silver-Adjustable-Jewelry/dp/B09J16HKJQ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Imbued with the spirit of Koalas, this ring is a perfect gift for Koala lovers. It represents our deep bond with these adorable creatures and reminds us of our connection to the natural world.
 
@@ -437,7 +437,7 @@ This Koala Ring features a sterling silver construction, adding a touch of sophi
 
 ✔️ Versatile accessory suitable for everyday wear or special occasion
 
-[Buy from Amazon](https://www.amazon.com/JUSTKIDSTOY-Sterling-Silver-Adjustable-Jewelry/dp/B09J16HKJQ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JUSTKIDSTOY-Sterling-Silver-Adjustable-Jewelry/dp/B09J16HKJQ/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Totally Koalafied Sweatshirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1374120201/totally-koalafied-sweatshirt-koala-lover)
 
@@ -457,9 +457,9 @@ The "Totally Koalafied" design adds a touch of personality and charm, making it 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1374120201/totally-koalafied-sweatshirt-koala-lover)
 
-### [24\. Koala Bear Plush](https://www.amazon.com/Krisphily-Koala-Stuffed-Animal-Mother/dp/B07Z4TLJG4/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Koala Bear Plush](https://www.amazon.com/Krisphily-Koala-Stuffed-Animal-Mother/dp/B07Z4TLJG4/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Krisphily-Koala-Stuffed-Animal-Mother/dp/B07Z4TLJG4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Krisphily-Koala-Stuffed-Animal-Mother/dp/B07Z4TLJG4/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embark on a cuddly adventure with the Krisphily Koala Stuffed Animal, a delightful companion for Koala lovers of all ages. This plush toy brings the charm and warmth of Koalas into your life indeed.
 
@@ -473,11 +473,11 @@ Indulge in the softness of this plush Koala, crafted with attention to detail to
 
 ✔️ Perfect gift for Koala enthusiasts, symbolizing love, care, and friendship
 
-[Buy from Amazon](https://www.amazon.com/Krisphily-Koala-Stuffed-Animal-Mother/dp/B07Z4TLJG4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Krisphily-Koala-Stuffed-Animal-Mother/dp/B07Z4TLJG4/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Mommy Koala and Joey Baby Figurine](https://www.amazon.com/Elanze-Designs-Figurine-Glitter-Decoration/dp/B07RMKNRDJ/?ie=UTF8&tag=avadalove-20)
+### [25\. Mommy Koala and Joey Baby Figurine](https://www.amazon.com/Elanze-Designs-Figurine-Glitter-Decoration/dp/B07RMKNRDJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Elanze-Designs-Figurine-Glitter-Decoration/dp/B07RMKNRDJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Elanze-Designs-Figurine-Glitter-Decoration/dp/B07RMKNRDJ/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchanting world of Koalas with the Elanze Designs Koala Figurine. It is a beautiful reminder of the importance of preserving our natural world and the joy that Koalas bring to our lives.
 
@@ -491,7 +491,7 @@ This Koala figurine is a delightful addition to any home decor, bringing a sense
 
 ✔️ Inspiring a connection to nature and wildlife
 
-[Buy from Amazon](https://www.amazon.com/Elanze-Designs-Figurine-Glitter-Decoration/dp/B07RMKNRDJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Elanze-Designs-Figurine-Glitter-Decoration/dp/B07RMKNRDJ/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Koala Bear Wood Charm Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/984488118/koala-bear-wood-charm-bracelet-cute)
 
@@ -531,9 +531,9 @@ The Koala Bear Ring Dish is the ideal size to hold your rings while adding a del
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/776042699/koala-bear-ring-dish-gifts-for-koala)
 
-### [28\. Zip Around Wallet](https://www.amazon.com/CHALA-Zip-Around-Wallet-Koala-Stripe/dp/B09137ZPMH/?ie=UTF8&tag=avadalove-20)
+### [28\. Zip Around Wallet](https://www.amazon.com/CHALA-Zip-Around-Wallet-Koala-Stripe/dp/B09137ZPMH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CHALA-Zip-Around-Wallet-Koala-Stripe/dp/B09137ZPMH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CHALA-Zip-Around-Wallet-Koala-Stripe/dp/B09137ZPMH/?ie=UTF8&tag=giftable02-20)
 
 This stylish and functional wallet is more than just a place to keep your cards and cash; it's a symbol of your love for Koalas and an invitation to embrace their charm and spirit.
 
@@ -547,7 +547,7 @@ The zip-around closure guarantees easy access to your essentials while keeping t
 
 ✔️ Adorable Koala design adds a playful and whimsical touch to your style
 
-[Buy from Amazon](https://www.amazon.com/CHALA-Zip-Around-Wallet-Koala-Stripe/dp/B09137ZPMH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CHALA-Zip-Around-Wallet-Koala-Stripe/dp/B09137ZPMH/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Koala bear miniature](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268065375/koala-gift-for-friend-for-him-for-her)
 
@@ -567,9 +567,9 @@ Each piece is meticulously handcrafted, ensuring that no two miniatures are exac
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268065375/koala-gift-for-friend-for-him-for-her)
 
-### [30\. Koala Family Building Kit](https://www.amazon.com/Playmobil-6654-PLAYMOBIL-Koala-Family/dp/B00O4E2VZ0/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Koala Family Building Kit](https://www.amazon.com/Playmobil-6654-PLAYMOBIL-Koala-Family/dp/B00O4E2VZ0/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Playmobil-6654-PLAYMOBIL-Koala-Family/dp/B00O4E2VZ0/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Playmobil-6654-PLAYMOBIL-Koala-Family/dp/B00O4E2VZ0/?th=1?ie=UTF8&tag=giftable02-20)
 
 Embark on an imaginative adventure with the Playmobil Koala Family Building Kit. This captivating kit provides a gateway to creativity, storytelling, and bonding moments for Koala lovers of all ages.
 
@@ -585,7 +585,7 @@ The set includes everything to create a complete Koala family scene with accesso
 
 ✔️ Fosters bonding moments and shared experiences among family and friends
 
-[Buy from Amazon](https://www.amazon.com/Playmobil-6654-PLAYMOBIL-Koala-Family/dp/B00O4E2VZ0/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Playmobil-6654-PLAYMOBIL-Koala-Family/dp/B00O4E2VZ0/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Crystal Carved Cute Koala Figurine](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1473205877/12-inchescrystal-carved-cute-koala)
 
@@ -605,9 +605,9 @@ Made from high-quality crystal, it exudes durability and resilience, ensuring it
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1473205877/12-inchescrystal-carved-cute-koala)
 
-### [32\. Giggle Time Koala Pencil](https://www.amazon.com/Giggle-Time-Hugging-Stuffers-Individually/dp/B08KJLHFCY/?ie=UTF8&tag=avadalove-20)
+### [32\. Giggle Time Koala Pencil](https://www.amazon.com/Giggle-Time-Hugging-Stuffers-Individually/dp/B08KJLHFCY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Giggle-Time-Hugging-Stuffers-Individually/dp/B08KJLHFCY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Giggle-Time-Hugging-Stuffers-Individually/dp/B08KJLHFCY/?ie=UTF8&tag=giftable02-20)
 
 Perfect for Koala lovers, these pencils serve as a whimsical reminder of the endearing nature of these furry creatures and the happiness they bring.
 
@@ -623,7 +623,7 @@ These Giggle Time Hugging Koala Pencils feature a cuddly Koala topper that sits 
 
 ✔️ Durable and reliable, providing a smooth writing experience
 
-[Buy from Amazon](https://www.amazon.com/Giggle-Time-Hugging-Stuffers-Individually/dp/B08KJLHFCY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Giggle-Time-Hugging-Stuffers-Individually/dp/B08KJLHFCY/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Koala crochet plush](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1444487932/koala-crochet-plush-handmade-koala-gifts?show_sold_out_detail=1&ref=nla_listing_details)
 
@@ -665,9 +665,9 @@ The hood features an adorable Koala face, ears, and a sweet expression, adding a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/862031233/personalized-cuddles-the-koala-hooded)
 
-### [35\. Funny Novelty Crew Tube Socks](https://www.amazon.com/Koalas-Athletic-Colorful-Novelty-Graphic/dp/B07KW6CTW3/?th=1?ie=UTF8&tag=avadalove-20)
+### [35\. Funny Novelty Crew Tube Socks](https://www.amazon.com/Koalas-Athletic-Colorful-Novelty-Graphic/dp/B07KW6CTW3/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Koalas-Athletic-Colorful-Novelty-Graphic/dp/B07KW6CTW3/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Koalas-Athletic-Colorful-Novelty-Graphic/dp/B07KW6CTW3/?th=1?ie=UTF8&tag=giftable02-20)
 
 Step into the ultimate comfort and cuteness world with these Koalas Athletic Socks. With their playful Koala designs, these socks will make you smile every time you wear them.
 
@@ -681,4 +681,4 @@ These Koalas Athletic Socks are crafted with care using high-quality materials t
 
 ✔️ Stretchy and snug fit for maximum flexibility and support
 
-[Buy from Amazon](https://www.amazon.com/Koalas-Athletic-Colorful-Novelty-Graphic/dp/B07KW6CTW3/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Koalas-Athletic-Colorful-Novelty-Graphic/dp/B07KW6CTW3/?th=1?ie=UTF8&tag=giftable02-20)

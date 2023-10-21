@@ -17,9 +17,9 @@ Finding the **[ideal gifts for children](/kids-teens/)** can be an exciting and 
 
 With every unwrapping, their heart fills with a sense of belonging and appreciation. As you explore our collection, get ready to be captivated by the array of meaningful and whimsical surprises that await. Discover the perfect presents today and bring a radiant smile to their face that echoes the sentiment, 'Being a middle child is a gift in itself."
 
-### [1\. Middle Children Matter T-Shirt](https://www.amazon.com/Middle-Children-Funny-Sibling-Brother/dp/B07FJQTDFM/?ie=UTF8&tag=avadalove-20)
+### [1\. Middle Children Matter T-Shirt](https://www.amazon.com/Middle-Children-Funny-Sibling-Brother/dp/B07FJQTDFM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Middle-Children-Funny-Sibling-Brother/dp/B07FJQTDFM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Middle-Children-Funny-Sibling-Brother/dp/B07FJQTDFM/?ie=UTF8&tag=giftable02-20)
 
 Celebrate the remarkable spirit of middle children with this hilarious and heartwarming t-shirt. This whimsical t-shirt is the perfect middle child gift that combines humor and sentimentality.
 
@@ -35,11 +35,11 @@ With its vibrant and durable print, it will withstand countless adventures and w
 
 ✔️ Wide range of sizes available to ensure the perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Middle-Children-Funny-Sibling-Brother/dp/B07FJQTDFM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Middle-Children-Funny-Sibling-Brother/dp/B07FJQTDFM/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Middle Child Mints](https://www.amazon.com/Archie-McPhee-Middle-Child-Mints/dp/B01NBWFXLY/?ie=UTF8&tag=avadalove-20)
+### [2\. Middle Child Mints](https://www.amazon.com/Archie-McPhee-Middle-Child-Mints/dp/B01NBWFXLY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Archie-McPhee-Middle-Child-Mints/dp/B01NBWFXLY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Archie-McPhee-Middle-Child-Mints/dp/B01NBWFXLY/?ie=UTF8&tag=giftable02-20)
 
 These Middle Child Mints from Archie McPhee are not just any mints; they are a whimsical and thoughtful way to celebrate the middle child in your life.
 
@@ -53,11 +53,11 @@ Each tin of Middle Child Mints contains approximately 75 delicious and refreshin
 
 ✔️ Charming design adds a touch of whimsy to the gift
 
-[Buy from Amazon](https://www.amazon.com/Archie-McPhee-Middle-Child-Mints/dp/B01NBWFXLY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Archie-McPhee-Middle-Child-Mints/dp/B01NBWFXLY/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Middle Child Infused Candle](https://www.amazon.com/Infused-Invisibility-Premium-Malicious-Mermaid/dp/B09GHS2Z53/?ie=UTF8&tag=avadalove-20)
+### [3\. Middle Child Infused Candle](https://www.amazon.com/Infused-Invisibility-Premium-Malicious-Mermaid/dp/B09GHS2Z53/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Infused-Invisibility-Premium-Malicious-Mermaid/dp/B09GHS2Z53/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Infused-Invisibility-Premium-Malicious-Mermaid/dp/B09GHS2Z53/?ie=UTF8&tag=giftable02-20)
 
 Unleash the enchantment of the Infused Invisibility Candle, a truly magical gift that will captivate your middle child's imagination.
 
@@ -71,11 +71,11 @@ It boasts a delightful scent of lavender and vanilla, creating a soothing and en
 
 ✔️ Beautifully designed glass jar adds a touch of elegance
 
-[Buy from Amazon](https://www.amazon.com/Infused-Invisibility-Premium-Malicious-Mermaid/dp/B09GHS2Z53/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Infused-Invisibility-Premium-Malicious-Mermaid/dp/B09GHS2Z53/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Middle Child Trail Mix](https://www.amazon.com/Middle-Child-Trail-Mix-Children/dp/B0BKR1W3GC/?ie=UTF8&tag=avadalove-20)
+### [4\. Middle Child Trail Mix](https://www.amazon.com/Middle-Child-Trail-Mix-Children/dp/B0BKR1W3GC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Middle-Child-Trail-Mix-Children/dp/B0BKR1W3GC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Middle-Child-Trail-Mix-Children/dp/B0BKR1W3GC/?ie=UTF8&tag=giftable02-20)
 
 Nourish your middle child's spirit and show them how much they are loved with this flavorful middle child gift.
 
@@ -89,7 +89,7 @@ The Middle Child Trail Mix comes in a convenient 10-ounce resealable bag, perfec
 
 ✔️ Delicious blend of roasted nuts, dried fruits, and granola clusters
 
-[Buy from Amazon](https://www.amazon.com/Middle-Child-Trail-Mix-Children/dp/B0BKR1W3GC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Middle-Child-Trail-Mix-Children/dp/B0BKR1W3GC/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Middle Child Scented Soy Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/848214704/middle-child-scented-soy-candle-or-soy)
 
@@ -109,9 +109,9 @@ Each candle is adorned with a charming label that pays homage to the middle chil
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/848214704/middle-child-scented-soy-candle-or-soy)
 
-### [6\. Soap Company Pencils](https://www.amazon.com/Whiskey-River-Soap-Co-Pencils/dp/B07XL5FCDR/?ie=UTF8&tag=avadalove-20)
+### [6\. Soap Company Pencils](https://www.amazon.com/Whiskey-River-Soap-Co-Pencils/dp/B07XL5FCDR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whiskey-River-Soap-Co-Pencils/dp/B07XL5FCDR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whiskey-River-Soap-Co-Pencils/dp/B07XL5FCDR/?ie=UTF8&tag=giftable02-20)
 
 Add a touch of whimsy and personality to your middle child's stationery collection with the Middle Child Pencils.
 
@@ -125,11 +125,11 @@ The Middle Child Pencils come in a set of six, each adorned with witty and relat
 
 ✔️ Adds a touch of personality and creativity to writing and drawing
 
-[Buy from Amazon](https://www.amazon.com/Whiskey-River-Soap-Co-Pencils/dp/B07XL5FCDR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whiskey-River-Soap-Co-Pencils/dp/B07XL5FCDR/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Funny Middle Child Shirt](https://www.amazon.com/Funny-Middle-Child-Syndrome-TShirt/dp/B07HYRYZ39/?ie=UTF8&tag=avadalove-20)
+### [7\. Funny Middle Child Shirt](https://www.amazon.com/Funny-Middle-Child-Syndrome-TShirt/dp/B07HYRYZ39/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Middle-Child-Syndrome-TShirt/dp/B07HYRYZ39/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Middle-Child-Syndrome-TShirt/dp/B07HYRYZ39/?ie=UTF8&tag=giftable02-20)
 
 This shirt celebrates the unique qualities and humor of middle children, making it the perfect gift for your beloved middle child.
 
@@ -143,11 +143,11 @@ The Funny Middle Child Syndrome T-Shirt is made from soft and comfortable fabric
 
 ✔️ Classic crewneck design and short sleeves for versatility
 
-[Buy from Amazon](https://www.amazon.com/Funny-Middle-Child-Syndrome-TShirt/dp/B07HYRYZ39/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Middle-Child-Syndrome-TShirt/dp/B07HYRYZ39/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Promoted To Middle Brother Shirt](https://www.amazon.com/Promoted-To-Middle-Brother-Shirt/dp/B07MMN8N2Y/?ie=UTF8&tag=avadalove-20)
+### [8\. Promoted To Middle Brother Shirt](https://www.amazon.com/Promoted-To-Middle-Brother-Shirt/dp/B07MMN8N2Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Promoted-To-Middle-Brother-Shirt/dp/B07MMN8N2Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Promoted-To-Middle-Brother-Shirt/dp/B07MMN8N2Y/?ie=UTF8&tag=giftable02-20)
 
 Celebrate the special milestone of becoming a middle child with the Promoted to Middle Brother Shirt.
 
@@ -161,7 +161,7 @@ The Promoted to Middle Brother Shirt is made from high-quality, soft cotton mate
 
 ✔️ Vibrant and playful design that captures the joy and excitement of being a middle child
 
-[Buy from Amazon](https://www.amazon.com/Promoted-To-Middle-Brother-Shirt/dp/B07MMN8N2Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Promoted-To-Middle-Brother-Shirt/dp/B07MMN8N2Y/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Announcement Sibling T-shirts](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/645087247/pregnancy-reveal-announcement-sibling-t)
 
@@ -181,9 +181,9 @@ The Pregnancy Reveal Sibling Shirt is made from high-quality, soft cotton materi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/645087247/pregnancy-reveal-announcement-sibling-t)
 
-### [10\. Cotton Candy](https://www.amazon.com/Cotton-Candy-Middle-Child-Children/dp/B0BL89FY31/?ie=UTF8&tag=avadalove-20)
+### [10\. Cotton Candy](https://www.amazon.com/Cotton-Candy-Middle-Child-Children/dp/B0BL89FY31/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cotton-Candy-Middle-Child-Children/dp/B0BL89FY31/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cotton-Candy-Middle-Child-Children/dp/B0BL89FY31/?ie=UTF8&tag=giftable02-20)
 
 Treat your middle child to this whimsical and delicious gift that will bring joy and sweetness to any occasion.
 
@@ -197,7 +197,7 @@ Each package contains a generous portion of cotton candy, weighing approximately
 
 ✔️ Resealable bag for convenient storage and to maintain freshness
 
-[Buy from Amazon](https://www.amazon.com/Cotton-Candy-Middle-Child-Children/dp/B0BL89FY31/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cotton-Candy-Middle-Child-Children/dp/B0BL89FY31/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Hilarious Middle Child Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1218080021/hilarious-middle-child-mug-im-the-middle)
 
@@ -217,9 +217,9 @@ The Middle Child Mug is made from high-quality ceramic, ensuring durability and 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1218080021/hilarious-middle-child-mug-im-the-middle)
 
-### [12\. Portable Bluetooth Speaker](https://www.amazon.com/JBL-Clip-Gray-Noise-Cancelling-Speakerphone/dp/B07Q4R6KR9/?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Portable Bluetooth Speaker](https://www.amazon.com/JBL-Clip-Gray-Noise-Cancelling-Speakerphone/dp/B07Q4R6KR9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JBL-Clip-Gray-Noise-Cancelling-Speakerphone/dp/B07Q4R6KR9/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JBL-Clip-Gray-Noise-Cancelling-Speakerphone/dp/B07Q4R6KR9/?th=1?ie=UTF8&tag=giftable02-20)
 
 With its powerful sound and convenient clip-on design, this speaker is sure to bring joy and entertainment to your middle child's everyday adventures.
 
@@ -235,7 +235,7 @@ It features a compact size of 3.7 x 1.7 x 5.5 inches, making it easy to carry an
 
 ✔️ Speakerphone function for convenient hands-free calling
 
-[Buy from Amazon](https://www.amazon.com/JBL-Clip-Gray-Noise-Cancelling-Speakerphone/dp/B07Q4R6KR9/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JBL-Clip-Gray-Noise-Cancelling-Speakerphone/dp/B07Q4R6KR9/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Middle Child Hat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1467498974/middle-child-hat-sibling-brother-sister)
 
@@ -255,9 +255,9 @@ The Middle Child Hat is crafted with high-quality materials, ensuring comfort an
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1467498974/middle-child-hat-sibling-brother-sister)
 
-### [14\. The Middle Child Book](https://www.amazon.com/Middle-Child-Hang-Tough-Marine/dp/B0B92G11WF/r?ie=UTF8&tag=avadalove-20)
+### [14\. The Middle Child Book](https://www.amazon.com/Middle-Child-Hang-Tough-Marine/dp/B0B92G11WF/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Middle-Child-Hang-Tough-Marine/dp/B0B92G11WF/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Middle-Child-Hang-Tough-Marine/dp/B0B92G11WF/r?ie=UTF8&tag=giftable02-20)
 
 Discover the incredible journey of resilience and bravery in the Middle Child: Hang Tough Marine book.
 
@@ -273,11 +273,11 @@ The Middle Child: Hang Tough Marine book is a paperback edition, measuring 6 inc
 
 ✔️ Educational value promoting important values of courage and determination
 
-[Buy from Amazon](https://www.amazon.com/Middle-Child-Hang-Tough-Marine/dp/B0B92G11WF/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Middle-Child-Hang-Tough-Marine/dp/B0B92G11WF/r?ie=UTF8&tag=giftable02-20)
 
-### [15\. I Might Love All My Kids T-Shirt](https://www.amazon.com/Might-Middle-Child-Favorite-T-Shirt/dp/B0C2PHJQYK/?ie=UTF8&tag=avadalove-20)
+### [15\. I Might Love All My Kids T-Shirt](https://www.amazon.com/Might-Middle-Child-Favorite-T-Shirt/dp/B0C2PHJQYK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Might-Middle-Child-Favorite-T-Shirt/dp/B0C2PHJQYK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Might-Middle-Child-Favorite-T-Shirt/dp/B0C2PHJQYK/?ie=UTF8&tag=giftable02-20)
 
 Whether worn casually or as a fun statement piece, this shirt is a wonderful addition to any middle child's wardrobe.
 
@@ -291,7 +291,7 @@ The T-Shirt is made from soft and comfortable fabric, ensuring a pleasant wearin
 
 ✔️ Available in a range of sizes for a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Might-Middle-Child-Favorite-T-Shirt/dp/B0C2PHJQYK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Might-Middle-Child-Favorite-T-Shirt/dp/B0C2PHJQYK/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Zombie Or Not to Be Book](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1317004524/zombie-or-not-to-be)
 
@@ -311,9 +311,9 @@ It is filled with 100 pages of captivating illustrations and engaging storytelli
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1317004524/zombie-or-not-to-be)
 
-### [17\. How to Parent Your Middle Child](https://www.amazon.com/How-Parent-Your-Middle-Child/dp/B0C1J9F89J/?ie=UTF8&tag=avadalove-20)
+### [17\. How to Parent Your Middle Child](https://www.amazon.com/How-Parent-Your-Middle-Child/dp/B0C1J9F89J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/How-Parent-Your-Middle-Child/dp/B0C1J9F89J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/How-Parent-Your-Middle-Child/dp/B0C1J9F89J/?ie=UTF8&tag=giftable02-20)
 
 This book is a valuable resource that provides practical guidance, expert advice, and heartfelt anecdotes, helping parents navigate the unique challenges and joys of raising middle children.
 
@@ -329,11 +329,11 @@ It comprises 200 pages of well-researched content, offering comprehensive insigh
 
 ✔️ Promotes understanding, strengthens bonds, and fosters a loving environment
 
-[Buy from Amazon](https://www.amazon.com/How-Parent-Your-Middle-Child/dp/B0C1J9F89J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/How-Parent-Your-Middle-Child/dp/B0C1J9F89J/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Mydethun Moon Lamp](https://www.amazon.com/Mydethun-Moon-Lamp-5-9-inch/dp/B075JHP7TK/?ie=UTF8&tag=avadalove-20)
+### [18\. Mydethun Moon Lamp](https://www.amazon.com/Mydethun-Moon-Lamp-5-9-inch/dp/B075JHP7TK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mydethun-Moon-Lamp-5-9-inch/dp/B075JHP7TK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mydethun-Moon-Lamp-5-9-inch/dp/B075JHP7TK/?ie=UTF8&tag=giftable02-20)
 
 Give the gift of the moon and watch their dreams illuminate the night sky.
 
@@ -349,7 +349,7 @@ The Mydethun Moon Lamp is meticulously crafted using advanced 3D printing techno
 
 ✔️ Rechargeable battery with up to 8 hours of illumination
 
-[Buy from Amazon](https://www.amazon.com/Mydethun-Moon-Lamp-5-9-inch/dp/B075JHP7TK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mydethun-Moon-Lamp-5-9-inch/dp/B075JHP7TK/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. First & Middle Name with Birthstone Bar Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/976007231/first-middle-name-with-birthstone-bar)
 
@@ -371,9 +371,9 @@ The pendant is made of high-quality stainless steel, ensuring durability and lon
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/976007231/first-middle-name-with-birthstone-bar)
 
-### [20\. I’m the Middle Child T-Shirt](https://www.amazon.com/Middle-Child-Reason-Sibling-T-Shirt/dp/B08T2Z3LML/?ie=UTF8&tag=avadalove-20)
+### [20\. I’m the Middle Child T-Shirt](https://www.amazon.com/Middle-Child-Reason-Sibling-T-Shirt/dp/B08T2Z3LML/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Middle-Child-Reason-Sibling-T-Shirt/dp/B08T2Z3LML/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Middle-Child-Reason-Sibling-T-Shirt/dp/B08T2Z3LML/?ie=UTF8&tag=giftable02-20)
 
 Showcasing their position as the glue that holds the family together, this shirt is a statement of pride, individuality, and resilience.
 
@@ -387,7 +387,7 @@ The shirt features a classic crew neck design and short sleeves, providing a ver
 
 ✔️ Vibrant and long-lasting print for a bold statement
 
-[Buy from Amazon](https://www.amazon.com/Middle-Child-Reason-Sibling-T-Shirt/dp/B08T2Z3LML/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Middle-Child-Reason-Sibling-T-Shirt/dp/B08T2Z3LML/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Sterling silver thumb ring](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1133970864/fidget-ring-anxiety-ring-sterling-silver)
 
@@ -409,9 +409,9 @@ The ring is available in various sizes, from 5 to 10, ensuring a perfect fit for
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1133970864/fidget-ring-anxiety-ring-sterling-silver)
 
-### [22\. I’m The Neglected Middle Child Cotton T-Shirt](https://www.amazon.com/CafePress-Neglected-Middle-Cotton-T-Shirt/dp/B00WGO5ZJO/?ie=UTF8&tag=avadalove-20)
+### [22\. I’m The Neglected Middle Child Cotton T-Shirt](https://www.amazon.com/CafePress-Neglected-Middle-Cotton-T-Shirt/dp/B00WGO5ZJO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CafePress-Neglected-Middle-Cotton-T-Shirt/dp/B00WGO5ZJO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CafePress-Neglected-Middle-Cotton-T-Shirt/dp/B00WGO5ZJO/?ie=UTF8&tag=giftable02-20)
 
 Express your middle child's unique spirit with the Neglected Middle T-Shirt. With its clever design and witty slogan, it's the perfect middle child gift that will make them feel seen and appreciated.
 
@@ -425,7 +425,7 @@ The Neglected Middle T-Shirt is made from high-quality cotton, ensuring comfort 
 
 ✔️ Vibrant colors and durable print for long-lasting enjoyment
 
-[Buy from Amazon](https://www.amazon.com/CafePress-Neglected-Middle-Cotton-T-Shirt/dp/B00WGO5ZJO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CafePress-Neglected-Middle-Cotton-T-Shirt/dp/B00WGO5ZJO/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Middle Child Journal](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1458315382/middle-child-journal)
 
@@ -445,9 +445,9 @@ The Middle Child Journal is thoughtfully made with 100 pages of high-quality, ac
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1458315382/middle-child-journal)
 
-### [24\. Collage Photo Hanging](https://www.amazon.com/Bikoney-Picture-Blackboard-Graduation-Weathered/dp/B08S39DR5D/?ie=UTF8&tag=avadalove-20)
+### [24\. Collage Photo Hanging](https://www.amazon.com/Bikoney-Picture-Blackboard-Graduation-Weathered/dp/B08S39DR5D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bikoney-Picture-Blackboard-Graduation-Weathered/dp/B08S39DR5D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bikoney-Picture-Blackboard-Graduation-Weathered/dp/B08S39DR5D/?ie=UTF8&tag=giftable02-20)
 
 This versatile set allows you to create a personalized and meaningful collage of photos, artwork, and notes, capturing the essence of your middle child's life.
 
@@ -461,11 +461,11 @@ The Photo Hanging includes a rustic wooden frame with dimensions of 16 x 12 inch
 
 ✔️ Easy to hang and arrange with a twine rope and 30 wooden clips
 
-[Buy from Amazon](https://www.amazon.com/Bikoney-Picture-Blackboard-Graduation-Weathered/dp/B08S39DR5D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bikoney-Picture-Blackboard-Graduation-Weathered/dp/B08S39DR5D/?ie=UTF8&tag=giftable02-20)
 
-### [25\. All In One Makeup Set](https://www.amazon.com/Hot-Sugar-Teenager-Beginners-Lipstick/dp/B09NQFW21G/?ie=UTF8&tag=avadalove-20)
+### [25\. All In One Makeup Set](https://www.amazon.com/Hot-Sugar-Teenager-Beginners-Lipstick/dp/B09NQFW21G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hot-Sugar-Teenager-Beginners-Lipstick/dp/B09NQFW21G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hot-Sugar-Teenager-Beginners-Lipstick/dp/B09NQFW21G/?ie=UTF8&tag=giftable02-20)
 
 With the Hot Sugar Makeup Bag, your middle child can carry their dreams, passions, and a touch of magic wherever they go, reminding them that they are loved and supported on their journey.
 
@@ -479,7 +479,7 @@ The bag features multiple compartments and pockets, providing ample storage for 
 
 ✔️ Stylish and fashionable design to enhance the middle child's beauty routine
 
-[Buy from Amazon](https://www.amazon.com/Hot-Sugar-Teenager-Beginners-Lipstick/dp/B09NQFW21G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hot-Sugar-Teenager-Beginners-Lipstick/dp/B09NQFW21G/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Custom Name Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/707100787/custom-name-sign-first-name-personalized)
 
@@ -499,9 +499,9 @@ The sign is expertly crafted with precision using high-quality materials such as
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/707100787/custom-name-sign-first-name-personalized)
 
-### [27\. 3D Printing Pen](https://www.amazon.com/3Doodler-Create-Printing-Adults-Creators/dp/B07B7PQCZV/?ie=UTF8&tag=avadalove-20)
+### [27\. 3D Printing Pen](https://www.amazon.com/3Doodler-Create-Printing-Adults-Creators/dp/B07B7PQCZV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/3Doodler-Create-Printing-Adults-Creators/dp/B07B7PQCZV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/3Doodler-Create-Printing-Adults-Creators/dp/B07B7PQCZV/?ie=UTF8&tag=giftable02-20)
 
 This innovative pen allows your child to bring their ideas to life in three dimensions, providing endless opportunities for self-expression and artistic exploration.
 
@@ -517,7 +517,7 @@ The 3Doodler Pen features a sleek and ergonomic design, ensuring comfortable and
 
 ✔️ Portable and lightweight for creativity on the go
 
-[Buy from Amazon](https://www.amazon.com/3Doodler-Create-Printing-Adults-Creators/dp/B07B7PQCZV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/3Doodler-Create-Printing-Adults-Creators/dp/B07B7PQCZV/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Matching Sibling t-shirts](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1404120042/big-middle-little-3rd-sibling)
 
@@ -573,9 +573,9 @@ The necklace includes up to five birthstones, each representing a family member,
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1301638116/14k-solid-gold-family-birthstone)
 
-### [31\. Over The Door Hooks](https://www.amazon.com/UVEPBSMN-Hooks-Hanger-Towels-Clothes/dp/B0C2GZG6CC/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Over The Door Hooks](https://www.amazon.com/UVEPBSMN-Hooks-Hanger-Towels-Clothes/dp/B0C2GZG6CC/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/UVEPBSMN-Hooks-Hanger-Towels-Clothes/dp/B0C2GZG6CC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/UVEPBSMN-Hooks-Hanger-Towels-Clothes/dp/B0C2GZG6CC/?th=1?ie=UTF8&tag=giftable02-20)
 
 These hooks not only provide a stylish and efficient way to keep your space tidy but also make a thoughtful and versatile middle child gift that adds a touch of personality to any room
 
@@ -589,7 +589,7 @@ Each hook is made of durable and sturdy material, ensuring long-lasting performa
 
 ✔️ Compact size of approximately 2.8 inches in height and 1.4 inches in width
 
-[Buy from Amazon](https://www.amazon.com/UVEPBSMN-Hooks-Hanger-Towels-Clothes/dp/B0C2GZG6CC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/UVEPBSMN-Hooks-Hanger-Towels-Clothes/dp/B0C2GZG6CC/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Moon & Stars Night Light](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/936761406/personalized-night-light-with-moon-stars)
 
@@ -609,9 +609,9 @@ The customizable element allows you to add your middle child's name, making it a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/936761406/personalized-night-light-with-moon-stars)
 
-### [33\. Please Make up Room Door Hanger](https://www.amazon.com/Hemoton-Janitorial-Supplies-Printable-Ornament/dp/B0C3T9SPZB/?ie=UTF8&tag=avadalove-20)
+### [33\. Please Make up Room Door Hanger](https://www.amazon.com/Hemoton-Janitorial-Supplies-Printable-Ornament/dp/B0C3T9SPZB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hemoton-Janitorial-Supplies-Printable-Ornament/dp/B0C3T9SPZB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hemoton-Janitorial-Supplies-Printable-Ornament/dp/B0C3T9SPZB/?ie=UTF8&tag=giftable02-20)
 
 This unique door hanger not only brings a smile to your middle child's face but also helps them express their individuality
 
@@ -625,7 +625,7 @@ The Middle Child Door Hanger features a vibrant and eye-catching design, adding 
 
 ✔️ Customizable with your middle child's name or a personalized message
 
-[Buy from Amazon](https://www.amazon.com/Hemoton-Janitorial-Supplies-Printable-Ornament/dp/B0C3T9SPZB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hemoton-Janitorial-Supplies-Printable-Ornament/dp/B0C3T9SPZB/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Vet Custom Name Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/597653305/she-believed-she-could-so-she-did)
 
