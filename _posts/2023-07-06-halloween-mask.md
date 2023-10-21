@@ -7,8 +7,8 @@ permalink: "/halloween-mask/"
 categories: Occasions Halloween
 tags: spooky ego
 image:
-    path:
-    alt:                                 
+    path: 
+    alt: "Halloween Masks: Unleash Your Spooky Alter Ego"                                
 ---   
 
 If you're looking to bring the laughs this Halloween, our store's incredible masks are sure to do the trick (or treat, if you will). We've got everything from classic monsters like Frankenstein and Dracula to more modern takes on horror characters like Michael Myers and Ghostface.

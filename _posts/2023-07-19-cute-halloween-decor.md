@@ -17,9 +17,9 @@ Step into a world where cute meets creepy as our Cute Halloween Decor adds a pla
 
 From charming plush figures to enchanting wall hangings, our Cute Halloween Decor range offers a variety of options to suit every taste and style. Whether you prefer adorable witches, cuddly bats, or smiling jack-o'-lanterns, our collection has something for everyone. With their high-quality materials and impeccable craftsmanship, these decorations will not only add a touch of cuteness to your Halloween festivities but also withstand the test of time.
 
-### [1\. LED Pumpkin Shape Lamp](https://www.amazon.com/Pumpkin-Halloween-LED-Decoration-Powered/dp/B08D759CGR/?ie=UTF8&tag=avadalove-20)
+### [1\. LED Pumpkin Shape Lamp](https://www.amazon.com/Pumpkin-Halloween-LED-Decoration-Powered/dp/B08D759CGR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pumpkin-Halloween-LED-Decoration-Powered/dp/B08D759CGR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pumpkin-Halloween-LED-Decoration-Powered/dp/B08D759CGR/?ie=UTF8&tag=giftable02-20)
 
 Step up your Halloween game with the captivating LED Pumpkin Shape Lamp - a touch of enchantment for your festivities!
 
@@ -33,11 +33,11 @@ Measuring 3.5 inches in height and 3.9 inches in width, this compact lamp packs 
 
 ✔️ Compact size, perfect for any tabletop or mantel
 
-[Buy from Amazon](https://www.amazon.com/Pumpkin-Halloween-LED-Decoration-Powered/dp/B08D759CGR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pumpkin-Halloween-LED-Decoration-Powered/dp/B08D759CGR/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Pumpkin Lights](https://www.amazon.com/DooVee-Halloween-Pumpkin-Operated-Decorations/dp/B089RB936Z/?ie=UTF8&tag=avadalove-20)
+### [2\. Pumpkin Lights](https://www.amazon.com/DooVee-Halloween-Pumpkin-Operated-Decorations/dp/B089RB936Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DooVee-Halloween-Pumpkin-Operated-Decorations/dp/B089RB936Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DooVee-Halloween-Pumpkin-Operated-Decorations/dp/B089RB936Z/?ie=UTF8&tag=giftable02-20)
 
 Discover the secret to creating a spellbinding Halloween setting - the irresistible Pumpkin Lights are here to mesmerize.
 
@@ -51,11 +51,11 @@ Each light is battery-operated, providing you with the freedom to place them any
 
 ✔️ Battery-operated for versatile placement options
 
-[Buy from Amazon](https://www.amazon.com/DooVee-Halloween-Pumpkin-Operated-Decorations/dp/B089RB936Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DooVee-Halloween-Pumpkin-Operated-Decorations/dp/B089RB936Z/?ie=UTF8&tag=giftable02-20)
 
-### [3\.  LED Tealight Candles](https://www.amazon.com/GenSwin-Halloween-Flameless-Changing-Decoration/dp/B093Q6S2PJ/?ie=UTF8&tag=avadalove-20)
+### [3\.  LED Tealight Candles](https://www.amazon.com/GenSwin-Halloween-Flameless-Changing-Decoration/dp/B093Q6S2PJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GenSwin-Halloween-Flameless-Changing-Decoration/dp/B093Q6S2PJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GenSwin-Halloween-Flameless-Changing-Decoration/dp/B093Q6S2PJ/?ie=UTF8&tag=giftable02-20)
 
 Illuminate your home with a touch of magic, thanks to these GenSwin LED tealight candles.
 
@@ -69,11 +69,11 @@ But why choose LED tealight candles over traditional ones? With their energy-eff
 
 ✔️ Energy-efficient LED technology
 
-[Buy from Amazon](https://www.amazon.com/GenSwin-Halloween-Flameless-Changing-Decoration/dp/B093Q6S2PJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GenSwin-Halloween-Flameless-Changing-Decoration/dp/B093Q6S2PJ/?ie=UTF8&tag=giftable02-20)
 
-### [4\. LED Pillar Candles](https://www.amazon.com/DRomance-Flameless-Flickering-Operated-Halloween/dp/B07QH9DC13/?ie=UTF8&tag=avadalove-20)
+### [4\. LED Pillar Candles](https://www.amazon.com/DRomance-Flameless-Flickering-Operated-Halloween/dp/B07QH9DC13/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DRomance-Flameless-Flickering-Operated-Halloween/dp/B07QH9DC13/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DRomance-Flameless-Flickering-Operated-Halloween/dp/B07QH9DC13/?ie=UTF8&tag=giftable02-20)
 
 Enjoy the ambiance of candlelight without the mess or danger, thanks to these DRomance LED pillar candles.
 
@@ -87,11 +87,11 @@ But what makes these LED pillar candles stand out from others on the market? For
 
 ✔️ Safe for homes with children and pets
 
-[Buy from Amazon](https://www.amazon.com/DRomance-Flameless-Flickering-Operated-Halloween/dp/B07QH9DC13/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DRomance-Flameless-Flickering-Operated-Halloween/dp/B07QH9DC13/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Gnome Decorations](https://www.amazon.com/LarpGears-Handmade-Halloween-Decorations-Decoration/dp/B098HZPHYC/?ie=UTF8&tag=avadalove-20)
+### [5\. Gnome Decorations](https://www.amazon.com/LarpGears-Handmade-Halloween-Decorations-Decoration/dp/B098HZPHYC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LarpGears-Handmade-Halloween-Decorations-Decoration/dp/B098HZPHYC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LarpGears-Handmade-Halloween-Decorations-Decoration/dp/B098HZPHYC/?ie=UTF8&tag=giftable02-20)
 
 Transform your Halloween display into a whimsical wonderland with the addition of these delightful Gnome Decorations.
 
@@ -105,11 +105,11 @@ Each gnome measures approximately 7.9 inches in height, making them a delightful
 
 ✔️ Lightweight and easy to position for versatile decorating options
 
-[Buy from Amazon](https://www.amazon.com/LarpGears-Handmade-Halloween-Decorations-Decoration/dp/B098HZPHYC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LarpGears-Handmade-Halloween-Decorations-Decoration/dp/B098HZPHYC/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Pumpkin Light Snow Globe](https://www.amazon.com/Eldnacele-Halloween-Glittering-Decoration-Celebration/dp/B07SPBK45T/?ie=UTF8&tag=avadalove-20) 
+### [6\. Pumpkin Light Snow Globe](https://www.amazon.com/Eldnacele-Halloween-Glittering-Decoration-Celebration/dp/B07SPBK45T/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Eldnacele-Halloween-Glittering-Decoration-Celebration/dp/B07SPBK45T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Eldnacele-Halloween-Glittering-Decoration-Celebration/dp/B07SPBK45T/?ie=UTF8&tag=giftable02-20)
 
 Let the Pumpkin Light Snow Globe transport you to a mesmerizing winter wonderland this Halloween.
 
@@ -123,11 +123,11 @@ Filled with shimmering glitter and featuring a charming pumpkin design, it creat
 
 ✔️ Sparkling glitter adds a magical touch
 
-[Buy from Amazon](https://www.amazon.com/Eldnacele-Halloween-Glittering-Decoration-Celebration/dp/B07SPBK45T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Eldnacele-Halloween-Glittering-Decoration-Celebration/dp/B07SPBK45T/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Spider String Lights](https://www.amazon.com/Halloween-Spider-Decorations-Colorful-Decoration/dp/B0B2P543SH/?ie=UTF8&tag=avadalove-20)
+### [7\. Spider String Lights](https://www.amazon.com/Halloween-Spider-Decorations-Colorful-Decoration/dp/B0B2P543SH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Spider-Decorations-Colorful-Decoration/dp/B0B2P543SH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Spider-Decorations-Colorful-Decoration/dp/B0B2P543SH/?ie=UTF8&tag=giftable02-20)
 
 Looking for a spooky and fun way to light up your Halloween decor? These Spider String Lights are the perfect solution.
 
@@ -141,11 +141,11 @@ Featuring adorable spider designs in a variety of colors, these string lights wi
 
 ✔️ Adorable spider designs add a unique touch to your decor
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Spider-Decorations-Colorful-Decoration/dp/B0B2P543SH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Spider-Decorations-Colorful-Decoration/dp/B0B2P543SH/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Lantern Spider Skeleton Pumpkin](https://www.amazon.com/Halloween-Decorations-Lanterns%EF%BC%888PCS-%EF%BC%8CHanging-D%C3%A9cor%EF%BC%8CHalloween/dp/B08CZGPXNY/?ie=UTF8&tag=avadalove-20)
+### [8\. Lantern Spider Skeleton Pumpkin](https://www.amazon.com/Halloween-Decorations-Lanterns%EF%BC%888PCS-%EF%BC%8CHanging-D%C3%A9cor%EF%BC%8CHalloween/dp/B08CZGPXNY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Lanterns%EF%BC%888PCS-%EF%BC%8CHanging-D%C3%A9cor%EF%BC%8CHalloween/dp/B08CZGPXNY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Lanterns%EF%BC%888PCS-%EF%BC%8CHanging-D%C3%A9cor%EF%BC%8CHalloween/dp/B08CZGPXNY/?ie=UTF8&tag=giftable02-20)
 
 Spice up your Halloween decorations with these one-of-a-kind lanterns - they're sure to make a statement.
 
@@ -159,7 +159,7 @@ With a unique shape and design, these lanterns are sure to catch everyone's eye.
 
 ✔️ High-quality materials ensure long-lasting use
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Lanterns%EF%BC%888PCS-%EF%BC%8CHanging-D%C3%A9cor%EF%BC%8CHalloween/dp/B08CZGPXNY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Lanterns%EF%BC%888PCS-%EF%BC%8CHanging-D%C3%A9cor%EF%BC%8CHalloween/dp/B08CZGPXNY/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Jack-O-Lantern Halloween Wood](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1058910684/jack-o-lantern-halloween-wood)
 
@@ -179,9 +179,9 @@ Measuring approximately 6 inches in height and 4.5 inches in width, these wooden
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1058910684/jack-o-lantern-halloween-wood)
 
-### [10\. 3D Bats Wall Decor](https://www.amazon.com/Halloween-Decoration-Iridescent-Holographic-Decorative/dp/B09FL17HSK/?ie=UTF8&tag=avadalove-20) 
+### [10\. 3D Bats Wall Decor](https://www.amazon.com/Halloween-Decoration-Iridescent-Holographic-Decorative/dp/B09FL17HSK/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Halloween-Decoration-Iridescent-Holographic-Decorative/dp/B09FL17HSK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decoration-Iridescent-Holographic-Decorative/dp/B09FL17HSK/?ie=UTF8&tag=giftable02-20)
 
 Experience the allure of spooky elegance with the mesmerizing 3D Bats Wall Decor as the centerpiece of your Halloween decor.
 
@@ -195,11 +195,11 @@ Measuring 3.5 inches in width and crafted with meticulous attention to detail, t
 
 ✔️ Easy to install and customizable arrangement options
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decoration-Iridescent-Holographic-Decorative/dp/B09FL17HSK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decoration-Iridescent-Holographic-Decorative/dp/B09FL17HSK/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Mushroom Lights Garden](https://www.amazon.com/Abkshine-Waterproof-Landscape-Halloween-Decorations/dp/B09LQBZSQG/?ie=UTF8&tag=avadalove-20) 
+### [11\. Mushroom Lights Garden](https://www.amazon.com/Abkshine-Waterproof-Landscape-Halloween-Decorations/dp/B09LQBZSQG/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Abkshine-Waterproof-Landscape-Halloween-Decorations/dp/B09LQBZSQG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Abkshine-Waterproof-Landscape-Halloween-Decorations/dp/B09LQBZSQG/?ie=UTF8&tag=giftable02-20)
 
 Bring a sense of wonder to your garden lighting with the Abkshine Mushroom Lights Garden.
 
@@ -213,11 +213,11 @@ Measuring in at a generous 5 meters in length with 50 LED lights, these mushroom
 
 ✔️ Durable and weather-resistant construction
 
-[Buy from Amazon](https://www.amazon.com/Abkshine-Waterproof-Landscape-Halloween-Decorations/dp/B09LQBZSQG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Abkshine-Waterproof-Landscape-Halloween-Decorations/dp/B09LQBZSQG/?ie=UTF8&tag=giftable02-20)
 
-### [12\. String Lights Outdoor](https://www.amazon.com/AOTIBO-Nightmare-Christmas-Decorations-Operated/dp/B0B7HB5547/?ie=UTF8&tag=avadalove-20)
+### [12\. String Lights Outdoor](https://www.amazon.com/AOTIBO-Nightmare-Christmas-Decorations-Operated/dp/B0B7HB5547/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AOTIBO-Nightmare-Christmas-Decorations-Operated/dp/B0B7HB5547/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AOTIBO-Nightmare-Christmas-Decorations-Operated/dp/B0B7HB5547/?ie=UTF8&tag=giftable02-20)
 
 Create a spooky and enchanting atmosphere with the AOTIBO Nightmare Before Christmas String Lights Outdoor.
 
@@ -231,11 +231,11 @@ With a battery-operated design, you can enjoy these lights without the hassle of
 
 ✔️ Battery operated for easy use
 
-[Buy from Amazon](https://www.amazon.com/AOTIBO-Nightmare-Christmas-Decorations-Operated/dp/B0B7HB5547/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AOTIBO-Nightmare-Christmas-Decorations-Operated/dp/B0B7HB5547/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Purple Floral Cat Door Sign](https://www.amazon.com/Halloween-Decorations-Hanging-Ornament-Pumpkin/dp/B0C72BMT35/?ie=UTF8&tag=avadalove-20)
+### [13\. Purple Floral Cat Door Sign](https://www.amazon.com/Halloween-Decorations-Hanging-Ornament-Pumpkin/dp/B0C72BMT35/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Hanging-Ornament-Pumpkin/dp/B0C72BMT35/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Hanging-Ornament-Pumpkin/dp/B0C72BMT35/?ie=UTF8&tag=giftable02-20)
 
 Infuse your Halloween decor with an enchanting and delightful vibe using the captivating Purple Floral Cat Door Sign.
 
@@ -249,7 +249,7 @@ The purple floral design adds a touch of sophistication and uniqueness, making i
 
 ✔️ Versatile placement options for various display preferences
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Hanging-Ornament-Pumpkin/dp/B0C72BMT35/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Hanging-Ornament-Pumpkin/dp/B0C72BMT35/?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Creepy Cute Spring](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1436134380/creepy-cute-springsummer-gardening)
 
@@ -269,9 +269,9 @@ The pots measure approximately 2.5 inches in diameter and 2.25 inches in height,
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1436134380/creepy-cute-springsummer-gardening)
 
-### [15\. Purple Bat String Lights](https://www.amazon.com/Halloween-Battery-Operated-Decorations-Fireplace/dp/B0B7J18WSK/?ie=UTF8&tag=avadalove-20)
+### [15\. Purple Bat String Lights](https://www.amazon.com/Halloween-Battery-Operated-Decorations-Fireplace/dp/B0B7J18WSK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Battery-Operated-Decorations-Fireplace/dp/B0B7J18WSK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Battery-Operated-Decorations-Fireplace/dp/B0B7J18WSK/?ie=UTF8&tag=giftable02-20)
 
 Elevate your Halloween decor to the next level with these mesmerizing Purple Bat String Lights that will leave everyone intrigued.
 
@@ -285,7 +285,7 @@ Measuring 10 feet in length, these battery-operated lights feature 40 purple bat
 
 ✔️ Energy-efficient design allows for extended use
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Battery-Operated-Decorations-Fireplace/dp/B0B7J18WSK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Battery-Operated-Decorations-Fireplace/dp/B0B7J18WSK/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Ghost Holding a Kitty](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1321327733/ghost-holding-a-kitty-behold-halloween)
 
@@ -323,9 +323,9 @@ The warm white light emitted by the LEDs enhances the spooky charm of the ghost 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1288947829/10ft-20leds-cute-ghost-pumpkin-halloween)
 
-### [18\. Halloween Pillow Covers](https://www.amazon.com/Halloween-Decorations-Double-Sided-Printing-Pillowcase/dp/B09CPQN37R/?ie=UTF8&tag=avadalove-20)
+### [18\. Halloween Pillow Covers](https://www.amazon.com/Halloween-Decorations-Double-Sided-Printing-Pillowcase/dp/B09CPQN37R/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Double-Sided-Printing-Pillowcase/dp/B09CPQN37R/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Double-Sided-Printing-Pillowcase/dp/B09CPQN37R/?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchantment of Halloween with these captivating Halloween Pillow Covers, creating a whimsical wonderland in your home.
 
@@ -339,11 +339,11 @@ Measuring approximately 18 x 18 inches, they are the perfect size to adorn your 
 
 ✔️ Eye-catching designs with double-sided printing
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Double-Sided-Printing-Pillowcase/dp/B09CPQN37R/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Double-Sided-Printing-Pillowcase/dp/B09CPQN37R/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Paper Lanterns](https://www.amazon.com/UNIQOOO-Halloween-Lanterns-Decorative-Decoration/dp/B07STZSP43/?ie=UTF8&tag=avadalove-20)
+### [19\. Paper Lanterns](https://www.amazon.com/UNIQOOO-Halloween-Lanterns-Decorative-Decoration/dp/B07STZSP43/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/UNIQOOO-Halloween-Lanterns-Decorative-Decoration/dp/B07STZSP43/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/UNIQOOO-Halloween-Lanterns-Decorative-Decoration/dp/B07STZSP43/?ie=UTF8&tag=giftable02-20)
 
 Get creative this Halloween with these Paper Lanterns, perfect for creating a unique and spooky atmosphere both indoors and outdoors.
 
@@ -357,11 +357,11 @@ Measuring at 12 inches in diameter, these lanterns come in a set of six, each wi
 
 ✔️ Lightweight yet durable material
 
-[Buy from Amazon](https://www.amazon.com/UNIQOOO-Halloween-Lanterns-Decorative-Decoration/dp/B07STZSP43/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/UNIQOOO-Halloween-Lanterns-Decorative-Decoration/dp/B07STZSP43/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Inflatable Nutcracker Pumpkin Lighted](https://www.amazon.com/Decfine-Halloween-Inflatable-Nutcracker-Decoration/dp/B0B469JQV9/?ie=UTF8&tag=avadalove-20)
+### [20\. Inflatable Nutcracker Pumpkin Lighted](https://www.amazon.com/Decfine-Halloween-Inflatable-Nutcracker-Decoration/dp/B0B469JQV9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decfine-Halloween-Inflatable-Nutcracker-Decoration/dp/B0B469JQV9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decfine-Halloween-Inflatable-Nutcracker-Decoration/dp/B0B469JQV9/?ie=UTF8&tag=giftable02-20)
 
 Make your home the talk of the neighborhood this Halloween with the Inflatable Nutcracker Pumpkin Lighted, a towering and impressive decoration that's sure to grab attention.
 
@@ -375,11 +375,11 @@ The high-quality LED lights illuminate this unique piece from within, making it 
 
 ✔️ Eerie pumpkin light adds to the spooky atmosphere
 
-[Buy from Amazon](https://www.amazon.com/Decfine-Halloween-Inflatable-Nutcracker-Decoration/dp/B0B469JQV9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decfine-Halloween-Inflatable-Nutcracker-Decoration/dp/B0B469JQV9/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Happy Halloween Banner](https://www.amazon.com/Trick-Treat-Happy-Halloween-Banner/dp/B0B8P48JHM/?ie=UTF8&tag=avadalove-20)
+### [21\. Happy Halloween Banner](https://www.amazon.com/Trick-Treat-Happy-Halloween-Banner/dp/B0B8P48JHM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Trick-Treat-Happy-Halloween-Banner/dp/B0B8P48JHM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Trick-Treat-Happy-Halloween-Banner/dp/B0B8P48JHM/?ie=UTF8&tag=giftable02-20)
 
 Add a festive touch to your Halloween decor with the vibrant and eye-catching Happy Halloween Banner.
 
@@ -393,7 +393,7 @@ Measuring approximately 6 feet in length, this banner provides a noticeable pres
 
 ✔️ Approximately 6 feet in length for a noticeable presence
 
-[Buy from Amazon](https://www.amazon.com/Trick-Treat-Happy-Halloween-Banner/dp/B0B8P48JHM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Trick-Treat-Happy-Halloween-Banner/dp/B0B8P48JHM/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Vintage Styled Halloween Decorations](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1478312690/retro-vintage-styled-halloween) 
 
@@ -413,9 +413,9 @@ The banners and signs measure approximately 10-12 inches in height, providing a 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1478312690/retro-vintage-styled-halloween)
 
-### [23\. Tornado Lamp Purple Light](https://www.amazon.com/DRomance-Halloween-Flameless-Candlesticks-Decoration/dp/B088CV2LPH/?ie=UTF8&tag=avadalove-20)
+### [23\. Tornado Lamp Purple Light](https://www.amazon.com/DRomance-Halloween-Flameless-Candlesticks-Decoration/dp/B088CV2LPH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DRomance-Halloween-Flameless-Candlesticks-Decoration/dp/B088CV2LPH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DRomance-Halloween-Flameless-Candlesticks-Decoration/dp/B088CV2LPH/?ie=UTF8&tag=giftable02-20)
 
 Looking for a unique way to add some extra flair to your Halloween decor? Check out DRomance's Tornado Lamp Purple Light!
 
@@ -429,11 +429,11 @@ The lamp features a powerful motor that spins a clear tube filled with water and
 
 ✔️ Low voltage and eco-friendly
 
-[Buy from Amazon](https://www.amazon.com/DRomance-Halloween-Flameless-Candlesticks-Decoration/dp/B088CV2LPH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DRomance-Halloween-Flameless-Candlesticks-Decoration/dp/B088CV2LPH/?ie=UTF8&tag=giftable02-20)
 
-### [24\.  LED Pumpkin Lights](https://www.amazon.com/Homemory-Operated-Tealight-Flilckering-Halloween/dp/B08B3HGDNN/?ie=UTF8&tag=avadalove-20)
+### [24\.  LED Pumpkin Lights](https://www.amazon.com/Homemory-Operated-Tealight-Flilckering-Halloween/dp/B08B3HGDNN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homemory-Operated-Tealight-Flilckering-Halloween/dp/B08B3HGDNN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homemory-Operated-Tealight-Flilckering-Halloween/dp/B08B3HGDNN/?ie=UTF8&tag=giftable02-20)
 
 Seeking the perfect way to add some spookiness to your home this Halloween? Homemory's LED Pumpkin Lights have got you covered!
 
@@ -447,7 +447,7 @@ And don't let their small size fool you: these LED Pumpkin Lights pack a punch w
 
 ✔️ Safe and easy to use with no open flames
 
-[Buy from Amazon](https://www.amazon.com/Homemory-Operated-Tealight-Flilckering-Halloween/dp/B08B3HGDNN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homemory-Operated-Tealight-Flilckering-Halloween/dp/B08B3HGDNN/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Skeleton Cat](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1068287938/dias-de-la-muerta-sugar-skeleton-cat)
 
@@ -467,9 +467,9 @@ This unique piece showcases the artistry and cultural significance of the Day of
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1068287938/dias-de-la-muerta-sugar-skeleton-cat)
 
-### [26\.  Ghost Bat Wall Decor](https://www.amazon.com/Halloween-Stickers-Removable-Decorations-Decoration/dp/B09CYTSQJ1/?ie=UTF8&tag=avadalove-20) 
+### [26\.  Ghost Bat Wall Decor](https://www.amazon.com/Halloween-Stickers-Removable-Decorations-Decoration/dp/B09CYTSQJ1/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Halloween-Stickers-Removable-Decorations-Decoration/dp/B09CYTSQJ1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Stickers-Removable-Decorations-Decoration/dp/B09CYTSQJ1/?ie=UTF8&tag=giftable02-20)
 
 Add a dash of mystique and allure to your Halloween decor with the captivating Ghost Bat Wall Decor.
 
@@ -483,7 +483,7 @@ The set includes a variety of ghost bat designs, adding depth and dimension to y
 
 ✔️ Intricate and captivating ghost bat designs
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Stickers-Removable-Decorations-Decoration/dp/B09CYTSQJ1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Stickers-Removable-Decorations-Decoration/dp/B09CYTSQJ1/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Original Ghost Candles](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1294979125/the-original-ghost-candles-halloween)
 
@@ -503,9 +503,9 @@ These handcrafted candles are made from high-quality materials and measure 3.5" 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1294979125/the-original-ghost-candles-halloween)
 
-### [28\. Metal Cracked Artificial Pumpkin](https://www.amazon.com/dp/B0C8SFHKMQ/?ie=UTF8&tag=avadalove-20) 
+### [28\. Metal Cracked Artificial Pumpkin](https://www.amazon.com/dp/B0C8SFHKMQ/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/dp/B0C8SFHKMQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0C8SFHKMQ/?ie=UTF8&tag=giftable02-20)
 
 Unlock the perfect Halloween ambiance in your home with the addition of the Metal Cracked Artificial Pumpkin to your decor collection!
 
@@ -519,7 +519,7 @@ With its stylish design and intricate details, this pumpkin is sure to be a show
 
 ✔️ Unique cracked metal design
 
-[Buy from Amazon](https://www.amazon.com/dp/B0C8SFHKMQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0C8SFHKMQ/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Halloween Gift Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1324953949/halloween-gift-box-trick-or-treat-gift)
 
@@ -539,9 +539,9 @@ The box itself measures 8 inches in length, 6 inches in width, and 4 inches in h
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1324953949/halloween-gift-box-trick-or-treat-gift)
 
-### [30\. Halloween Figurines Pumpkin](https://www.amazon.com/dp/B0B3H9XJ23?ie=UTF8&tag=avadalove-20)
+### [30\. Halloween Figurines Pumpkin](https://www.amazon.com/dp/B0B3H9XJ23?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0B3H9XJ23?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0B3H9XJ23?ie=UTF8&tag=giftable02-20)
 
 Take your Halloween decor to new heights with these captivating Halloween Figurines Pumpkin - they'll leave everyone spellbound!
 
@@ -555,7 +555,7 @@ Each pumpkin measures 3 inches in height, making them ideal for tabletop display
 
 ✔️ Charming and eye-catching design
 
-[Buy from Amazon](https://www.amazon.com/dp/B0B3H9XJ23?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0B3H9XJ23?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Cute Halloween Horned Ghost](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1101830273/cute-halloween-horned-ghost-with-options)
 
@@ -647,9 +647,9 @@ Measuring approximately 4 inches tall by 3 inches wide, this handmade creation i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1302043727/needle-felted-mouse-in-pumpkin-house)
 
-### [36\. Freshly Boo D Coffee Halloween Sign](https://www.amazon.com/dp/B0CFY5ND3F?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [36\. Freshly Boo D Coffee Halloween Sign](https://www.amazon.com/dp/B0CFY5ND3F?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CFY5ND3F?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CFY5ND3F?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 The Freshly Boo D Coffee Halloween Sign is a quirky and delightful addition to your Halloween decor. Whether you're a coffee aficionado or a Halloween fan, this sign satisfies both your loves.
 
@@ -665,11 +665,11 @@ With a catchy phrase and a festive tone, this sign will add an eye-catching elem
 
 ✔️ Easy maintenance and cleaning
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CFY5ND3F?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CFY5ND3F?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [37\. Days Til Halloween](https://www.amazon.com/dp/B0CG14SQ78?ref=myi_title_dp&th=1?ie=UTF8&tag=avadalove-20)
+### [37\. Days Til Halloween](https://www.amazon.com/dp/B0CG14SQ78?ref=myi_title_dp&th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CG14SQ78?ref=myi_title_dp&th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CG14SQ78?ref=myi_title_dp&th=1?ie=UTF8&tag=giftable02-20)
 
 Get into the spooky spirit and count down in style with the Days Till Halloween product. This unique holiday piece puts a fun spin on anticipation and can intrigue any Halloween enthusiast.
 
@@ -685,11 +685,11 @@ Its versatility makes it a perfect gift or decor piece for anyone, double-tappin
 
 ✔️ Conversation starter
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CG14SQ78?ref=myi_title_dp&th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CG14SQ78?ref=myi_title_dp&th=1?ie=UTF8&tag=giftable02-20)
 
-### [38\. Halloween Ghost Boo with Name](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [38\. Halloween Ghost Boo with Name](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Get into the spooky spirit this season with the highly personalized Halloween Ghost Boo with Name gift. Its uniqueness will not only bring joy but also create lasting memories.
 
@@ -705,11 +705,11 @@ This product impresses with its winning combination of the traditional ghost sil
 
 ✔️ Traditional yet unique aesthetic
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [39\. Forever My Boo Hanging Ornament](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [39\. Forever My Boo Hanging Ornament](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Show your affection this Halloween season with the Forever My Boo Hanging Ornament. It perfectly captures the spirit of Halloween while celebrating love and togetherness.
 
@@ -725,11 +725,11 @@ This unique ornament brings a playful twist to the traditional love token with i
 
 ✔️ Captures spooky holiday charm
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [40\. Personalized Song Music Box](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [40\. Personalized Song Music Box](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Send chills down the spine with heartfelt emotion using the Personalized Song Music Box, an ideal Halloween gift. Its melody will touch the heart while capturing the spirit of Halloween.
 
@@ -745,11 +745,11 @@ The music box features a meticulously engraved song ensuring each line tells the
 
 ✔️ Versatile Home Decor
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [41\. Halloween Ghost Wooden Sign](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [41\. Halloween Ghost Wooden Sign](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the spirit of Halloween with the delightfully spooky Halloween Ghost Wooden Sign. Perfect for those who love to embrace seasonal decorations to the fullest.
 
@@ -765,11 +765,11 @@ This ghostly wooden sign is designed tastefully with a comical touch, ensuring i
 
 ✔️ Durable material
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [42\. Metal Sign Halloween Witch](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [42\. Metal Sign Halloween Witch](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Stir up some magical horror this Halloween with the Metal Sign Halloween Witch.
 
@@ -785,11 +785,11 @@ As a gift, this sign is sure to bewitch anyone who receives it. Boasting a vivid
 
 ✔️ Perfect for seasonal decor
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [43\. Halloween Ghost Boo with Flowers Metal Sign](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [43\. Halloween Ghost Boo with Flowers Metal Sign](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Add a touch of whimsical horror to this year's Halloween celebrations with the Halloween Ghost Boo with Flowers Metal Sign.
 
@@ -805,11 +805,11 @@ This charming piece not only sets the mood for the spooky season but is sure to 
 
 ✔️ Eye-catcher for Halloween parties
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [44\. Forever My Boo Metal Sign with Led](https://www.amazon.com/dp/B0CHFL4Z96?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [44\. Forever My Boo Metal Sign with Led](https://www.amazon.com/dp/B0CHFL4Z96?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CHFL4Z96?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CHFL4Z96?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 This 'Forever My Boo' Metal Sign with LED lights is a witty and interesting Halloween birthday gift ideas for adults.
 
@@ -825,7 +825,7 @@ The vibrant LED lights draw attention, while the humorous phrase 'Forever My Boo
 
 ✔️ Humorous and charming gift
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CHFL4Z96?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CHFL4Z96?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [45\. Special Black Cat Wooden Sign](https://loveable.us/products/black-cat-special-wooden-sign-halloween-gift-308ihpnprw950?variant=44816307749096?utm_source=avada&ranking=&utm_source=&utm_campaign=cute-halloween-decorations-that-will-make-your-heart-melt)
 
