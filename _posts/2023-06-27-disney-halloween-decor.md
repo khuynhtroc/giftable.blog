@@ -7,8 +7,8 @@ permalink: "/disney-halloween-decor/"
 categories: Occasions Halloween
 tags: disney magical
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/disney-halloween-decor (1).jpg"
+    alt: "Best Disney Halloween Decor for a Magical Celebration"                                
 ---   
 
 Are you ready to add a sprinkle of Disney magic to your Halloween festivities? Get ready to cast a spell on your home with our bewitchingly delightful collection of **Disney Halloween decor**. We've conjured up 35 enchanting products that will make your guests scream with delight!
@@ -17,9 +17,9 @@ Our gift decor list takes the spooktacular season to a new level of whimsy and s
 
 Picture the look of sheer delight on your family's faces as they enter your haunted domain, greeted by a spine-tingling display of **[Disney magic](/disney-gifts/)**. Illuminate your Halloween spirit with our glowing Mickey Mouse pumpkin, or add a touch of sorcery with our wickedly charming Minnie Mouse witch figurine. Embrace the spirit of Disney and the spookiness of Halloween with our wickedly wonderful collection of Disney Halloween decor. It's time to let your inner Disney villain shine and make this Halloween an affair to remember.
 
-### [1\. Reversible Pillowcase](https://www.amazon.com/Disney-Nightmare-Christmas-Reversible-Pillowcase/dp/B07BY5XTYH/?ie=UTF8&tag=avadalove-20)
+### [1\. Reversible Pillowcase](https://www.amazon.com/Disney-Nightmare-Christmas-Reversible-Pillowcase/dp/B07BY5XTYH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Disney-Nightmare-Christmas-Reversible-Pillowcase/dp/B07BY5XTYH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Disney-Nightmare-Christmas-Reversible-Pillowcase/dp/B07BY5XTYH/?ie=UTF8&tag=giftable02-20)
 
 Experience the enchanting magic of Disney's Nightmare Before Christmas as it comes to life in the coziest way possible.
 
@@ -33,11 +33,11 @@ This pillowcase is made from high-quality fabrics, ensuring softness, durability
 
 ✔️ Providing a cozy and comfortable sleep experience
 
-[Buy from Amazon](https://www.amazon.com/Disney-Nightmare-Christmas-Reversible-Pillowcase/dp/B07BY5XTYH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Disney-Nightmare-Christmas-Reversible-Pillowcase/dp/B07BY5XTYH/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Halloween Garland Banner](https://www.amazon.com/Inspired-Halloween-Garland-Decorations-Birthday/dp/B0B5MLJQF7/?ie=UTF8&tag=avadalove-20)
+### [2\. Halloween Garland Banner](https://www.amazon.com/Inspired-Halloween-Garland-Decorations-Birthday/dp/B0B5MLJQF7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspired-Halloween-Garland-Decorations-Birthday/dp/B0B5MLJQF7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspired-Halloween-Garland-Decorations-Birthday/dp/B0B5MLJQF7/?ie=UTF8&tag=giftable02-20)
 
 Get ready to immerse yourself in the spooktacular spirit of Halloween with the mesmerizing Halloween Garland Banner.
 
@@ -51,11 +51,11 @@ Its simple hanging mechanism lets you quickly and easily turn any area into a me
 
 ✔️ Spellbinding design that captures the essence of Halloween
 
-[Buy from Amazon](https://www.amazon.com/Inspired-Halloween-Garland-Decorations-Birthday/dp/B0B5MLJQF7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspired-Halloween-Garland-Decorations-Birthday/dp/B0B5MLJQF7/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Mickey Mouse Town Center](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08TJ241FN/?ie=UTF8&tag=avadalove-20)
+### [3\. Mickey Mouse Town Center](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08TJ241FN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08TJ241FN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08TJ241FN/?ie=UTF8&tag=giftable02-20)
 
 Get ready to add some spooky charm to your surroundings with the Department 56 Accessories Pumpkintown Mickey Mouse Town Center this Halloween!
 
@@ -69,11 +69,11 @@ It will take you right into the heart of Disney enchantment with its vivid color
 
 ✔️ High-quality construction
 
-[Buy from Amazon](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08TJ241FN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08TJ241FN/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Embracing Figurine](https://www.amazon.com/Enesco-Nightmare-Christmas-Embracing-Multicolor/dp/B08ZNHJ9WY/?ie=UTF8&tag=avadalove-20)
+### [4\. Embracing Figurine](https://www.amazon.com/Enesco-Nightmare-Christmas-Embracing-Multicolor/dp/B08ZNHJ9WY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Nightmare-Christmas-Embracing-Multicolor/dp/B08ZNHJ9WY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Nightmare-Christmas-Embracing-Multicolor/dp/B08ZNHJ9WY/?ie=UTF8&tag=giftable02-20)
 
 Elevate your collection game with the Nightmare Before Christmas Embracing Figurine – an exceptional and visually stunning figurine that's sure to impress.
 
@@ -87,7 +87,7 @@ Every aspect of the iconic movie has been lovingly created, from Jack Skellingto
 
 ✔️ Striking colors and poses
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Nightmare-Christmas-Embracing-Multicolor/dp/B08ZNHJ9WY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Nightmare-Christmas-Embracing-Multicolor/dp/B08ZNHJ9WY/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Cruise Ship Stateroom Doors](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1466448072/mickey-minnie-disney-halloween-magnets)
 
@@ -107,9 +107,9 @@ These adorable magnets, inspired by images of Mickey and Minnie dressed as ghost
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1466448072/mickey-minnie-disney-halloween-magnets)
 
-### [6\. Mickey Mouse Street Lights](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08THXGFPG/?ie=UTF8&tag=avadalove-20)
+### [6\. Mickey Mouse Street Lights](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08THXGFPG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08THXGFPG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08THXGFPG/?ie=UTF8&tag=giftable02-20)
 
 Want to bring some enchantment to your Halloween setup? The Department 56 Accessories Pumpkintown Mickey Mouse Street Lights are just what you need!
 
@@ -123,11 +123,11 @@ These street lights give out a warm, inviting glow that makes them perfect for e
 
 ✔️ Charming Mickey Mouse design
 
-[Buy from Amazon](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08THXGFPG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B08THXGFPG/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Wood Wall Decor](https://www.amazon.com/Open-Road-Brands-Haunted-Mansion/dp/B0B7XXBX4S/?ie=UTF8&tag=avadalove-20)
+### [7\. Wood Wall Decor](https://www.amazon.com/Open-Road-Brands-Haunted-Mansion/dp/B0B7XXBX4S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Haunted-Mansion/dp/B0B7XXBX4S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Haunted-Mansion/dp/B0B7XXBX4S/?ie=UTF8&tag=giftable02-20)
 
 Create a spooky yet sophisticated atmosphere in your home with the hauntingly beautiful Open Road Brands Haunted Mansion Wood Wall Decor.
 
@@ -141,11 +141,11 @@ Not only does it look good, but its durable MDF wood construction guarantees its
 
 ✔️ Vintage-inspired design
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Haunted-Mansion/dp/B0B7XXBX4S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Haunted-Mansion/dp/B0B7XXBX4S/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Minnie Mouse Figurine](https://www.amazon.com/Enesco-Disney-Traditions-Halloween-Figurine/dp/B083SK527N/?ie=UTF8&tag=avadalove-20)
+### [8\. Minnie Mouse Figurine](https://www.amazon.com/Enesco-Disney-Traditions-Halloween-Figurine/dp/B083SK527N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Disney-Traditions-Halloween-Figurine/dp/B083SK527N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Disney-Traditions-Halloween-Figurine/dp/B083SK527N/?ie=UTF8&tag=giftable02-20)
 
 Indulge in the enchantment of Disney this Halloween with the mesmerizing Minnie Mouse Figurine, a delightful addition to your decor.
 
@@ -159,11 +159,11 @@ This sculpture embodies the charm of Disney and oozes longevity thanks to its us
 
 ✔️ High-quality craftsmanship ensures durability and longevity
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Disney-Traditions-Halloween-Figurine/dp/B083SK527N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Disney-Traditions-Halloween-Figurine/dp/B083SK527N/?ie=UTF8&tag=giftable02-20)
 
-### [9\.  Mouse Decorations](https://www.amazon.com/Halloween-Decorations-Muertos-Mexican-Deocrations/dp/B0B5WCDSD6/r?ie=UTF8&tag=avadalove-20)
+### [9\.  Mouse Decorations](https://www.amazon.com/Halloween-Decorations-Muertos-Mexican-Deocrations/dp/B0B5WCDSD6/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Muertos-Mexican-Deocrations/dp/B0B5WCDSD6/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Muertos-Mexican-Deocrations/dp/B0B5WCDSD6/r?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the world of whimsy and cultural significance with the captivating Mouse Decorations.
 
@@ -177,11 +177,11 @@ Each ornament has a cute mouse that is decorated with customary sugar skull desi
 
 ✔️ Intricate craftsmanship with traditional sugar skull patterns
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Muertos-Mexican-Deocrations/dp/B0B5WCDSD6/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Muertos-Mexican-Deocrations/dp/B0B5WCDSD6/r?ie=UTF8&tag=giftable02-20)
 
-### [10\. Pumpkintown Manor Tree Figurine](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B09QLDPZMM/?ie=UTF8&tag=avadalove-20)
+### [10\. Pumpkintown Manor Tree Figurine](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B09QLDPZMM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B09QLDPZMM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B09QLDPZMM/?ie=UTF8&tag=giftable02-20)
 
 Let the Pumpkintown Manor Tree Figurine whisk you away to a whimsical world of enchantment, where every detail tells a magical story.
 
@@ -195,7 +195,7 @@ From the miniature pumpkins adorning its branches to the charming characters and
 
 ✔️ Versatile display options as a centerpiece or on a mantel
 
-[Buy from Amazon](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B09QLDPZMM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Department-56-Accessories-Pumpkintown-Multicolor/dp/B09QLDPZMM/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Halloween Tiered Tray](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/860481225/nightmare-beforeohalloween-tiered-trayo)
 
@@ -215,9 +215,9 @@ This tray is the ideal size to showcase on a table or countertop. The tray has d
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/860481225/nightmare-beforeohalloween-tiered-trayo)
 
-### [12\. Mummy Costume Figurine](https://www.amazon.com/Enesco-Traditions-6000952-Costume-Figurine/dp/B079MJ5JWV/?ie=UTF8&tag=avadalove-20)
+### [12\. Mummy Costume Figurine](https://www.amazon.com/Enesco-Traditions-6000952-Costume-Figurine/dp/B079MJ5JWV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Traditions-6000952-Costume-Figurine/dp/B079MJ5JWV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Traditions-6000952-Costume-Figurine/dp/B079MJ5JWV/?ie=UTF8&tag=giftable02-20)
 
 Add a unique touch to your Halloween decor with the Enesco Traditions Mummy Costume Figurine.
 
@@ -231,11 +231,11 @@ This figure is hand-painted and manufactured of premium resin, so it will surviv
 
 ✔️ Durable material means it can be enjoyed for many years to come
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Traditions-6000952-Costume-Figurine/dp/B079MJ5JWV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Traditions-6000952-Costume-Figurine/dp/B079MJ5JWV/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Halloween Tiered Tray Decor](https://www.amazon.com/Halloween-Decorations-Tiered-Farmhouse-Honorable/dp/B0B3MK2HPM/?ie=UTF8&tag=avadalove-20) 
+### [13\. Halloween Tiered Tray Decor](https://www.amazon.com/Halloween-Decorations-Tiered-Farmhouse-Honorable/dp/B0B3MK2HPM/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Halloween-Decorations-Tiered-Farmhouse-Honorable/dp/B0B3MK2HPM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Tiered-Farmhouse-Honorable/dp/B0B3MK2HPM/?ie=UTF8&tag=giftable02-20)
 
 Prepare to be mesmerized by the captivating charm of the Halloween Tiered Tray Decor, your go-to solution for showcasing your Halloween spirit with style and creativity.
 
@@ -249,11 +249,11 @@ This tiered tray provides a unique way to display decorations with a Halloween t
 
 ✔️ Easy arrangement and customization with the tiered design
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Tiered-Farmhouse-Honorable/dp/B0B3MK2HPM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Tiered-Farmhouse-Honorable/dp/B0B3MK2HPM/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Disney Village Halloween Accessories](https://www.amazon.com/Department-56-Halloween-Accessories-Multicolor/dp/B08THWK5FS/?ie=UTF8&tag=avadalove-20) 
+### [14\. Disney Village Halloween Accessories](https://www.amazon.com/Department-56-Halloween-Accessories-Multicolor/dp/B08THWK5FS/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Department-56-Halloween-Accessories-Multicolor/dp/B08THWK5FS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Department-56-Halloween-Accessories-Multicolor/dp/B08THWK5FS/?ie=UTF8&tag=giftable02-20)
 
 Open the magic of Halloween in your Disney-themed village with the captivating Disney Village Halloween Accessories, turning it into a whimsical and enchanting display.
 
@@ -267,7 +267,7 @@ These accessories offer many options for creating a magical Disney-themed Hallow
 
 ✔️ Meticulous craftsmanship and vibrant colors bring Disney magic to life
 
-[Buy from Amazon](https://www.amazon.com/Department-56-Halloween-Accessories-Multicolor/dp/B08THWK5FS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Department-56-Halloween-Accessories-Multicolor/dp/B08THWK5FS/?ie=UTF8&tag=giftable02-20)
 
 ### [15\.  Halloween Pumpkin](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1267196477/disney-halloween-tiered-tray-decor)
 
@@ -287,9 +287,9 @@ This tier tray is the ideal size to showcase on a table or countertop at 16 inch
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1267196477/disney-halloween-tiered-tray-decor)
 
-### [16\. Garden Flags Set](https://www.amazon.com/BOUMUSOE-Seasonal-Cartoon-Holiday-Outside/dp/B0BVBH8353/?ie=UTF8&tag=avadalove-20)
+### [16\. Garden Flags Set](https://www.amazon.com/BOUMUSOE-Seasonal-Cartoon-Holiday-Outside/dp/B0BVBH8353/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BOUMUSOE-Seasonal-Cartoon-Holiday-Outside/dp/B0BVBH8353/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BOUMUSOE-Seasonal-Cartoon-Holiday-Outside/dp/B0BVBH8353/?ie=UTF8&tag=giftable02-20)
 
 Need a simple yet effective way to spruce up your outdoor decor? The BOUMUSOE Garden Flags Set has got you covered.
 
@@ -303,11 +303,11 @@ Each of the 12 flags in this set, which measures 12.5 x 18 inches, represents a 
 
 ✔️ Durable construction means you can enjoy it for many seasons to come
 
-[Buy from Amazon](https://www.amazon.com/BOUMUSOE-Seasonal-Cartoon-Holiday-Outside/dp/B0BVBH8353/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BOUMUSOE-Seasonal-Cartoon-Holiday-Outside/dp/B0BVBH8353/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Hanging Wood Measuring Sign](https://www.amazon.com/Open-Road-Brands-Hanging-Measuring/dp/B0BF164ZXG/?ie=UTF8&tag=avadalove-20)
+### [17\. Hanging Wood Measuring Sign](https://www.amazon.com/Open-Road-Brands-Hanging-Measuring/dp/B0BF164ZXG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Hanging-Measuring/dp/B0BF164ZXG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Hanging-Measuring/dp/B0BF164ZXG/?ie=UTF8&tag=giftable02-20)
 
 Infuse your home decor with a touch of rustic elegance using the eye-catching Hanging Wood Measuring Sign, the ultimate accessory for style and practicality.
 
@@ -321,11 +321,11 @@ Hang it in your craft room, kitchen, or workshop to display its usefulness. Use 
 
 ✔️ Functional tool for measuring ingredients or DIY projects
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Hanging-Measuring/dp/B0BF164ZXG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Hanging-Measuring/dp/B0BF164ZXG/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Snow Village Halloween Disney](https://www.amazon.com/Department-Village-Halloween-Hitchhikers-Figurine/dp/B08WWYPB71/?ie=UTF8&tag=avadalove-20)
+### [18\. Snow Village Halloween Disney](https://www.amazon.com/Department-Village-Halloween-Hitchhikers-Figurine/dp/B08WWYPB71/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Department-Village-Halloween-Hitchhikers-Figurine/dp/B08WWYPB71/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Department-Village-Halloween-Hitchhikers-Figurine/dp/B08WWYPB71/?ie=UTF8&tag=giftable02-20)
 
 Unlock the door to a world of Halloween enchantment with the mesmerizing Snow Village Halloween Disney collection, where every piece tells a unique story.
 
@@ -339,7 +339,7 @@ The scenario comes to life because to the meticulous attention to detail and the
 
 ✔️ Meticulously crafted with attention to detail
 
-[Buy from Amazon](https://www.amazon.com/Department-Village-Halloween-Hitchhikers-Figurine/dp/B08WWYPB71/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Department-Village-Halloween-Hitchhikers-Figurine/dp/B08WWYPB71/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. LED Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1491290305/nightmare-before-christmas-jack-sally)
 
@@ -359,9 +359,9 @@ This candle, which is 8 inches tall and made of high-quality materials, is ideal
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1491290305/nightmare-before-christmas-jack-sally)
 
-### [20\. Halloween Pumpkin Figurine](https://www.amazon.com/Enesco-Traditions-Halloween-Pumpkin-Figurine/dp/B08V8VDKV5/?ie=UTF8&tag=avadalove-20)
+### [20\. Halloween Pumpkin Figurine](https://www.amazon.com/Enesco-Traditions-Halloween-Pumpkin-Figurine/dp/B08V8VDKV5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Traditions-Halloween-Pumpkin-Figurine/dp/B08V8VDKV5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Traditions-Halloween-Pumpkin-Figurine/dp/B08V8VDKV5/?ie=UTF8&tag=giftable02-20)
 
 The Halloween Pumpkin Figurine from Enesco Traditions is the ideal choice for those seeking a visually captivating addition to their Halloween decorations.
 
@@ -375,11 +375,11 @@ The LED light function produces a cozy and friendly atmosphere that is ideal for
 
 ✔️ LED light feature creates a warm and welcoming ambiance
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Traditions-Halloween-Pumpkin-Figurine/dp/B08V8VDKV5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Traditions-Halloween-Pumpkin-Figurine/dp/B08V8VDKV5/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Cutie Mickey Mouse Disney](https://www.amazon.com/Gemmy-Airblown-Mickey-Disney-Orange/dp/B08X258CVV/?ie=UTF8&tag=avadalove-20)
+### [21\. Cutie Mickey Mouse Disney](https://www.amazon.com/Gemmy-Airblown-Mickey-Disney-Orange/dp/B08X258CVV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gemmy-Airblown-Mickey-Disney-Orange/dp/B08X258CVV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gemmy-Airblown-Mickey-Disney-Orange/dp/B08X258CVV/?ie=UTF8&tag=giftable02-20)
 
 Capture the essence of Disney in your home decor with the captivating Cutie Mickey Mouse Disney decoration.
 
@@ -393,7 +393,7 @@ It featured Mickey Mouse in a lovely and fun position and was expertly made with
 
 ✔️ Adorable and instantly recognizable Disney character
 
-[Buy from Amazon](https://www.amazon.com/Gemmy-Airblown-Mickey-Disney-Orange/dp/B08X258CVV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gemmy-Airblown-Mickey-Disney-Orange/dp/B08X258CVV/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Candy Corn Illuminated](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/851941748/candy-corn-illuminated-home-decor) 
 
@@ -413,9 +413,9 @@ Its intriguing design, which was created with extreme care and attention to deta
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/851941748/candy-corn-illuminated-home-decor)
 
-### [23\. Metal Wall Decor](https://www.amazon.com/Open-Road-Brands-Disney-Characters/dp/B0B9TZ7NJ8/?ie=UTF8&tag=avadalove-20)
+### [23\. Metal Wall Decor](https://www.amazon.com/Open-Road-Brands-Disney-Characters/dp/B0B9TZ7NJ8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Disney-Characters/dp/B0B9TZ7NJ8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Disney-Characters/dp/B0B9TZ7NJ8/?ie=UTF8&tag=giftable02-20)
 
 Make your outdoor decor the talk of the neighborhood with this must-have Gemmy Airblown Inflatable Mickey Mouse Decoration!
 
@@ -429,11 +429,11 @@ This hanging ornament has a substantial size, spanning 42 by 32 inches. It is la
 
 ✔️ High-quality construction guarantees longevity
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Disney-Characters/dp/B0B9TZ7NJ8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Disney-Characters/dp/B0B9TZ7NJ8/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Hanging Disney Mickey Mouse](https://www.amazon.com/Gemmy-Airblown-Inflatable-Hanging-Decoration/dp/B07WN1RB94/?ie=UTF8&tag=avadalove-20)
+### [24\. Hanging Disney Mickey Mouse](https://www.amazon.com/Gemmy-Airblown-Inflatable-Hanging-Decoration/dp/B07WN1RB94/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gemmy-Airblown-Inflatable-Hanging-Decoration/dp/B07WN1RB94/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gemmy-Airblown-Inflatable-Hanging-Decoration/dp/B07WN1RB94/?ie=UTF8&tag=giftable02-20)
 
 Bring your favorite Disney characters to life on your walls with the Open Road Brands Disney Characters Metal Wall Decor - a must-have for any Disney enthusiast!
 
@@ -447,11 +447,11 @@ The usage of metal assures the product's toughness and lifetime. Furthermore, th
 
 ✔️ Brings the magic of Disney to your walls
 
-[Buy from Amazon](https://www.amazon.com/Gemmy-Airblown-Inflatable-Hanging-Decoration/dp/B07WN1RB94/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gemmy-Airblown-Inflatable-Hanging-Decoration/dp/B07WN1RB94/?ie=UTF8&tag=giftable02-20)
 
-### [25\.  Halloween Garden Flag](https://www.amazon.com/CROWNED-BEAUTY-Halloween-Sanderson-Farmhouse/dp/B09832J4SC/?ie=UTF8&tag=avadalove-20)
+### [25\.  Halloween Garden Flag](https://www.amazon.com/CROWNED-BEAUTY-Halloween-Sanderson-Farmhouse/dp/B09832J4SC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CROWNED-BEAUTY-Halloween-Sanderson-Farmhouse/dp/B09832J4SC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CROWNED-BEAUTY-Halloween-Sanderson-Farmhouse/dp/B09832J4SC/?ie=UTF8&tag=giftable02-20)
 
 Create a whimsical and spooky atmosphere in your garden with the captivating Halloween Garden Flag by Crowned Beauty.
 
@@ -465,11 +465,11 @@ The double-sided printing assures visibility from all sides and gives your yard 
 
 ✔️ Easy to install and display, transforming your outdoor space
 
-[Buy from Amazon](https://www.amazon.com/CROWNED-BEAUTY-Halloween-Sanderson-Farmhouse/dp/B09832J4SC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CROWNED-BEAUTY-Halloween-Sanderson-Farmhouse/dp/B09832J4SC/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Buccaneer Figurine](https://www.amazon.com/Enesco-Disney-Traditions-Pirate-Figurine/dp/B08V92BCTB/?ie=UTF8&tag=avadalove-20)
+### [26\. Buccaneer Figurine](https://www.amazon.com/Enesco-Disney-Traditions-Pirate-Figurine/dp/B08V92BCTB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enesco-Disney-Traditions-Pirate-Figurine/dp/B08V92BCTB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enesco-Disney-Traditions-Pirate-Figurine/dp/B08V92BCTB/?ie=UTF8&tag=giftable02-20)
 
 Experience the thrill of the high seas with the captivating Buccaneer Figurine by Enesco as your guide.
 
@@ -483,7 +483,7 @@ The statue comes to life because to the fine craftsmanship and hand-painted deta
 
 ✔️ Makes for a wonderful gift for Disney and pirate enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Enesco-Disney-Traditions-Pirate-Figurine/dp/B08V92BCTB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enesco-Disney-Traditions-Pirate-Figurine/dp/B08V92BCTB/?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Candy Dish Planter Pot Succulent](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/714871242/mickey-mouse-disney-inspired-halloween) 
 
@@ -503,9 +503,9 @@ Its top-notch workmanship guarantees that it will survive for many years, and it
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/714871242/mickey-mouse-disney-inspired-halloween)
 
-### [28\. Welcome Sign](https://www.amazon.com/Halloween-Decorations-Pumpkin-Welcome-Decorative/dp/B09C329SYV/?ie=UTF8&tag=avadalove-20)
+### [28\. Welcome Sign](https://www.amazon.com/Halloween-Decorations-Pumpkin-Welcome-Decorative/dp/B09C329SYV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Pumpkin-Welcome-Decorative/dp/B09C329SYV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Pumpkin-Welcome-Decorative/dp/B09C329SYV/?ie=UTF8&tag=giftable02-20)
 
 Enhance your seasonal décor and create a warm welcome for your guests this Halloween with this Halloween Welcome Sign, the perfect decoration!
 
@@ -519,11 +519,11 @@ This Halloween Welcome Sign, which is 12 inches in diameter and crafted of premi
 
 ✔️ Weather-resistant
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Pumpkin-Welcome-Decorative/dp/B09C329SYV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Pumpkin-Welcome-Decorative/dp/B09C329SYV/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Wood Door Hanger](https://www.amazon.com/Open-Road-Brands-Double-Sided-Reversible/dp/B0B7XVWGLR/?ie=UTF8&tag=avadalove-20)
+### [29\. Wood Door Hanger](https://www.amazon.com/Open-Road-Brands-Double-Sided-Reversible/dp/B0B7XVWGLR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Open-Road-Brands-Double-Sided-Reversible/dp/B0B7XVWGLR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Open-Road-Brands-Double-Sided-Reversible/dp/B0B7XVWGLR/?ie=UTF8&tag=giftable02-20)
 
 Welcome guests in style with the charming Wood Door Hanger by Open Road Brands, an attention-grabbing addition to your home's entryway.
 
@@ -537,11 +537,11 @@ It is made of high-quality wood and oozes toughness and rustic charm. It can be 
 
 ✔️ Reversible design offers versatility
 
-[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Double-Sided-Reversible/dp/B0B7XVWGLR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Open-Road-Brands-Double-Sided-Reversible/dp/B0B7XVWGLR/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Burton’s The Nightmare](https://www.amazon.com/Hallmark-Nightmare-Christmas-Skellington-Miniature/dp/B09YT7SDWB/?ie=UTF8&tag=avadalove-20) 
+### [30\. Burton’s The Nightmare](https://www.amazon.com/Hallmark-Nightmare-Christmas-Skellington-Miniature/dp/B09YT7SDWB/?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Hallmark-Nightmare-Christmas-Skellington-Miniature/dp/B09YT7SDWB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hallmark-Nightmare-Christmas-Skellington-Miniature/dp/B09YT7SDWB/?ie=UTF8&tag=giftable02-20)
 
 Surrender to the allure of Burton's The Nightmare with the captivating Burton's The Nightmare Miniature by Hallmark, where fantasy and darkness intertwine in perfect harmony.
 
@@ -555,7 +555,7 @@ It perfectly reflects the essence of Tim Burton's inventive universe thanks to g
 
 ✔️ Perfect collectible or gift for fans of the movie
 
-[Buy from Amazon](https://www.amazon.com/Hallmark-Nightmare-Christmas-Skellington-Miniature/dp/B09YT7SDWB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hallmark-Nightmare-Christmas-Skellington-Miniature/dp/B09YT7SDWB/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Haunted Mansion Lantern](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1080003245/haunted-mansion-lantern)
 
@@ -575,9 +575,9 @@ The lantern is down to the delicate metalwork and realistic illumination appeara
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1080003245/haunted-mansion-lantern)
 
-### [32\. Halloween Mouse Decorations](https://www.amazon.com/Halloween-Decorations-Cutouts-Centerpiece-Ornaments/dp/B09BFP9R3F/?ie=UTF8&tag=avadalove-20)
+### [32\. Halloween Mouse Decorations](https://www.amazon.com/Halloween-Decorations-Cutouts-Centerpiece-Ornaments/dp/B09BFP9R3F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Cutouts-Centerpiece-Ornaments/dp/B09BFP9R3F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Cutouts-Centerpiece-Ornaments/dp/B09BFP9R3F/?ie=UTF8&tag=giftable02-20)
 
 These Halloween Mouse Decorations are the perfect way to make your home look different from all the other Halloween decorations out there.
 
@@ -591,11 +591,11 @@ They are the ideal size for tabletop displays or hanging from your Halloween tre
 
 ✔️ Versatile use as centerpieces or ornaments
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Cutouts-Centerpiece-Ornaments/dp/B09BFP9R3F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Cutouts-Centerpiece-Ornaments/dp/B09BFP9R3F/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Pumpkin Giant Disney](https://www.amazon.com/Lightshow-Airblown-Micro-Lights-Jack-Skellington-Pumpkin-Giant-Disney/dp/B09M1GFV1Y/?ie=UTF8&tag=avadalove-20)
+### [33\. Pumpkin Giant Disney](https://www.amazon.com/Lightshow-Airblown-Micro-Lights-Jack-Skellington-Pumpkin-Giant-Disney/dp/B09M1GFV1Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lightshow-Airblown-Micro-Lights-Jack-Skellington-Pumpkin-Giant-Disney/dp/B09M1GFV1Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lightshow-Airblown-Micro-Lights-Jack-Skellington-Pumpkin-Giant-Disney/dp/B09M1GFV1Y/?ie=UTF8&tag=giftable02-20)
 
 Ignite the Halloween spirit and make a lasting impression with the captivating Pumpkin Giant Disney, the ultimate centerpiece for a memorable celebration.
 
@@ -609,7 +609,7 @@ It has an enormous Jack Skellington design that is lighted with captivating tiny
 
 ✔️ Easy setup with Airblown technology
 
-[Buy from Amazon](https://www.amazon.com/Lightshow-Airblown-Micro-Lights-Jack-Skellington-Pumpkin-Giant-Disney/dp/B09M1GFV1Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lightshow-Airblown-Micro-Lights-Jack-Skellington-Pumpkin-Giant-Disney/dp/B09M1GFV1Y/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Pumpkin Tiered Tray Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1060405273/mini-hello-pumpkin-tiered-tray-sign-with) 
 
