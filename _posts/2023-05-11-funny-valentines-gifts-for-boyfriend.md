@@ -7,7 +7,7 @@ permalink: "/funny-valentines-gifts-for-boyfriend/"
 categories: Occasions Valentine
 tags: funny boyfriend
 image: 
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_funny valentines gifts for boyfriend (1).jpg"
     alt: "Best Funny Valentine’s Gifts for Boyfriend that’ll Make Him Smile"                                 
 ---    
 

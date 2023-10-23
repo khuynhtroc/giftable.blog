@@ -7,7 +7,7 @@ permalink: "/funny-valentines-gifts/"
 categories: Occasions Valentine
 tags: funny surprise
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_funny valentines gifts (1).jpg"
     alt: "Best Funny Valentine’s Gifts That Will Surprise Them"                                  
 ---    
 
