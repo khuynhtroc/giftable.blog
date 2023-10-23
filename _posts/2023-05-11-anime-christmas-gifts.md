@@ -19,8 +19,6 @@ For those who wish to infuse their living spaces with anime charm, consider anim
 
 This Christmas, let the magic of anime bring joy and excitement to your loved ones, granting them the opportunity to immerse themselves in this captivating culture from the comfort of their own homes.
 
-**Related collection:** Best **[Naruto Gifts](/naruto-gifts/)** For All The Fans of The Young Shinobi
-
 ### [1\. Anime Gift T-Shirt](https://www.amazon.com/Paused-Anime-Otaku-Gift-T-Shirt/dp/B08QWYT6PZ?ie=UTF8&tag=giftable02-20)
 
 [](https://www.amazon.com/Paused-Anime-Otaku-Gift-T-Shirt/dp/B08QWYT6PZ?ie=UTF8&tag=giftable02-20)
