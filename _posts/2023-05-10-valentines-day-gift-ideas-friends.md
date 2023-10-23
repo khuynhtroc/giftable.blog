@@ -7,7 +7,7 @@ permalink: "/valentines-day-gift-ideas-friends/"
 categories: Occasions Valentine
 tags: friends love
 image:
-    path:
+    path: 
     alt: "Valentine’s Day Gift Ideas For Friends They Will Love"                                
 ---    
 
