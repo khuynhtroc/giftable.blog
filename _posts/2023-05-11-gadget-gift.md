@@ -7,7 +7,7 @@ permalink: "/gadget-gift/"
 categories: Recipients Anyone
 tags: gadget tech-head
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_gadget gifts (1).jpg"
     alt: "Best Gadget Gift For Every Tech-Head In Your Life"                                 
 ---    
 
