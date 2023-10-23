@@ -5,7 +5,7 @@ date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/gifts-8-month-old/"
 categories: [Recipients, Kids & Teens]
-tags: [8-Months-Old, Happy]
+tags: 8-months-old, happy
 image:
     path: "/assets/img/post/2023/09/copied/medium_gifts for 8 months old.jpg"
     alt: "Best Gifts For 8 Months Old Will Make Them Feel Happy"                                
