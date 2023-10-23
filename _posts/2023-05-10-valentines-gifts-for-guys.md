@@ -7,7 +7,7 @@ permalink: "/valentines-gifts-for-guys/"
 categories: Occasions Valentine
 tags: guys cherish
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Valentines Ideas For Guys (1).jpg"
     alt: "Best Valentines Gifts Ideas For Guys That He’ll Cherish Forever"                                 
 ---    
 
