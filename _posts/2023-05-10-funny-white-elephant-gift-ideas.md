@@ -5,7 +5,7 @@ date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/funny-white-elephant-gift-ideas/"
 categories: [Interests, Animal Lovers]
-tags: elephant elephant
+tags: white elephant
 image:
     path: "/assets/img/post/2023/09/copied/medium_funny white elephant gift ideas.jpg"
     alt: "Funny White Elephant Gift Ideas That Are Memorable"                                
