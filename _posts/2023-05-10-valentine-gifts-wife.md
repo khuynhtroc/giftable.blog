@@ -7,7 +7,7 @@ permalink: "/valentine-gifts-wife/"
 categories: Occasions Valentine
 tags: wife romantic
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Valentine gifts for wife (1).jpg"
     alt: "Best Valentine’s Gifts For Wife To Show Your Romantic Love"                                 
 ---   
 
