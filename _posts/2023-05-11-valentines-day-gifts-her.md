@@ -113,9 +113,9 @@ Make her say you're adorable with this pair of drinking glasses. The cup is made
 
 [Buy from Loveable](https://loveable.ai/products/custom-couple-mug-3-styles-personalized-white-mug-set-gifts-for-valentines-day-anniversaries-birthdays-special-occasions-209ihpthmu124?variant=43807862096104?utm_source=avada&ranking=&utm_source=&utm_campaign=best-non-cheesy-valentines-day-gifts-for-her-she-will-love)
 
-### [7\. Loving Elephant Couple Figurine](https://www.amazon.com/Elephant-Figurine-Decorative-Anniversary-Girlfriend/dp/B077V1173H/?ie=UTF8&tag=avadalove-20)
+### [7\. Loving Elephant Couple Figurine](https://www.amazon.com/Elephant-Figurine-Decorative-Anniversary-Girlfriend/dp/B077V1173H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Elephant-Figurine-Decorative-Anniversary-Girlfriend/dp/B077V1173H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Elephant-Figurine-Decorative-Anniversary-Girlfriend/dp/B077V1173H/?ie=UTF8&tag=giftable02-20)
 
 If you are tired of gifts like clothes and shoes every day, try giving your partner this decorative gift. The gift is playfully designed with a pair of sheep shyly sharing a kiss with their graceful trunks coming together into heart-shaped form. In the middle, they hold a wooden board with the message "Together Forever." Surely he will feel you are very lovely with this meaningful gift.
 
@@ -127,7 +127,7 @@ If you are tired of gifts like clothes and shoes every day, try giving your part
 
 ✔️ Make your girlfriend happy
 
-[Buy from Amazon](https://www.amazon.com/Elephant-Figurine-Decorative-Anniversary-Girlfriend/dp/B077V1173H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Elephant-Figurine-Decorative-Anniversary-Girlfriend/dp/B077V1173H/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Reasons Why I Love You Scrapbook](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/927727686/reasons-why-i-love-you-valentines-day)
 
@@ -545,9 +545,9 @@ You can fill the empty wall in her room with your own love through this canvas/p
 
 [Buy from Loveable](https://loveable.ai/products/song-custom-record-with-lyrics-song-lyrics-upload-photo-vinyl-record-art-square-canvas-gift-for-wedding-gift-for-wife-husband-girlfriend-boyfriend-on-valentines-day-anniversary-birthday-209ihpthca166?variant=43819272831208?utm_source=avada&ranking=&utm_source=&utm_campaign=best-non-cheesy-valentines-day-gifts-for-her-she-will-love)
 
-### [34\. Bottle Key With Romantic Message](https://www.amazon.com/Romantic-Decorative-Boyfriend-Girlfriend-Anniversary/dp/B089FNWS79/?ie=UTF8&tag=avadalove-20)
+### [34\. Bottle Key With Romantic Message](https://www.amazon.com/Romantic-Decorative-Boyfriend-Girlfriend-Anniversary/dp/B089FNWS79/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Romantic-Decorative-Boyfriend-Girlfriend-Anniversary/dp/B089FNWS79/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Romantic-Decorative-Boyfriend-Girlfriend-Anniversary/dp/B089FNWS79/?ie=UTF8&tag=giftable02-20)
 
 This is a cute but no less romantic gift on Valentine's Day for that person. A glass jar with a key or heart inside with a customizable message card is sure to make her smile. You can choose pre-written messages or quote your own text. You also get to choose beautifully decorated packaging for your gift!
 
@@ -559,7 +559,7 @@ This is a cute but no less romantic gift on Valentine's Day for that person. A g
 
 ✔️ Suitable price for everyone
 
-[Buy from Amazon](https://www.amazon.com/Romantic-Decorative-Boyfriend-Girlfriend-Anniversary/dp/B089FNWS79/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Romantic-Decorative-Boyfriend-Girlfriend-Anniversary/dp/B089FNWS79/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. 10 Reasons Why I Love You](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/760304518/10-reasons-why-i-love-you-personalised)
 

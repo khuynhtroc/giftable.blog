@@ -271,9 +271,9 @@ It is a stunning work of art for your house made of solid, high-quality beechwoo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1191764120/miscarriage-baby-cremation-urn-wooden)
 
-### [15\. Memorial Photo Frame Gift](https://www.amazon.com/Goodness-Miscarriage-Picture-Frame-Gift/dp/B0927PWDPD?ie=UTF8&tag=avadalove-20)
+### [15\. Memorial Photo Frame Gift](https://www.amazon.com/Goodness-Miscarriage-Picture-Frame-Gift/dp/B0927PWDPD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Goodness-Miscarriage-Picture-Frame-Gift/dp/B0927PWDPD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Goodness-Miscarriage-Picture-Frame-Gift/dp/B0927PWDPD?ie=UTF8&tag=giftable02-20)
 
 Every pregnant woman is concerned about miscarriage or fetal harm. What matters is that no mother can deal with the worst-case scenario. Demonstrating that you are always by his side will help a little.
 
@@ -289,7 +289,7 @@ This product, with its lovely packaging, may help bereaved mothers save their da
 
 ✔️ Blends sentimentality with elegant decor.
 
-[Buy from Amazon](https://www.amazon.com/Goodness-Miscarriage-Picture-Frame-Gift/dp/B0927PWDPD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Goodness-Miscarriage-Picture-Frame-Gift/dp/B0927PWDPD?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Printable Star Map](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/671609903/death-of-a-child-printable-star-map?g)
 
@@ -363,9 +363,9 @@ The item is made from 1/8" Baltic Birch to ensure consistent quality and is engr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/546646544/infant-loss-butterfly-memorial-ornament)
 
-### [20\. Memorial Necklace for Mommy](https://www.amazon.com/Necklace-Memorial-Pregnancy-Miscarriage-Stillborn/dp/B076MYWC79/?ie=UTF8&tag=avadalove-20)
+### [20\. Memorial Necklace for Mommy](https://www.amazon.com/Necklace-Memorial-Pregnancy-Miscarriage-Stillborn/dp/B076MYWC79/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Necklace-Memorial-Pregnancy-Miscarriage-Stillborn/dp/B076MYWC79/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Necklace-Memorial-Pregnancy-Miscarriage-Stillborn/dp/B076MYWC79/?ie=UTF8&tag=giftable02-20)
 
 This angel wing memorial necklace with the words "mommy of an angel" carved on the disc is a lovely gift for a loved one.
 
@@ -379,7 +379,7 @@ The chain measures approximately 50cm + 5cm extend cable chain, is made of stain
 
 ✔️ Expresses love and remembrance for mothers.
 
-[Buy from Amazon](https://www.amazon.com/Necklace-Memorial-Pregnancy-Miscarriage-Stillborn/dp/B076MYWC79/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Necklace-Memorial-Pregnancy-Miscarriage-Stillborn/dp/B076MYWC79/?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Infant Loss Memorial Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1002822944/miscarriage-stillbirth-infant-loss)
 
@@ -417,9 +417,9 @@ It has a natural fragrance of essential oils that gives it a calming, relaxing a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1104328641/fertility-wish-natural-soy-candle-gift)
 
-### [23\. “At A Loss” Paperback](https://www.amazon.com/At-Loss-Finding-Miscarriage-Stillbirth/dp/1733438602/r?ie=UTF8&tag=avadalove-20)
+### [23\. “At A Loss” Paperback](https://www.amazon.com/At-Loss-Finding-Miscarriage-Stillbirth/dp/1733438602/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/At-Loss-Finding-Miscarriage-Stillbirth/dp/1733438602/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/At-Loss-Finding-Miscarriage-Stillbirth/dp/1733438602/r?ie=UTF8&tag=giftable02-20)
 
 It is not your woman's fault if she has a miscarriage due to health risk or abnormality. Her life after this loss can be gut-wrenching, confusing, and lonely; however, your caring for her may help to mitigate her loss.
 
@@ -433,11 +433,11 @@ This paperback was written by a psychologist who had two miscarriages herself. A
 
 ✔️ Practical resource for navigating loss.
 
-[Buy from Amazon](https://www.amazon.com/At-Loss-Finding-Miscarriage-Stillbirth/dp/1733438602/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/At-Loss-Finding-Miscarriage-Stillbirth/dp/1733438602/r?ie=UTF8&tag=giftable02-20)
 
-### [24\. 4-Piece Remembrance Gift Set](https://www.amazon.com/Unique-Remembrance-Gift-Loss-Baby/dp/B07WP6NKNR/?ie=UTF8&tag=avadalove-20)
+### [24\. 4-Piece Remembrance Gift Set](https://www.amazon.com/Unique-Remembrance-Gift-Loss-Baby/dp/B07WP6NKNR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Unique-Remembrance-Gift-Loss-Baby/dp/B07WP6NKNR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Unique-Remembrance-Gift-Loss-Baby/dp/B07WP6NKNR/?ie=UTF8&tag=giftable02-20)
 
 If you're at a loss for words and don't know how to best support those you care about in the aftermath of a child's death, sending a gift should assist in relieving them.
 
@@ -451,11 +451,11 @@ This one-of-a-kind set includes four thoughtful gifts for infant loss: a 3oz Can
 
 ✔️ Thoughtful gesture to honor a loved one.
 
-[Buy from Amazon](https://www.amazon.com/Unique-Remembrance-Gift-Loss-Baby/dp/B07WP6NKNR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Unique-Remembrance-Gift-Loss-Baby/dp/B07WP6NKNR/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Thinking of You Scented Candle](https://www.amazon.com/Thinking-Bereavement-Condolence-Remembrance-Miscarriage/dp/B09T2239ML?ie=UTF8&tag=avadalove-20)
+### [25\. Thinking of You Scented Candle](https://www.amazon.com/Thinking-Bereavement-Condolence-Remembrance-Miscarriage/dp/B09T2239ML?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thinking-Bereavement-Condolence-Remembrance-Miscarriage/dp/B09T2239ML?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thinking-Bereavement-Condolence-Remembrance-Miscarriage/dp/B09T2239ML?ie=UTF8&tag=giftable02-20)
 
 When your loved one is in emotional turmoil after a miscarriage, she requires a pleasant atmosphere. Giving her a scented candle is a lovely way to comfort and uplift the one you appreciate.
 
@@ -469,11 +469,11 @@ Because it is a soy wax candle, the product is notably natural. That is why it i
 
 ✔️ Provides a calming atmosphere.
 
-[Buy from Amazon](https://www.amazon.com/Thinking-Bereavement-Condolence-Remembrance-Miscarriage/dp/B09T2239ML?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thinking-Bereavement-Condolence-Remembrance-Miscarriage/dp/B09T2239ML?ie=UTF8&tag=giftable02-20)
 
-### [26\. Miscarriage Necklace Angel Wings](https://www.amazon.com/Gzrlyf-Miscarriage-Necklace-Infinity-Pregnancy/dp/B07V2LWWWV/?ie=UTF8&tag=avadalove-20)
+### [26\. Miscarriage Necklace Angel Wings](https://www.amazon.com/Gzrlyf-Miscarriage-Necklace-Infinity-Pregnancy/dp/B07V2LWWWV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gzrlyf-Miscarriage-Necklace-Infinity-Pregnancy/dp/B07V2LWWWV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gzrlyf-Miscarriage-Necklace-Infinity-Pregnancy/dp/B07V2LWWWV/?ie=UTF8&tag=giftable02-20)
 
 No mother wants to recall her miscarriage, but she always keeps in mind her child. This gift is presumed to be an ideal suggestion for your cherished one.
 
@@ -487,11 +487,11 @@ The necklace is made of a lead and nickel-free stainless steel chain. The pendan
 
 ✔️ Expresses empathy and support visually.
 
-[Buy from Amazon](https://www.amazon.com/Gzrlyf-Miscarriage-Necklace-Infinity-Pregnancy/dp/B07V2LWWWV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gzrlyf-Miscarriage-Necklace-Infinity-Pregnancy/dp/B07V2LWWWV/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Joycuff Inspirational Bracelets](https://www.amazon.com/Joycuff-Memorial-Remembering-Sympathy-Miscarriage/dp/B085CHG42J/?ie=UTF8&tag=avadalove-20)
+### [27\. Joycuff Inspirational Bracelets](https://www.amazon.com/Joycuff-Memorial-Remembering-Sympathy-Miscarriage/dp/B085CHG42J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Joycuff-Memorial-Remembering-Sympathy-Miscarriage/dp/B085CHG42J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Joycuff-Memorial-Remembering-Sympathy-Miscarriage/dp/B085CHG42J/?ie=UTF8&tag=giftable02-20)
 
 A Joycuff bracelet is a great reminder to remember the one you love in your daily life, and it is an inspirational gift idea for your wife, sister, or friend.
 
@@ -505,11 +505,11 @@ The item is suitable for those who prefer a minimalist style while remaining att
 
 ✔️ Thoughtful gift for encouragement and support.
 
-[Buy from Amazon](https://www.amazon.com/Joycuff-Memorial-Remembering-Sympathy-Miscarriage/dp/B085CHG42J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Joycuff-Memorial-Remembering-Sympathy-Miscarriage/dp/B085CHG42J/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Miscarriage Grief Journal](https://www.amazon.com/Miscarriage-Grief-Journal-Journaling-Prompts/dp/1656260360/r?ie=UTF8&tag=avadalove-20)
+### [28\. Miscarriage Grief Journal](https://www.amazon.com/Miscarriage-Grief-Journal-Journaling-Prompts/dp/1656260360/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Miscarriage-Grief-Journal-Journaling-Prompts/dp/1656260360/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Miscarriage-Grief-Journal-Journaling-Prompts/dp/1656260360/r?ie=UTF8&tag=giftable02-20)
 
 The purpose of this journal is to help you deal with some of the conflicting feelings that accompany a baby's death.
 
@@ -525,11 +525,11 @@ This product cannot immediately remove your negative feelings; however, writing 
 
 ✔️ Helps process complex feelings after loss.
 
-[Buy from Amazon](https://www.amazon.com/Miscarriage-Grief-Journal-Journaling-Prompts/dp/1656260360/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Miscarriage-Grief-Journal-Journaling-Prompts/dp/1656260360/r?ie=UTF8&tag=giftable02-20)
 
-### [29\. “Here for You” Blanket](https://www.amazon.com/Here-You-Blanket-Encouragement-Caring/dp/B0848NF8MD/?ie=UTF8&tag=avadalove-20)
+### [29\. “Here for You” Blanket](https://www.amazon.com/Here-You-Blanket-Encouragement-Caring/dp/B0848NF8MD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Here-You-Blanket-Encouragement-Caring/dp/B0848NF8MD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Here-You-Blanket-Encouragement-Caring/dp/B0848NF8MD/?ie=UTF8&tag=giftable02-20)
 
 To express your affection and support for anyone struggling through a life challenge such as a miscarriage, illness, or loss of a loved one, a simple "here for you" message is all you require.
 
@@ -543,11 +543,11 @@ This high-quality blanket is recommended because of its durable, easy-care, and 
 
 ✔️ Thoughtful gesture during challenging times.
 
-[Buy from Amazon](https://www.amazon.com/Here-You-Blanket-Encouragement-Caring/dp/B0848NF8MD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Here-You-Blanket-Encouragement-Caring/dp/B0848NF8MD/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Remembrance Keychain](https://www.amazon.com/Sympathy-Memorial-Remembrance-Keychain-Miscarriage/dp/B08MVL4W63?ie=UTF8&tag=avadalove-20)
+### [30\. Remembrance Keychain](https://www.amazon.com/Sympathy-Memorial-Remembrance-Keychain-Miscarriage/dp/B08MVL4W63?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sympathy-Memorial-Remembrance-Keychain-Miscarriage/dp/B08MVL4W63?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sympathy-Memorial-Remembrance-Keychain-Miscarriage/dp/B08MVL4W63?ie=UTF8&tag=giftable02-20)
 
 Miscarriage is one of the most painful experiences a mother can have. This thoughtful keychain helps soothe her heart and reestablish emotional balance. The product is lightweight but very sturdy and durable. It won't be easy to change color or tarnish.
 
@@ -561,11 +561,11 @@ With this keychain, mothers will feel like their lost babies always accompany th
 
 ✔️ Thoughtful keepsake for remembrance.
 
-[Buy from Amazon](https://www.amazon.com/Sympathy-Memorial-Remembrance-Keychain-Miscarriage/dp/B08MVL4W63?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sympathy-Memorial-Remembrance-Keychain-Miscarriage/dp/B08MVL4W63?ie=UTF8&tag=giftable02-20)
 
-### [31\. Morse Code Bracelet](https://www.amazon.com/Bracelets-Miscarriage-Stainless-Memorial-Sympathy/dp/B0B253LF45/?ie=UTF8&tag=avadalove-20)
+### [31\. Morse Code Bracelet](https://www.amazon.com/Bracelets-Miscarriage-Stainless-Memorial-Sympathy/dp/B0B253LF45/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bracelets-Miscarriage-Stainless-Memorial-Sympathy/dp/B0B253LF45/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bracelets-Miscarriage-Stainless-Memorial-Sympathy/dp/B0B253LF45/?ie=UTF8&tag=giftable02-20)
 
 A special present for your mother, sister, or friend to convey a secret message will only you and her can know.
 
@@ -581,11 +581,11 @@ That this item is not only meaningful but also fashionable is the reason why you
 
 ✔️ Thoughtful keepsake for remembrance.
 
-[Buy from Amazon](https://www.amazon.com/Bracelets-Miscarriage-Stainless-Memorial-Sympathy/dp/B0B253LF45/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bracelets-Miscarriage-Stainless-Memorial-Sympathy/dp/B0B253LF45/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Set of 2 Loss Memorial Keychains](https://www.amazon.com/Memorial-Keychain-Keyring-Miscarriage-Keepsake/dp/B07W1HDXZG?ie=UTF8&tag=avadalove-20)
+### [32\. Set of 2 Loss Memorial Keychains](https://www.amazon.com/Memorial-Keychain-Keyring-Miscarriage-Keepsake/dp/B07W1HDXZG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Memorial-Keychain-Keyring-Miscarriage-Keepsake/dp/B07W1HDXZG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Memorial-Keychain-Keyring-Miscarriage-Keepsake/dp/B07W1HDXZG?ie=UTF8&tag=giftable02-20)
 
 For those who lost a baby, a set of two keychains reduces parents' worry about the lost baby and bring small comfort.
 
@@ -599,11 +599,11 @@ Being made of stainless steel, the item will not tarnish or rust, especially not
 
 ✔️ Thoughtful gift for mutual support.
 
-[Buy from Amazon](https://www.amazon.com/Memorial-Keychain-Keyring-Miscarriage-Keepsake/dp/B07W1HDXZG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Memorial-Keychain-Keyring-Miscarriage-Keepsake/dp/B07W1HDXZG?ie=UTF8&tag=giftable02-20)
 
-### [33\. Zodiac Necklace with Message Card](https://www.amazon.com/MUSTHAVE-Necklace-Message-Extender-Constellation/dp/B081HZT68K?ie=UTF8&tag=avadalove-20)
+### [33\. Zodiac Necklace with Message Card](https://www.amazon.com/MUSTHAVE-Necklace-Message-Extender-Constellation/dp/B081HZT68K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MUSTHAVE-Necklace-Message-Extender-Constellation/dp/B081HZT68K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MUSTHAVE-Necklace-Message-Extender-Constellation/dp/B081HZT68K?ie=UTF8&tag=giftable02-20)
 
 The necklace spotlights a Zodiac pendant suspended from an anchor chain and arranged on an uplifting special card.
 
@@ -617,11 +617,11 @@ This item is 16 inches long with a 2-inch extender to accommodate all neck sizes
 
 ✔️ Thoughtful and versatile gift option.
 
-[Buy from Amazon](https://www.amazon.com/MUSTHAVE-Necklace-Message-Extender-Constellation/dp/B081HZT68K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MUSTHAVE-Necklace-Message-Extender-Constellation/dp/B081HZT68K?ie=UTF8&tag=giftable02-20)
 
-### [34\. Angel Memorial Ring](https://www.amazon.com/Miscarriage-Pregnancy-Sterling-Memorial-Sympathy/dp/B091PVPY2K/?ie=UTF8&tag=avadalove-20)
+### [34\. Angel Memorial Ring](https://www.amazon.com/Miscarriage-Pregnancy-Sterling-Memorial-Sympathy/dp/B091PVPY2K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Miscarriage-Pregnancy-Sterling-Memorial-Sympathy/dp/B091PVPY2K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Miscarriage-Pregnancy-Sterling-Memorial-Sympathy/dp/B091PVPY2K/?ie=UTF8&tag=giftable02-20)
 
 It can be difficult to give sound advice during a miscarriage, but you can show your loved one that you care.
 
@@ -635,11 +635,11 @@ The Infant Loss rings are made of high-quality 925 sterling silver, which is nic
 
 ✔️ Thoughtful keepsake with sentimental value.
 
-[Buy from Amazon](https://www.amazon.com/Miscarriage-Pregnancy-Sterling-Memorial-Sympathy/dp/B091PVPY2K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Miscarriage-Pregnancy-Sterling-Memorial-Sympathy/dp/B091PVPY2K/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Cardinal Necklace and Soul Poem Card](https://www.amazon.com/Lola-Bella-Gifts-Spirit-Lala/dp/B07NHDY3XJ/?ie=UTF8&tag=avadalove-20)
+### [35\. Cardinal Necklace and Soul Poem Card](https://www.amazon.com/Lola-Bella-Gifts-Spirit-Lala/dp/B07NHDY3XJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lola-Bella-Gifts-Spirit-Lala/dp/B07NHDY3XJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lola-Bella-Gifts-Spirit-Lala/dp/B07NHDY3XJ/?ie=UTF8&tag=giftable02-20)
 
 This Cardinal Necklace with Soul Poem Card is an appropriate choice for those who are experiencing baby loss. The necklace features a reversible resin cardinal pendant on a stainless chain measuring 18" long.
 
@@ -653,7 +653,7 @@ A ray of light in a difficult time, the product reminds them that their babies a
 
 ✔️ Thoughtful gift for solace and reflection.
 
-[Buy from Amazon](https://www.amazon.com/Lola-Bella-Gifts-Spirit-Lala/dp/B07NHDY3XJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lola-Bella-Gifts-Spirit-Lala/dp/B07NHDY3XJ/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

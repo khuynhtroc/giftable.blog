@@ -459,9 +459,9 @@ It is made with high-quality materials and features a precise quartz movement, e
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.google.com/url?q=https://www.etsy.com/listing/692444346/the-anniversary-clock-royal-black-the?&sa=D&source=editors&ust=1674986471523040&usg=AOvVaw0jZYTnZBT_n7MvlVeZFi_g)
 
-### [25\. Anniversary Bracelets for couple](https://www.amazon.com/SOUSYOKYO-Anniversary-Bracelet-Couples-Valentines/dp/B0B5DC6L1L/?ie=UTF8&tag=avadalove-20)
+### [25\. Anniversary Bracelets for couple](https://www.amazon.com/SOUSYOKYO-Anniversary-Bracelet-Couples-Valentines/dp/B0B5DC6L1L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SOUSYOKYO-Anniversary-Bracelet-Couples-Valentines/dp/B0B5DC6L1L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SOUSYOKYO-Anniversary-Bracelet-Couples-Valentines/dp/B0B5DC6L1L/?ie=UTF8&tag=giftable02-20)
 
 The Anniversary Bracelets for couples are a beautiful and meaningful way to celebrate a special occasion.
 
@@ -475,7 +475,7 @@ The quality of the materials and craftsmanship is impressive and the engraving i
 
 ✔️ Beautiful and meaningful way to celebrate a special occasion
 
-[Buy from Amazon](https://www.amazon.com/SOUSYOKYO-Anniversary-Bracelet-Couples-Valentines/dp/B0B5DC6L1L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SOUSYOKYO-Anniversary-Bracelet-Couples-Valentines/dp/B0B5DC6L1L/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Wedding Anniversary Embossed Card](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1011643834/10th-tin-wedding-anniversary-embossed)
 
@@ -495,9 +495,9 @@ The card is well-crafted and the embossing adds a touch of luxury. It's an excel
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1011643834/10th-tin-wedding-anniversary-embossed)
 
-### [27\. The Kiss Aluminum Figurine Collectible Gift](https://www.amazon.com/JustPaperRoses-Anniversary-Aluminum-Figurine-Collectible/dp/B00JWUP6YE/?ie=UTF8&tag=avadalove-20)
+### [27\. The Kiss Aluminum Figurine Collectible Gift](https://www.amazon.com/JustPaperRoses-Anniversary-Aluminum-Figurine-Collectible/dp/B00JWUP6YE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JustPaperRoses-Anniversary-Aluminum-Figurine-Collectible/dp/B00JWUP6YE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JustPaperRoses-Anniversary-Aluminum-Figurine-Collectible/dp/B00JWUP6YE/?ie=UTF8&tag=giftable02-20)
 
 Kiss Wood Figurine - a symbol of love, metal - represents the strength of that love. A perfect combination of those two materials.
 
@@ -511,7 +511,7 @@ This charming sculpture is an enduring reminder of your love and is 8 inches tal
 
 ✔️ Add a special touch to any room décor
 
-[Buy from Amazon](https://www.amazon.com/JustPaperRoses-Anniversary-Aluminum-Figurine-Collectible/dp/B00JWUP6YE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JustPaperRoses-Anniversary-Aluminum-Figurine-Collectible/dp/B00JWUP6YE/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Custom Cutting Board](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/271705150/custom-cutting-board-grandmas-kitchen)
 
@@ -549,9 +549,9 @@ The glazes on these mugs are matte and hand applied; each will be slightly diffe
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/the-kissing-mugs)
 
-### [30\. 10th Anniversary Card with Envelope](https://www.amazon.com/gp/product/B08C4KGX7Q/?ie=UTF8&tag=avadalove-20)
+### [30\. 10th Anniversary Card with Envelope](https://www.amazon.com/gp/product/B08C4KGX7Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B08C4KGX7Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B08C4KGX7Q/?ie=UTF8&tag=giftable02-20)
 
 No need for complicated gifts, no need for expensive ones. Simply a card celebrating 10 years anniversary is enough to show how much beloved him/her is to you.
 
@@ -565,11 +565,11 @@ Receiving 1 greeting card with a 5x7 envelope is enough to speak out loud about 
 
 ✔️ Make your anniversary never be faded
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B08C4KGX7Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B08C4KGX7Q/?ie=UTF8&tag=giftable02-20)
 
-### [31\. I Love You Soundwave Art](https://www.amazon.com/gp/product/B07351BQ46?ie=UTF8&tag=avadalove-20)
+### [31\. I Love You Soundwave Art](https://www.amazon.com/gp/product/B07351BQ46?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B07351BQ46?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B07351BQ46?ie=UTF8&tag=giftable02-20)
 
 "I love you" - three simple words but somehow it is really hard to say that out loud. Don't worry!
 
@@ -583,11 +583,11 @@ Printed on bronze color metallic paper. This item is small, the frame size is 4.
 
 ✔️ Easy to customize with QR code
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B07351BQ46?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B07351BQ46?ie=UTF8&tag=giftable02-20)
 
-### [32\. Kissing Mugs Set, Crafted Two Large Cups & Spoons for Couples](https://www.amazon.com/gp/product/B01MSWMUG8?ie=UTF8&tag=avadalove-20)
+### [32\. Kissing Mugs Set, Crafted Two Large Cups & Spoons for Couples](https://www.amazon.com/gp/product/B01MSWMUG8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B01MSWMUG8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B01MSWMUG8?ie=UTF8&tag=giftable02-20)
 
 The Kissing Mugs Set, made comprised of two big cups and spoons made especially for couples, has a number of advantages that improve shared experiences and inject a little passion into routine activities.
 
@@ -601,11 +601,11 @@ This uniquely romantic product is designed flawlessly to fit each other's contou
 
 ✔️ Crafted to perfectly complement the mugs
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B01MSWMUG8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B01MSWMUG8?ie=UTF8&tag=giftable02-20)
 
-### [33\. Happy Anniversary Couples Game](https://www.amazon.com/gp/product/B08NK5XYJ1/?ie=UTF8&tag=avadalove-20)
+### [33\. Happy Anniversary Couples Game](https://www.amazon.com/gp/product/B08NK5XYJ1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B08NK5XYJ1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B08NK5XYJ1/?ie=UTF8&tag=giftable02-20)
 
 Remembers why you are together, and offers you over 100 insightful questions on topics you haven’t thought about or talked about in a long time.
 
@@ -619,11 +619,11 @@ While strengthening your relationship, we guarantee you funny moments and wonder
 
 ✔️ Focuse on insightful topics
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B08NK5XYJ1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B08NK5XYJ1/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Anniversary Decorations Party Supplies Centerpiece Card Gift](https://www.amazon.com/gp/product/B089BZ32QV?ie=UTF8&tag=avadalove-20)
+### [34\. Anniversary Decorations Party Supplies Centerpiece Card Gift](https://www.amazon.com/gp/product/B089BZ32QV?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B089BZ32QV?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B089BZ32QV?ie=UTF8&tag=giftable02-20)
 
 When speeches are hard to say, let the words speak for you. You have many things, many words of love for the one who you love but cannot express by your own speeches. This poster is the perfect conversation piece for any room!
 
@@ -637,11 +637,11 @@ Professionally printed to fit in any 11x17 inch frame. Not only you but your gue
 
 ✔️ A Professionally Printed and Frame-Friendly
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B089BZ32QV?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B089BZ32QV?ie=UTF8&tag=giftable02-20)
 
-### [35\. 10 Years Anniversary Desk Clock](https://www.amazon.com/3dRose-Wedding-Celebrating-Years-Together/dp/B00E69FGRI?ie=UTF8&tag=avadalove-20)
+### [35\. 10 Years Anniversary Desk Clock](https://www.amazon.com/3dRose-Wedding-Celebrating-Years-Together/dp/B00E69FGRI?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/3dRose-Wedding-Celebrating-Years-Together/dp/B00E69FGRI?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/3dRose-Wedding-Celebrating-Years-Together/dp/B00E69FGRI?ie=UTF8&tag=giftable02-20)
 
 In the blink of an eye, 10 years have passed, and the feelings of both of you are as strong and durable as the aluminum which makes this clock.
 
@@ -655,7 +655,7 @@ This desk clock is made to survive the test of time because it is made of scratc
 
 ✔️ Suitable for moist environments
 
-[Buy from Amazon](https://www.amazon.com/3dRose-Wedding-Celebrating-Years-Together/dp/B00E69FGRI?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/3dRose-Wedding-Celebrating-Years-Together/dp/B00E69FGRI?ie=UTF8&tag=giftable02-20)
 
 ### [36\. Wooden Docking Station](https://loveable.ai/products/wooden-docking-stationperfect-gift-for-husband-and-dadmen-birthday-giftdock-stationwooden-organizeranniversarydayunique-christmas-gift-305ihpnpds514?variant=44484683596008?utm_source=avada&ranking=&utm_source=&utm_campaign=traditional-10-year-anniversary-gifts-for-wife)
 

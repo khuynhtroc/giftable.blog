@@ -509,9 +509,9 @@ Our fleece blanket appears a superior choice for a gift, and you will be surpris
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/873066283/netflix-blanket-great-gift-please-read)
 
-### [28\. Customized Netflix Ornament](https://www.amazon.com/Personalized-Movie-Night-Christmas-Ornament/dp/B07QVN4H6M/?ie=UTF8&tag=avadalove-20)
+### [28\. Customized Netflix Ornament](https://www.amazon.com/Personalized-Movie-Night-Christmas-Ornament/dp/B07QVN4H6M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Movie-Night-Christmas-Ornament/dp/B07QVN4H6M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Movie-Night-Christmas-Ornament/dp/B07QVN4H6M/?ie=UTF8&tag=giftable02-20)
 
 A small and lovely ornament will make the watching space more impressive, especially when it comes to your Netflix interest.
 
@@ -525,11 +525,11 @@ You can also write your name, your love's name, and the name of his/her favorite
 
 ✔️ Gift box available
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Movie-Night-Christmas-Ornament/dp/B07QVN4H6M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Movie-Night-Christmas-Ornament/dp/B07QVN4H6M/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Netflix Ice Cream Spoon](https://www.amazon.com/Netflix-Ice-Cream-Spoon-Stainless/dp/B07Z1QTG4K/?ie=UTF8&tag=avadalove-20)
+### [29\. Netflix Ice Cream Spoon](https://www.amazon.com/Netflix-Ice-Cream-Spoon-Stainless/dp/B07Z1QTG4K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Netflix-Ice-Cream-Spoon-Stainless/dp/B07Z1QTG4K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Netflix-Ice-Cream-Spoon-Stainless/dp/B07Z1QTG4K/?ie=UTF8&tag=giftable02-20)
 
 A stainless **[ice cream](/gifts-ice-cream-lovers/)** spoon for Netflix fans is a good choice for the Ice Cream Party.
 
@@ -543,7 +543,7 @@ Everyone will surprise by how special it is, and the person who owns this spoon 
 
 ✔️ Specialized for Netflix lovers
 
-[Buy from Amazon](https://www.amazon.com/Netflix-Ice-Cream-Spoon-Stainless/dp/B07Z1QTG4K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Netflix-Ice-Cream-Spoon-Stainless/dp/B07Z1QTG4K/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Netflix Watching Blanket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1057292577/this-is-my-netflix-watching-blanket-soft)
 

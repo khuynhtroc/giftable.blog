@@ -413,9 +413,9 @@ With its distinctive, modern boho style, it is an eye-catching accent piece that
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/725956634/moon-phase-wall-hanging-moon-decor-13)
 
-### [23\. Galaxy Pendant Necklace](https://www.amazon.co.uk/Galaxy-Pendant-Necklace-Rainbow-Jewellery/dp/B01N902E1H?ie=UTF8&tag=avadalove-20)
+### [23\. Galaxy Pendant Necklace](https://www.amazon.co.uk/Galaxy-Pendant-Necklace-Rainbow-Jewellery/dp/B01N902E1H?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Galaxy-Pendant-Necklace-Rainbow-Jewellery/dp/B01N902E1H?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Galaxy-Pendant-Necklace-Rainbow-Jewellery/dp/B01N902E1H?ie=UTF8&tag=giftable02-20)
 
 Give her this stylish pendant necklace by Galaxy and you'll ensure she'll never go anywhere without her special glow. Your new gal will love the moon necklace from Galaxy Gifts. Its intricate gold plating is expertly designed to look like the moon, and it includes a lovely little pendant, making it a super romantic gift for her.
 
@@ -429,7 +429,7 @@ She'll adore wearing it for any occasion – from moonlit nights out to dinner w
 
 ✔️ Thoughtful gift for space admirers.
 
-[Buy from Amazon](https://www.amazon.co.uk/Galaxy-Pendant-Necklace-Rainbow-Jewellery/dp/B01N902E1H?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Galaxy-Pendant-Necklace-Rainbow-Jewellery/dp/B01N902E1H?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Ceramic Round Coaster](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/795697474/personalised-love-you-to-the-moon-and)
 
@@ -575,9 +575,9 @@ Your map will be printed onto black canvas and then finished with hand-sewn embr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1029301545/custom-star-map-print-night-we-met)
 
-### [32\. Crescent Moon and Star Lariat Style Necklace](https://www.amazon.co.uk/Necklace-Gold-Lariat-Crescent-Delicate/dp/B07B53BGF2?ie=UTF8&tag=avadalove-20)
+### [32\. Crescent Moon and Star Lariat Style Necklace](https://www.amazon.co.uk/Necklace-Gold-Lariat-Crescent-Delicate/dp/B07B53BGF2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Necklace-Gold-Lariat-Crescent-Delicate/dp/B07B53BGF2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Necklace-Gold-Lariat-Crescent-Delicate/dp/B07B53BGF2?ie=UTF8&tag=giftable02-20)
 
 The crescent moon & star style necklace is a perfect moon gift for her. The crescent moon is a symbol of love and romance. It signifies happiness, joy, hope, and faithfulness. The Star Lariat represents a love that endures and the light of the stars.
 
@@ -591,7 +591,7 @@ This necklace makes a thoughtful gift and will help her find the moonlight any n
 
 ✔️ Thoughtful gift for celestial jewelry enthusiasts.
 
-[Buy from Amazon](https://www.amazon.co.uk/Necklace-Gold-Lariat-Crescent-Delicate/dp/B07B53BGF2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Necklace-Gold-Lariat-Crescent-Delicate/dp/B07B53BGF2?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Moon Phase Metal Wall Art](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1184600657/flower-moon-phase-wall-decor-moon-phase)
 

@@ -359,9 +359,9 @@ The yoga shirt is very soft and roomy; therefore, your recipients can wear it wh
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1009954134/yoga-definition-shirt-yoga-because)
 
-### [20\. Asana Moon Premium Yoga Cards](https://www.amazon.com/Asana-Moon-Premium-Yoga-Cards/dp/B0993XPNGP?ie=UTF8&tag=avadalove-20)
+### [20\. Asana Moon Premium Yoga Cards](https://www.amazon.com/Asana-Moon-Premium-Yoga-Cards/dp/B0993XPNGP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Asana-Moon-Premium-Yoga-Cards/dp/B0993XPNGP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Asana-Moon-Premium-Yoga-Cards/dp/B0993XPNGP?ie=UTF8&tag=giftable02-20)
 
 This deck offers endless possibilities for yoga sequencing. The largest yoga cards on the market, laminated for durability and featuring a luxurious linen finish; beautiful yoga poses are illustrated with bright rainbow colors.
 
@@ -375,11 +375,11 @@ The Yoga flash card deck is one of the useful yoga accessories that supports you
 
 ✔️ Meaningful gift ever
 
-[Buy from Amazon](https://www.amazon.com/Asana-Moon-Premium-Yoga-Cards/dp/B0993XPNGP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Asana-Moon-Premium-Yoga-Cards/dp/B0993XPNGP?ie=UTF8&tag=giftable02-20)
 
-### [21\. Persit Leggings](https://www.amazon.com/Persit-Pockets-Athletic-Leggings-Exercise/dp/B083TLD44R/?ie=UTF8&tag=avadalove-20)
+### [21\. Persit Leggings](https://www.amazon.com/Persit-Pockets-Athletic-Leggings-Exercise/dp/B083TLD44R/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Persit-Pockets-Athletic-Leggings-Exercise/dp/B083TLD44R/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Persit-Pockets-Athletic-Leggings-Exercise/dp/B083TLD44R/?ie=UTF8&tag=giftable02-20)
 
 Begin working out in the buttery soft leggings with breathable fabric, as if you were exercising naked but with your body perfectly supported.
 
@@ -393,11 +393,11 @@ The yoga pants are made of non-see-through and breathable fabric and have more e
 
 ✔️ Comfortable and soft to wear
 
-[Buy from Amazon](https://www.amazon.com/Persit-Pockets-Athletic-Leggings-Exercise/dp/B083TLD44R/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Persit-Pockets-Athletic-Leggings-Exercise/dp/B083TLD44R/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Eye Pillow](https://www.amazon.com/Hihealer-Meditation-Accessories-Aromatherapy-Relaxation/dp/B08ZKMT5S7?ie=UTF8&tag=avadalove-20)
+### [22\. Eye Pillow](https://www.amazon.com/Hihealer-Meditation-Accessories-Aromatherapy-Relaxation/dp/B08ZKMT5S7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hihealer-Meditation-Accessories-Aromatherapy-Relaxation/dp/B08ZKMT5S7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hihealer-Meditation-Accessories-Aromatherapy-Relaxation/dp/B08ZKMT5S7?ie=UTF8&tag=giftable02-20)
 
 This eye mask is filled with long-lasting dried lavender and flax seed. Close your eyes and smell the lavender, a scent that's a wonderful blend of fresh, floral, and clean from nature. It helps bring calmness, mindfulness, and a peaceful mind.
 
@@ -411,11 +411,11 @@ The weight of the eye pillow gives a weighted touch around the eyes and forehead
 
 ✔️ Bring chill and calm moment
 
-[Buy from Amazon](https://www.amazon.com/Hihealer-Meditation-Accessories-Aromatherapy-Relaxation/dp/B08ZKMT5S7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hihealer-Meditation-Accessories-Aromatherapy-Relaxation/dp/B08ZKMT5S7?ie=UTF8&tag=giftable02-20)
 
-### [23\. Shower Bath Bombs](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=avadalove-20)
+### [23\. Shower Bath Bombs](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=giftable02-20)
 
 This item will bring you a deluxe home spa experience. Infused with essential oils imported from the UK, this heavenly lavender scent will give you a great relaxing night of restful sleep.
 
@@ -429,11 +429,11 @@ With these aromatherapy shower melts, which dissolve in your bathtub and release
 
 ✔️ Smell very well
 
-[Buy from Amazon](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Sterling Silver Initial Necklaces](https://www.amazon.com/CELESTIA-Sterling-Necklaces-Necklace-Personalized/dp/B08JZ8BRR1?ie=UTF8&tag=avadalove-20)
+### [24\. Sterling Silver Initial Necklaces](https://www.amazon.com/CELESTIA-Sterling-Necklaces-Necklace-Personalized/dp/B08JZ8BRR1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CELESTIA-Sterling-Necklaces-Necklace-Personalized/dp/B08JZ8BRR1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CELESTIA-Sterling-Necklaces-Necklace-Personalized/dp/B08JZ8BRR1?ie=UTF8&tag=giftable02-20)
 
 Add chic, sentimental charm to any style with this personalized initial necklace. The initial pendant with an 18-inch sterling silver chain length is located below the clavicle to highlight the sexy beauty of the female clavicle, and the design of the pendant jewelry shows the slender neck.
 
@@ -447,11 +447,11 @@ Crafted from sterling silver and plated with rose gold, these dainty initials si
 
 ✔️ Charming and magnificent
 
-[Buy from Amazon](https://www.amazon.com/CELESTIA-Sterling-Necklaces-Necklace-Personalized/dp/B08JZ8BRR1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CELESTIA-Sterling-Necklaces-Necklace-Personalized/dp/B08JZ8BRR1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Yoga Socks For Woman](https://www.amazon.com/ZMART-Socks-Women-Saying-Teacher/dp/B09PQH28WF?ie=UTF8&tag=avadalove-20)
+### [25\. Yoga Socks For Woman](https://www.amazon.com/ZMART-Socks-Women-Saying-Teacher/dp/B09PQH28WF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZMART-Socks-Women-Saying-Teacher/dp/B09PQH28WF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZMART-Socks-Women-Saying-Teacher/dp/B09PQH28WF?ie=UTF8&tag=giftable02-20)
 
 Funny yoga socks are the perfect yoga gift for yoga lovers. Dark purple women's yoga socks printed with different yoga poses The bottom of the socks features a funny message, visible when you put your feet up: "KEEP CALM AND DO YOGA".
 
@@ -465,11 +465,11 @@ These crazy yoga pose socks could be the perfect yoga gift for any yoga lover in
 
 ✔️ Funny quote
 
-[Buy from Amazon](https://www.amazon.com/ZMART-Socks-Women-Saying-Teacher/dp/B09PQH28WF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZMART-Socks-Women-Saying-Teacher/dp/B09PQH28WF?ie=UTF8&tag=giftable02-20)
 
-### [26\. Yoga Dice In Engraved Wooden Gift Box](https://www.amazon.com/Eight-1-25-Inch-Engraved-Wooden/dp/B08ZM52BSD/?ie=UTF8&tag=avadalove-20)
+### [26\. Yoga Dice In Engraved Wooden Gift Box](https://www.amazon.com/Eight-1-25-Inch-Engraved-Wooden/dp/B08ZM52BSD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Eight-1-25-Inch-Engraved-Wooden/dp/B08ZM52BSD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Eight-1-25-Inch-Engraved-Wooden/dp/B08ZM52BSD/?ie=UTF8&tag=giftable02-20)
 
 This would make a great gift for yoga lovers. This 8-dice box set is a practical, portable fitness gift for yogis of all ages and abilities.
 
@@ -483,11 +483,11 @@ It includes an engraved, durable, and chic wooden storage box so you can take yo
 
 ✔️ Give fun when practicing
 
-[Buy from Amazon](https://www.amazon.com/Eight-1-25-Inch-Engraved-Wooden/dp/B08ZM52BSD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Eight-1-25-Inch-Engraved-Wooden/dp/B08ZM52BSD/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Workout Racerback Tank](https://www.amazon.com/naMEOWste-Namaste-Workout-Racerback-Women/dp/B07VLCDGMF?ie=UTF8&tag=avadalove-20)
+### [27\. Workout Racerback Tank](https://www.amazon.com/naMEOWste-Namaste-Workout-Racerback-Women/dp/B07VLCDGMF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/naMEOWste-Namaste-Workout-Racerback-Women/dp/B07VLCDGMF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/naMEOWste-Namaste-Workout-Racerback-Women/dp/B07VLCDGMF?ie=UTF8&tag=giftable02-20)
 
 There's nothing better than giving your yoga lovers a comfortable item to wear while exercising. A unique take on the classic racerback leaves the back shoulder largely exposed, with a stylishly twisted fabric drawing the fabric together between the shoulders.
 
@@ -501,11 +501,11 @@ It is made of a 4.0 oz. super-soft blend of combed, ring-spun cotton and polyest
 
 ✔️ Charming and attractive
 
-[Buy from Amazon](https://www.amazon.com/naMEOWste-Namaste-Workout-Racerback-Women/dp/B07VLCDGMF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/naMEOWste-Namaste-Workout-Racerback-Women/dp/B07VLCDGMF?ie=UTF8&tag=giftable02-20)
 
-### [28\. Yoga Casual Pants](https://www.amazon.com/Banjamath-Womens-Smocked-Palazzo-drawstring/dp/B01N7VHSO9?ie=UTF8&tag=avadalove-20)
+### [28\. Yoga Casual Pants](https://www.amazon.com/Banjamath-Womens-Smocked-Palazzo-drawstring/dp/B01N7VHSO9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Banjamath-Womens-Smocked-Palazzo-drawstring/dp/B01N7VHSO9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Banjamath-Womens-Smocked-Palazzo-drawstring/dp/B01N7VHSO9?ie=UTF8&tag=giftable02-20)
 
 These pants are awesome for holiday relaxation and suitable for yoga or meditation activities. It is very elegant and versatile, and the bohemian hippy chic styles are lightweight and super comfy.
 
@@ -519,11 +519,11 @@ It creates the feeling of being soft and comfortable to wear. Quick to dry and a
 
 ✔️ Perfect gift
 
-[Buy from Amazon](https://www.amazon.com/Banjamath-Womens-Smocked-Palazzo-drawstring/dp/B01N7VHSO9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Banjamath-Womens-Smocked-Palazzo-drawstring/dp/B01N7VHSO9?ie=UTF8&tag=giftable02-20)
 
-### [29\. Funny 15oz Stemless Wine Glass](https://www.amazon.com/Kidding-Drink-Pants-Funny-Stemless/dp/B079J8DYB1?ie=UTF8&tag=avadalove-20)
+### [29\. Funny 15oz Stemless Wine Glass](https://www.amazon.com/Kidding-Drink-Pants-Funny-Stemless/dp/B079J8DYB1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kidding-Drink-Pants-Funny-Stemless/dp/B079J8DYB1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kidding-Drink-Pants-Funny-Stemless/dp/B079J8DYB1?ie=UTF8&tag=giftable02-20)
 
 You'll enjoy a relaxing evening with your new favorite stemless wine glass, which reads "I Do Yoga, Just Kidding, I Drink Wine in Yoga Pants."
 
@@ -537,11 +537,11 @@ A truly permanent imprint that will never fade or lose its glow. It helps hold 1
 
 ✔️ Enjoy your favorite wine
 
-[Buy from Amazon](https://www.amazon.com/Kidding-Drink-Pants-Funny-Stemless/dp/B079J8DYB1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kidding-Drink-Pants-Funny-Stemless/dp/B079J8DYB1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Yoga Meditation Décor](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX/?ie=UTF8&tag=avadalove-20)
+### [30\. Yoga Meditation Décor](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX/?ie=UTF8&tag=giftable02-20)
 
 This Meditation Yoga Pose statue is a sculpture made with high quality resin material and painted with an oriental technique. The meditation yoga statue is coated with an antique silver color and shows a rustic meditation sculpture pose appearance.
 
@@ -555,11 +555,11 @@ Each meditation yoga sculpture and statue are handcrafted and may contain variat
 
 ✔️ Show your respect to them
 
-[Buy from Amazon](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Fitness Yoga Mat](https://www.amazon.com/NewMe-Fitness-Instructional-Printed-Illustrated/dp/B07C53GRL2?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Fitness Yoga Mat](https://www.amazon.com/NewMe-Fitness-Instructional-Printed-Illustrated/dp/B07C53GRL2?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/NewMe-Fitness-Instructional-Printed-Illustrated/dp/B07C53GRL2?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/NewMe-Fitness-Instructional-Printed-Illustrated/dp/B07C53GRL2?th=1?ie=UTF8&tag=giftable02-20)
 
 This large yoga exercise mat is a great yoga mat for men and women, measuring 5 mm thick, providing the ideal amount of padding to allow for comfort and proper balance.
 
@@ -573,11 +573,11 @@ This yoga mat has 70 graphics that clearly demonstrate each pose; crisp and clea
 
 ✔️ Can be touched by your heart
 
-[Buy from Amazon](https://www.amazon.com/NewMe-Fitness-Instructional-Printed-Illustrated/dp/B07C53GRL2?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/NewMe-Fitness-Instructional-Printed-Illustrated/dp/B07C53GRL2?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Yoga Lotus Pendant Necklace](https://www.amazon.com/POPLYKE-Pendant-Necklace-Abalone-Sterling/dp/B08MZYZKPR?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Yoga Lotus Pendant Necklace](https://www.amazon.com/POPLYKE-Pendant-Necklace-Abalone-Sterling/dp/B08MZYZKPR?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/POPLYKE-Pendant-Necklace-Abalone-Sterling/dp/B08MZYZKPR?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/POPLYKE-Pendant-Necklace-Abalone-Sterling/dp/B08MZYZKPR?th=1?ie=UTF8&tag=giftable02-20)
 
 The lotus pendant is a powerful symbol. The lotus starts its journey from a humble beginning, reaches the sun, blooms on the water, and bathes in the sun, making it elegant and mysterious.
 
@@ -591,11 +591,11 @@ The white gold pendant necklace matches the abalone shell, embellished with the 
 
 ✔️ Charming and magnificent
 
-[Buy from Amazon](https://www.amazon.com/POPLYKE-Pendant-Necklace-Abalone-Sterling/dp/B08MZYZKPR?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/POPLYKE-Pendant-Necklace-Abalone-Sterling/dp/B08MZYZKPR?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Cooling Towel](https://www.amazon.com/Cooling-Breathable-Microfiber-Running-Activities/dp/B073F1TBMR?th=1?ie=UTF8&tag=avadalove-20)
+### [33\. Cooling Towel](https://www.amazon.com/Cooling-Breathable-Microfiber-Running-Activities/dp/B073F1TBMR?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cooling-Breathable-Microfiber-Running-Activities/dp/B073F1TBMR?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cooling-Breathable-Microfiber-Running-Activities/dp/B073F1TBMR?th=1?ie=UTF8&tag=giftable02-20)
 
 This cooling towel is ideal for your yoga lovers to keep themselves cool during hot summer days after a workout. Hyper-evaporative breathable mesh material makes it easy to activate the chilling towel when you simply soak, wring out, and snap it.
 
@@ -609,11 +609,11 @@ The unique cooling system uses moisture from the towel to draw the sweat away fr
 
 ✔️ Last for a long time
 
-[Buy from Amazon](https://www.amazon.com/Cooling-Breathable-Microfiber-Running-Activities/dp/B073F1TBMR?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cooling-Breathable-Microfiber-Running-Activities/dp/B073F1TBMR?th=1?ie=UTF8&tag=giftable02-20)
 
-### [34\. Decorative Jewelry Tray](https://www.amazon.com/Littlefa-Decorative-Meaningful-Birthday-Christmas/dp/B08XXNRRJ8/?ie=UTF8&tag=avadalove-20)
+### [34\. Decorative Jewelry Tray](https://www.amazon.com/Littlefa-Decorative-Meaningful-Birthday-Christmas/dp/B08XXNRRJ8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Littlefa-Decorative-Meaningful-Birthday-Christmas/dp/B08XXNRRJ8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Littlefa-Decorative-Meaningful-Birthday-Christmas/dp/B08XXNRRJ8/?ie=UTF8&tag=giftable02-20)
 
 The decorative ring dish with the words "By... being yourself, you put something beautiful into the world that wasn’t here before." is crafted from great quality glazed ceramic and well packed with a gift box.
 
@@ -627,11 +627,11 @@ Perfect for office or bedroom decorating trays, it's a great way to display and 
 
 ✔️ Elegant tray
 
-[Buy from Amazon](https://www.amazon.com/Littlefa-Decorative-Meaningful-Birthday-Christmas/dp/B08XXNRRJ8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Littlefa-Decorative-Meaningful-Birthday-Christmas/dp/B08XXNRRJ8/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Stress Relief Yoga Beads](https://www.amazon.com/Bracelet-Aromatherapy-Essential-Diffuser-Relaxation/dp/B086Q5JX2W?ie=UTF8&tag=avadalove-20)
+### [35\. Stress Relief Yoga Beads](https://www.amazon.com/Bracelet-Aromatherapy-Essential-Diffuser-Relaxation/dp/B086Q5JX2W?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bracelet-Aromatherapy-Essential-Diffuser-Relaxation/dp/B086Q5JX2W?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bracelet-Aromatherapy-Essential-Diffuser-Relaxation/dp/B086Q5JX2W?ie=UTF8&tag=giftable02-20)
 
 This bracelet is a perfect and essential gift for any yoga lover. The Aura Lava rock and stone bracelet comes with calming Lavender essential oil, beautifully packed in a jewelry box.
 
@@ -645,11 +645,11 @@ Contrasting lava and Pink Zebra Jasper beads make this premium-quality bead brac
 
 ✔️ Relax and calm down moment
 
-[Buy from Amazon](https://www.amazon.com/Bracelet-Aromatherapy-Essential-Diffuser-Relaxation/dp/B086Q5JX2W?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bracelet-Aromatherapy-Essential-Diffuser-Relaxation/dp/B086Q5JX2W?ie=UTF8&tag=giftable02-20)
 
-### [36\. Yoga Mat Bag](https://www.amazon.com/Ewedoos-Large-Pocket-Zipper-Ancient/dp/B07DHGMCPH?ie=UTF8&tag=avadalove-20)
+### [36\. Yoga Mat Bag](https://www.amazon.com/Ewedoos-Large-Pocket-Zipper-Ancient/dp/B07DHGMCPH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ewedoos-Large-Pocket-Zipper-Ancient/dp/B07DHGMCPH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ewedoos-Large-Pocket-Zipper-Ancient/dp/B07DHGMCPH?ie=UTF8&tag=giftable02-20)
 
 Whether you are looking for specialized yoga bags, carriers or just a simple gym bag, this item will not disappoint you. These carry bags can double as sports bags, shopping bags, beach totes, and even diaper bags.
 
@@ -663,11 +663,11 @@ This useful bag is crafted specifically to carry yoga mats in an easy, gender-ne
 
 ✔️ Easy to bring it with you
 
-[Buy from Amazon](https://www.amazon.com/Ewedoos-Large-Pocket-Zipper-Ancient/dp/B07DHGMCPH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ewedoos-Large-Pocket-Zipper-Ancient/dp/B07DHGMCPH?ie=UTF8&tag=giftable02-20)
 
-### [37\. Tibetan Singing Bowl Set](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Handcrafted/dp/B01A6B0ICC/?ie=UTF8&tag=avadalove-20)
+### [37\. Tibetan Singing Bowl Set](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Handcrafted/dp/B01A6B0ICC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Handcrafted/dp/B01A6B0ICC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Handcrafted/dp/B01A6B0ICC/?ie=UTF8&tag=giftable02-20)
 
 This high-quality, handcrafted meditation bowl set includes a wooden striker and a hand-sewn cushion. It is hand hammered in the Himalayan Foothills to be as unique as you are and to create an ambience for emotional calming and healing.
 
@@ -681,11 +681,11 @@ Ohm’s Tibetan singing bowls are used worldwide for yoga, meditation, and spiri
 
 ✔️ Perfect for deep meditation
 
-[Buy from Amazon](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Handcrafted/dp/B01A6B0ICC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Handcrafted/dp/B01A6B0ICC/?ie=UTF8&tag=giftable02-20)
 
-### [38\. Yoga Pose Dice](https://www.amazon.com/Yoga-Dice-Thousands-Possible-Combinations/dp/1452161682?th=1?ie=UTF8&tag=avadalove-20)
+### [38\. Yoga Pose Dice](https://www.amazon.com/Yoga-Dice-Thousands-Possible-Combinations/dp/1452161682?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Yoga-Dice-Thousands-Possible-Combinations/dp/1452161682?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Yoga-Dice-Thousands-Possible-Combinations/dp/1452161682?th=1?ie=UTF8&tag=giftable02-20)
 
 This yoga pose dice mixes up your regular yoga stretching routine with the roll of a dice. Seven dice with different poses on each side means thousands of possible pose combinations.
 
@@ -699,11 +699,11 @@ With seated, standing, balancing, twists, and more, you're sure to find a new po
 
 ✔️ Balancing and meditating
 
-[Buy from Amazon](https://www.amazon.com/Yoga-Dice-Thousands-Possible-Combinations/dp/1452161682?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Yoga-Dice-Thousands-Possible-Combinations/dp/1452161682?th=1?ie=UTF8&tag=giftable02-20)
 
-### [39\. Yoga Dice](https://www.amazon.com/Asana-Moon-Premium-Yoga-Dice/dp/B0993XLLV7/?ie=UTF8&tag=avadalove-20)
+### [39\. Yoga Dice](https://www.amazon.com/Asana-Moon-Premium-Yoga-Dice/dp/B0993XLLV7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Asana-Moon-Premium-Yoga-Dice/dp/B0993XLLV7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Asana-Moon-Premium-Yoga-Dice/dp/B0993XLLV7/?ie=UTF8&tag=giftable02-20)
 
 This is a unique yoga gift for yogis and yoga lovers. This set includes eight large (1.0") acrylic yoga dice, an illustrated booklet, and a linen bag in a beautiful giftable box.
 
@@ -717,11 +717,11 @@ The Yoga dice set with 48 unique yoga poses in compact form and a luxurious natu
 
 ✔️ Every yogi will adore it
 
-[Buy from Amazon](https://www.amazon.com/Asana-Moon-Premium-Yoga-Dice/dp/B0993XLLV7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Asana-Moon-Premium-Yoga-Dice/dp/B0993XLLV7/?ie=UTF8&tag=giftable02-20)
 
-### [40\. Yoga Socks](https://www.amazon.com/Gaiam-Standard-Pilates-Stability-Small-Medium/dp/B079VX3FBG/?ie=UTF8&tag=avadalove-20)
+### [40\. Yoga Socks](https://www.amazon.com/Gaiam-Standard-Pilates-Stability-Small-Medium/dp/B079VX3FBG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gaiam-Standard-Pilates-Stability-Small-Medium/dp/B079VX3FBG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gaiam-Standard-Pilates-Stability-Small-Medium/dp/B079VX3FBG/?ie=UTF8&tag=giftable02-20)
 
 Grip socks will help protect your feet at the studio from exposure and also work great in preventing excess sweat and moisture buildup on your yoga mat, offering a superior grip for all conditions.
 
@@ -735,6 +735,6 @@ The open-toe design allows for a better tactile feel and balance in the studio o
 
 ✔️ Encourage the motivation of learning yoga
 
-[Buy from Amazon](https://www.amazon.com/Gaiam-Standard-Pilates-Stability-Small-Medium/dp/B079VX3FBG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gaiam-Standard-Pilates-Stability-Small-Medium/dp/B079VX3FBG/?ie=UTF8&tag=giftable02-20)
 
 After discovering a wide range of thoughtful and meaningful presents that will elevate their yoga journey. From eco-friendly yoga mats to soothing essential oils and inspirational yoga accessories, these gifts are designed to enhance their practice and promote wellness. Shop now and bring a smile to the face of your beloved yogis!

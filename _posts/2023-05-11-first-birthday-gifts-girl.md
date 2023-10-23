@@ -407,308 +407,308 @@ This adorable ornament also fosters early cognitive development as babies begin 
 
 [Buy from Loveable](https://loveable.ai/products/personalized-kids-ornament-2022-babys-first-christmas-ornament-rainbow-ornament-christmas-ornament-name-ornament-rainbow-baby-ornament-211ihnbnor837?variant=44082761269480?utm_source=avada&ranking=&utm_source=&utm_campaign=gorgeous-first-birthday-gifts-for-girl-to-celebrate-the-milestone)
 
-### [23\. Sit-to-Stand Learning Walker](https://www.amazon.com/VTech-Stand-Learning-Walker-Lavender/dp/B0103AHP90?ie=UTF8&tag=avadalove-20)
+### [23\. Sit-to-Stand Learning Walker](https://www.amazon.com/VTech-Stand-Learning-Walker-Lavender/dp/B0103AHP90?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Stand-Learning-Walker-Lavender/dp/B0103AHP90?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Stand-Learning-Walker-Lavender/dp/B0103AHP90?ie=UTF8&tag=giftable02-20)
 
 The interactive learning baby walker has 5 piano keys that play music, and encourage creativity. Its frustration-free packaging means it comes in a plain brown box. The early learning center has **[a musical piano](/gifts-for-piano-players/)** and a set of colors that encourages creativity. Wheels work on carpeted and hard floors. It also features a pretend telephone handset with an array of mechanical elements. The pretense telephone handset, plus some sound effects and a few fun phrases, make this toy sing-along fun.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Stand-Learning-Walker-Lavender/dp/B0103AHP90?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Stand-Learning-Walker-Lavender/dp/B0103AHP90?ie=UTF8&tag=giftable02-20)
 
-### [24\. Barbie Dreamtopia Fairytale Dress Doll](https://www.amazon.com/Barbie-Dreamtopia-Fairytale-Dress-Doll/dp/B014DEHUU6?ie=UTF8&tag=avadalove-20)
+### [24\. Barbie Dreamtopia Fairytale Dress Doll](https://www.amazon.com/Barbie-Dreamtopia-Fairytale-Dress-Doll/dp/B014DEHUU6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Barbie-Dreamtopia-Fairytale-Dress-Doll/dp/B014DEHUU6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Barbie-Dreamtopia-Fairytale-Dress-Doll/dp/B014DEHUU6?ie=UTF8&tag=giftable02-20)
 
 You can't go wrong giving this set of Barbie dolls as gifts to your favorite little girl. It comes with a princess, **[mermaid](/little-mermaid-gifts-for-adults/)**, and fairy doll along with their accessories. Princess Barbie doll has a candy-detailed pink snap-on bodice, a long colorful skirt with glitter, matching shoes, and a princess tiara. A candy mermaid swimsuit is an adorable look that's perfect for pool parties. A fairy costume is made for imagination! Play with the possibilities because, with these characters, your babies can be anything.
 
-[Buy from Amazon](https://www.amazon.com/Barbie-Dreamtopia-Fairytale-Dress-Doll/dp/B014DEHUU6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Barbie-Dreamtopia-Fairytale-Dress-Doll/dp/B014DEHUU6?ie=UTF8&tag=giftable02-20)
 
-### [25\. Scout and Violet 100 Words Book](https://www.amazon.com/LeapFrog-Violet-Bilingual-Amazon-Exclusive/dp/B07BPZNM9G?ie=UTF8&tag=avadalove-20)
+### [25\. Scout and Violet 100 Words Book](https://www.amazon.com/LeapFrog-Violet-Bilingual-Amazon-Exclusive/dp/B07BPZNM9G?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-Violet-Bilingual-Amazon-Exclusive/dp/B07BPZNM9G?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-Violet-Bilingual-Amazon-Exclusive/dp/B07BPZNM9G?ie=UTF8&tag=giftable02-20)
 
 Scout and Violet introduce over 100 words chosen by experts, in age-appropriate categories including pets, animals, foods, mealtime, colors, activities, opposites, and more. Touch the words, listen to music, and learn to speak English with a friend and learning helper. It is such a present birthday gift which is both relaxing and educative. Therefore, it will be the most meaningful present that you have ever seen!
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-Violet-Bilingual-Amazon-Exclusive/dp/B07BPZNM9G?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-Violet-Bilingual-Amazon-Exclusive/dp/B07BPZNM9G?ie=UTF8&tag=giftable02-20)
 
-### [26\. My First Stuffed Baby Playset](https://www.amazon.com/GUND-Stuffed-Playset-Sensory-Discovery/dp/B00S0WZBCM/?ie=UTF8&tag=avadalove-20)
+### [26\. My First Stuffed Baby Playset](https://www.amazon.com/GUND-Stuffed-Playset-Sensory-Discovery/dp/B00S0WZBCM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GUND-Stuffed-Playset-Sensory-Discovery/dp/B00S0WZBCM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GUND-Stuffed-Playset-Sensory-Discovery/dp/B00S0WZBCM/?ie=UTF8&tag=giftable02-20)
 
 This ultra-soft plush toy is designed to a high-quality standard with embroidered eyes and nose to ensure safe play for ages 0+! The baby GUND plush is not suitable for children under 3 years old. Our plush bears & toys are quality products that appeal to all ages. From infants to adults, our award-winning bears & toys are great gifts for play, collecting, and cuddling! If you need a gift for a birthday, baptism, baby shower, or wedding, our cuddly stuff plush toys, stuffed animals and Teddy Bears make wonderful and inexpensive gifts.
 
-[Buy from Amazon](https://www.amazon.com/GUND-Stuffed-Playset-Sensory-Discovery/dp/B00S0WZBCM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GUND-Stuffed-Playset-Sensory-Discovery/dp/B00S0WZBCM/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Musical Rhymes Book](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/?ie=UTF8&tag=avadalove-20)
+### [27\. Musical Rhymes Book](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/?ie=UTF8&tag=giftable02-20)
 
 This interactive kids' book has big easy-to-turn pages; the nursery rhyme book comes with 6 classic nursery rhymes. The talking book features 5 colorful piano buttons that make sounds and introduce colors and instruments. The interactive toddler book is visually stimulating with bright pages and a light-up star that flashes with the sound. It is such a perfect first birthday learning toy for babies and toddlers. The baby book is intended for kids 6 months to 3 years so don't hesitate to own some for your babies.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Musical-Rhymes-Amazon-Exclusive/dp/B012C0PFCS/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Care for Me Learning Carrier](https://www.amazon.com/VTech-Care-Me-Learning-Carrier/dp/B01CNBJYD2/?ie=UTF8&tag=avadalove-20)
+### [28\. Care for Me Learning Carrier](https://www.amazon.com/VTech-Care-Me-Learning-Carrier/dp/B01CNBJYD2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Care-Me-Learning-Carrier/dp/B01CNBJYD2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Care-Me-Learning-Carrier/dp/B01CNBJYD2/?ie=UTF8&tag=giftable02-20)
 
 VTech toys for toddlers make it easy to teach them the basics. This carrier allows kids to take their favorite pet with them in the car. The puppy can even be used as a pillow while sitting up, or it can be hung up like a leash when they need to rest. Kids will love the interactive elements, which include a music button, lights, and a door that opens and closes.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Care-Me-Learning-Carrier/dp/B01CNBJYD2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Care-Me-Learning-Carrier/dp/B01CNBJYD2/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Rabbit Soft Teether Book](https://www.amazon.com/Beatrix-Potter-Peter-Rabbit-Teether/dp/B01N6UA4T4/?ie=UTF8&tag=avadalove-20)
+### [29\. Rabbit Soft Teether Book](https://www.amazon.com/Beatrix-Potter-Peter-Rabbit-Teether/dp/B01N6UA4T4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Beatrix-Potter-Peter-Rabbit-Teether/dp/B01N6UA4T4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Beatrix-Potter-Peter-Rabbit-Teether/dp/B01N6UA4T4/?ie=UTF8&tag=giftable02-20)
 
 This story helps baby to learn and begin story time with a soft fabric book featuring Peter Rabbit. A baby in a little pink jacket listens to a baby-friendly version of your favorite story as you read to her together. Babies love to play with soft toys, but they can get messy. Soft Toys will keep babies engaged while traveling, in the car, or at home. This baby book entertains infants by providing them with textures, sounds, and colors to discover.
 
-[Buy from Amazon](https://www.amazon.com/Beatrix-Potter-Peter-Rabbit-Teether/dp/B01N6UA4T4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Beatrix-Potter-Peter-Rabbit-Teether/dp/B01N6UA4T4/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Unicorn Toy for Girls and Boys](https://www.amazon.com/Power-Your-Fun-Unicorn-Robot/dp/B07W9G64V9?ie=UTF8&tag=avadalove-20)
+### [30\. Unicorn Toy for Girls and Boys](https://www.amazon.com/Power-Your-Fun-Unicorn-Robot/dp/B07W9G64V9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Power-Your-Fun-Unicorn-Robot/dp/B07W9G64V9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Power-Your-Fun-Unicorn-Robot/dp/B07W9G64V9?ie=UTF8&tag=giftable02-20)
 
 There is no question that this unicorn is a fun and educational robot toy that kids of all ages will love. This unicorn is interactive, intelligent, and fun to play with, so you can train it to walk through a room and do all kinds of tricks. The robot unicorn toy has several modes of operation, so kids can explore their creativity and play with the toy in a whole host of different ways. Plus, this robot unicorn toy is super-safe for kids, so they can have lots of fun while learning to program.
 
-[Buy from Amazon](https://www.amazon.com/Power-Your-Fun-Unicorn-Robot/dp/B07W9G64V9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Power-Your-Fun-Unicorn-Robot/dp/B07W9G64V9?ie=UTF8&tag=giftable02-20)
 
-### [31\. 30-Button Animal Sound Book](https://www.amazon.com/World-Carle-Animal-Sound-sound/dp/1450874770/?ie=UTF8&tag=avadalove-20)
+### [31\. 30-Button Animal Sound Book](https://www.amazon.com/World-Carle-Animal-Sound-sound/dp/1450874770/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/World-Carle-Animal-Sound-sound/dp/1450874770/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/World-Carle-Animal-Sound-sound/dp/1450874770/?ie=UTF8&tag=giftable02-20)
 
 Your kids will adore reading this book about animals that are just as cute as they are smart. Hear Bear Roar features 30 animal-themed sound buttons to press and captivating creatures on each page, making it an incredible and interactive experience. It's a fun way to learn about animal sounds. Children will love seeing the beautiful pictures as well as hearing the animal sounds, too!
 
-[Buy from Amazon](https://www.amazon.com/World-Carle-Animal-Sound-sound/dp/1450874770/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/World-Carle-Animal-Sound-sound/dp/1450874770/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Musical Rainbow Tea Party](https://www.amazon.com/LeapFrog-Musical-Rainbow-Frustration-Packaging/dp/B00DCWM2ZE/?ie=UTF8&tag=avadalove-20)
+### [32\. Musical Rainbow Tea Party](https://www.amazon.com/LeapFrog-Musical-Rainbow-Frustration-Packaging/dp/B00DCWM2ZE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-Musical-Rainbow-Frustration-Packaging/dp/B00DCWM2ZE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-Musical-Rainbow-Frustration-Packaging/dp/B00DCWM2ZE/?ie=UTF8&tag=giftable02-20)
 
 This kind of product is totally suitable for the first birthday present to whom are struggling with finding a perfect gift for their baby's first birthday. Musical Rainbow Tea Party is a fantastic, educational toy that you and your child can have fun with together. It lights up in six colors, and you can tip it to see the "tea" move realistically. The song and phrase library is great for practicing different musical concepts like colors, numbers, manners, and more. You and your child will have lots of fun together with this unique product!
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-Musical-Rainbow-Frustration-Packaging/dp/B00DCWM2ZE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-Musical-Rainbow-Frustration-Packaging/dp/B00DCWM2ZE/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Laugh & Learn Smart Stages Sis](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Stages/dp/B01NAS2V1E?ie=UTF8&tag=avadalove-20)
+### [33\. Laugh & Learn Smart Stages Sis](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Stages/dp/B01NAS2V1E?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Stages/dp/B01NAS2V1E?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Stages/dp/B01NAS2V1E?ie=UTF8&tag=giftable02-20)
 
 Snuggle up to this soft, snuggly plush toy that teaches over 100 first words with Smart Stages technology to grow along with your child. The toy responds to your baby’s touch, so when your little one grabs at it, they can feel their mother’s touch too. Press and hold Sis's light-up heart to hear all her songs infections of the respiratory tract are a leading cause of morbidity and mortality worldwide, especially in children and young adults.
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Stages/dp/B01NAS2V1E?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Stages/dp/B01NAS2V1E?ie=UTF8&tag=giftable02-20)
 
-### [34\. Fisher-Price Classic Xylophone](https://www.amazon.com/Fisher-Price-CMY09-Classic-Xylophone/dp/B014KEE9LC/?ie=UTF8&tag=avadalove-20)
+### [34\. Fisher-Price Classic Xylophone](https://www.amazon.com/Fisher-Price-CMY09-Classic-Xylophone/dp/B014KEE9LC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-CMY09-Classic-Xylophone/dp/B014KEE9LC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-CMY09-Classic-Xylophone/dp/B014KEE9LC/?ie=UTF8&tag=giftable02-20)
 
 This product is classic and it is such a baby-favorite musical pull toy for newborn babies. Let your toddler play with this adorable little doll.  
 It has 8 colored keys and easy-rolling wheels, and it helps to develop their hand-eye coordination and gross motor skills. The babies can develop these skills themselves. It is the perfect way to teach your toddler how to take care of a new friend. I'm sure that your toddler will love this cute, cuddly toy
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-CMY09-Classic-Xylophone/dp/B014KEE9LC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-CMY09-Classic-Xylophone/dp/B014KEE9LC/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Go and Grow Lil’ Rollin’ Giraffe](https://www.amazon.com/Little-Tikes-Grow-Rollin-Giraffe/dp/B008MTYTHQ?ie=UTF8&tag=avadalove-20)
+### [35\. Go and Grow Lil’ Rollin’ Giraffe](https://www.amazon.com/Little-Tikes-Grow-Rollin-Giraffe/dp/B008MTYTHQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Little-Tikes-Grow-Rollin-Giraffe/dp/B008MTYTHQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Little-Tikes-Grow-Rollin-Giraffe/dp/B008MTYTHQ?ie=UTF8&tag=giftable02-20)
 
 When your little one is ready for a bike they will love this 3 Wheel Ride On Bike. It's a great choice for beginners who want a safe and secure ride. It has a padded seat with a safety harness and can be used from birth. The oversized back wheel provides added stability and includes a wheel guard for safety. This bike is built for outdoor fun in the snow, sand, or dirt and it will also be comfortable for kids to ride indoors or outdoors. Rainy days are no fun, but this safe interactive ride-on for kids will make it easier to get through the day. Your baby's balance and coordination are strengthened as he grows and your kid can enjoy a ride-on toy that helps with that.
 
-[Buy from Amazon](https://www.amazon.com/Little-Tikes-Grow-Rollin-Giraffe/dp/B008MTYTHQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Little-Tikes-Grow-Rollin-Giraffe/dp/B008MTYTHQ?ie=UTF8&tag=giftable02-20)
 
-### [36\. Musical Bedtime JJ Doll](https://www.amazon.com/Cocomelon-Musical-Bedtime-Plush-Tummy/dp/B0855NLMWL?ie=UTF8&tag=avadalove-20)
+### [36\. Musical Bedtime JJ Doll](https://www.amazon.com/Cocomelon-Musical-Bedtime-Plush-Tummy/dp/B0855NLMWL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cocomelon-Musical-Bedtime-Plush-Tummy/dp/B0855NLMWL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cocomelon-Musical-Bedtime-Plush-Tummy/dp/B0855NLMWL?ie=UTF8&tag=giftable02-20)
 
 A detailed plush doll that looks like a young version of JJ, the character from the popular educational YouTube series, 'Co-Comelon'! Open the door, turn the soundbox on and hold it in your hand. It is fun to squeeze JJ’s tummy and hear him make 7 different sounds! This adorable plush doll can become the best friend with the babies by playing a clip of the popular CoComelon Nursery Rhyme - “YesYes Bedtime! This item is sure to be the most suitable gift for kiddos!
 
-[Buy from Amazon](https://www.amazon.com/Cocomelon-Musical-Bedtime-Plush-Tummy/dp/B0855NLMWL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cocomelon-Musical-Bedtime-Plush-Tummy/dp/B0855NLMWL?ie=UTF8&tag=giftable02-20)
 
-### [37\. Step and Learn Violet](https://www.amazon.com/LeapFrog-Step-and-Learn-Violet/dp/B074CBVFSM/?ie=UTF8&tag=avadalove-20)
+### [37\. Step and Learn Violet](https://www.amazon.com/LeapFrog-Step-and-Learn-Violet/dp/B074CBVFSM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-Step-and-Learn-Violet/dp/B074CBVFSM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-Step-and-Learn-Violet/dp/B074CBVFSM/?ie=UTF8&tag=giftable02-20)
 
 Press violet and watch her head, legs, and tail move while she sings educational songs. Choose from three modes of play including letters, numbers, and play with Violet. People can hear songs about letters and numbers while also seeing them scroll by on the Violet LED backpack screen. People can also push the arrow buttons to play letters, numbers, or funny sounds while developing fine motor skills.
 
 When the battery runs low this interactive puppy needs to be charged.
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-Step-and-Learn-Violet/dp/B074CBVFSM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-Step-and-Learn-Violet/dp/B074CBVFSM/?ie=UTF8&tag=giftable02-20)
 
-### [38\. Mother Goose Club Bluetooth](https://www.amazon.com/eKids-Bluetooth-Portable-Player-Stores/dp/B07FPLVKVK?ie=UTF8&tag=avadalove-20)
+### [38\. Mother Goose Club Bluetooth](https://www.amazon.com/eKids-Bluetooth-Portable-Player-Stores/dp/B07FPLVKVK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/eKids-Bluetooth-Portable-Player-Stores/dp/B07FPLVKVK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/eKids-Bluetooth-Portable-Player-Stores/dp/B07FPLVKVK?ie=UTF8&tag=giftable02-20)
 
 There are 24 built-in songs from Mother Goose Club and unlimited audio: including 24 of your favorite kids’ songs from Mother Goose Club. The USB port allows you to add even more content. Make the best-sounding music with the real-working Wired microphone. This product is lightweight with a portable design. The headphone jack lets you listen to your content without disturbing others. This will make a great gift or birthday present for your little one.
 
-[Buy from Amazon](https://www.amazon.com/eKids-Bluetooth-Portable-Player-Stores/dp/B07FPLVKVK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/eKids-Bluetooth-Portable-Player-Stores/dp/B07FPLVKVK?ie=UTF8&tag=giftable02-20)
 
-### [39\. Ice Cream Cart Deluxe](https://www.amazon.com/LeapFrog-Scoop-Deluxe-Amazon-Exclusive/dp/B0877FBND2/?ie=UTF8&tag=avadalove-20)
+### [39\. Ice Cream Cart Deluxe](https://www.amazon.com/LeapFrog-Scoop-Deluxe-Amazon-Exclusive/dp/B0877FBND2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-Scoop-Deluxe-Amazon-Exclusive/dp/B0877FBND2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-Scoop-Deluxe-Amazon-Exclusive/dp/B0877FBND2/?ie=UTF8&tag=giftable02-20)
 
 The magic scooper helps kids of all ages and abilities scoop up tasty treats, including ice cream, toppings, and fruit while making memories with colorful orders. Kids can count to ten and play fun games with the syrup pump or coins. This toy is made to be played with in pairs, and kids can push the scooper around and learn gross motor skills as they explore the colorful world of treats. In general, this is such a perfect birthday gift for babies who are turning 1 year old this year.
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-Scoop-Deluxe-Amazon-Exclusive/dp/B0877FBND2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-Scoop-Deluxe-Amazon-Exclusive/dp/B0877FBND2/?ie=UTF8&tag=giftable02-20)
 
-### [40\. Learn and Discover Pretty Party Playset](https://www.amazon.com/VTech-Learn-Discover-Pretty-Playset/dp/B00K89KU80?ie=UTF8&tag=avadalove-20)
+### [40\. Learn and Discover Pretty Party Playset](https://www.amazon.com/VTech-Learn-Discover-Pretty-Playset/dp/B00K89KU80?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Learn-Discover-Pretty-Playset/dp/B00K89KU80?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Learn-Discover-Pretty-Playset/dp/B00K89KU80?ie=UTF8&tag=giftable02-20)
 
 The toddler kitchen play-set gives kids interactive responses and encourages them to be imaginative and imaginative. The set contains more than 70 songs, melodies, sounds and phrases; they light up and interact with the pieces of the toy. They can pretend play and learn colors and shapes through playing with different toys. The set also comes with a pitcher of pretend lemonade, cups, and a variety of sweets to share. It includes six singing songs that kids will love to hear and sing along to.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Learn-Discover-Pretty-Playset/dp/B00K89KU80?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Learn-Discover-Pretty-Playset/dp/B00K89KU80?ie=UTF8&tag=giftable02-20)
 
-### [41\. Smart Shots Sports Center](https://www.amazon.com/VTech-Sports-Center-Frustration-Packaging/dp/B01FVS6TGO?ie=UTF8&tag=avadalove-20)
+### [41\. Smart Shots Sports Center](https://www.amazon.com/VTech-Sports-Center-Frustration-Packaging/dp/B01FVS6TGO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Sports-Center-Frustration-Packaging/dp/B01FVS6TGO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Sports-Center-Frustration-Packaging/dp/B01FVS6TGO?ie=UTF8&tag=giftable02-20)
 
 Kid's toys are meant to stimulate a child’s imagination. It helps them build their sense of creativity, independence, and self-esteem, while also teaching them how to become a contributing member of a family. This particular kids' toy is one such toy that can do that. It comes with 50 plus songs, sounds, and phrases. It has a basketball for shooting hoops and a soccer ball for kicking. This is an amazing toy for both kids and adults. It's very sturdy and I can't see this one coming apart even after long hours of use. This product deserves one place as your first birthday present to your babies.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Sports-Center-Frustration-Packaging/dp/B01FVS6TGO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Sports-Center-Frustration-Packaging/dp/B01FVS6TGO?ie=UTF8&tag=giftable02-20)
 
-### [42\. Princess Castle Play Tent](https://www.amazon.com/FoxPrint-Princess-conveniently-Carrying-Foldable/dp/B0120XRWLE/?ie=UTF8&tag=avadalove-20)
+### [42\. Princess Castle Play Tent](https://www.amazon.com/FoxPrint-Princess-conveniently-Carrying-Foldable/dp/B0120XRWLE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FoxPrint-Princess-conveniently-Carrying-Foldable/dp/B0120XRWLE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FoxPrint-Princess-conveniently-Carrying-Foldable/dp/B0120XRWLE/?ie=UTF8&tag=giftable02-20)
 
 It's the best 2+-year-old girl or boy toy on the market. For any outdoor trips, this tent is the right choice. It provides comfortable shelter. This camping gear set has a sturdy frame of woven fiberglass rods. It is fun for a backyard adventure, this colorful play tent with glow-in-the-dark stars is a creative and imaginative way to help your kids develop their motor skills and imagination. It comes together quickly and easily and is great for camping. They are a must-have for kids' rooms and play spaces.
 
-[Buy from Amazon](https://www.amazon.com/FoxPrint-Princess-conveniently-Carrying-Foldable/dp/B0120XRWLE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FoxPrint-Princess-conveniently-Carrying-Foldable/dp/B0120XRWLE/?ie=UTF8&tag=giftable02-20)
 
-### [43\. Prance and Rock Learning Unicorn](https://www.amazon.com/VTech-Prance-Rock-Learning-Unicorn/dp/B07PTL9KKN?ie=UTF8&tag=avadalove-20)
+### [43\. Prance and Rock Learning Unicorn](https://www.amazon.com/VTech-Prance-Rock-Learning-Unicorn/dp/B07PTL9KKN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Prance-Rock-Learning-Unicorn/dp/B07PTL9KKN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Prance-Rock-Learning-Unicorn/dp/B07PTL9KKN?ie=UTF8&tag=giftable02-20)
 
 This unicorn has a transformable base that lets your toddler enjoy two unique activities: rocking and playing. When your child rocks, the motion sensor will respond to your child’s movement and music to help them play. This is a very well-designed activity! And this is also a wonderful gift for kids who loves to own their personal "horse" themselves. Based on the kids' mentality, I'm sure that this will be the best first birthday gift for them.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Prance-Rock-Learning-Unicorn/dp/B07PTL9KKN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Prance-Rock-Learning-Unicorn/dp/B07PTL9KKN?ie=UTF8&tag=giftable02-20)
 
-### [44\. LeapFrog Alphapup](https://www.amazon.com/LeapFrog-80-19242E-Alphapup-Purple-Pink/dp/B00GTCKO1S?ie=UTF8&tag=avadalove-20)
+### [44\. LeapFrog Alphapup](https://www.amazon.com/LeapFrog-80-19242E-Alphapup-Purple-Pink/dp/B00GTCKO1S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-80-19242E-Alphapup-Purple-Pink/dp/B00GTCKO1S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-80-19242E-Alphapup-Purple-Pink/dp/B00GTCKO1S?ie=UTF8&tag=giftable02-20)
 
 You can pull along to listen to the ABC song—learn the alphabet and letter sounds for children aged 1-3. It's a sweet playmate, with floppy, velvety ears that are just the right size to pet. This pup is the perfect pet for a music lover. Just pull the leash to have the alpha pup strut around, press the bone button to sing along to three learning songs, and press the music note button to sing along to the words and names. It will help kids to learn special skills including gross motor skills, phonics, and the alphabet
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-80-19242E-Alphapup-Purple-Pink/dp/B00GTCKO1S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-80-19242E-Alphapup-Purple-Pink/dp/B00GTCKO1S?ie=UTF8&tag=giftable02-20)
 
-### [45\. Laugh & Learn My Smart Purse](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Musical/dp/B07Y1FBG8G?ie=UTF8&tag=avadalove-20)
+### [45\. Laugh & Learn My Smart Purse](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Musical/dp/B07Y1FBG8G?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Musical/dp/B07Y1FBG8G?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Musical/dp/B07Y1FBG8G?ie=UTF8&tag=giftable02-20)
 
 This fun interactive toy purse has 5 fun accessories. When you open the zipper, you'll hear different music. It also has a mirror inside so you can see yourself. The purse is designed to have all of your essentials in one place. The phone and credit card slots are removable for easy access and the beads are connected to each other to help teach numbers, colors and opposites. The light up heart also comes on to brighten up the room.
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Musical/dp/B07Y1FBG8G?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Musical/dp/B07Y1FBG8G?ie=UTF8&tag=giftable02-20)
 
-### [46\. My Pal Violet](https://www.amazon.com/LeapFrog-80-19157E-My-Pal-Violet/dp/B001W35I8I/?ie=UTF8&tag=avadalove-20)
+### [46\. My Pal Violet](https://www.amazon.com/LeapFrog-80-19157E-My-Pal-Violet/dp/B001W35I8I/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-80-19157E-My-Pal-Violet/dp/B001W35I8I/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-80-19157E-My-Pal-Violet/dp/B001W35I8I/?ie=UTF8&tag=giftable02-20)
 
 This product is so soft and warm for kids to play. She'll be waiting for your baby with a kiss and a song, so your baby can keep up with her busy day with personalized learning, interactive fun, and soothing stories and melodies. The dog puffed doll has a lovely face which is loved by kids. She can play with kids and stay along with them all day. Therefore, nothing suits the first birthday gift more than this one!
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-80-19157E-My-Pal-Violet/dp/B001W35I8I/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-80-19157E-My-Pal-Violet/dp/B001W35I8I/?ie=UTF8&tag=giftable02-20)
 
-### [47\. Twistables Crayons Coloring Set](https://www.amazon.com/Crayola-Twistables-Crayons-Exclusive-Stocking/dp/B07D4T2XKB/?ie=UTF8&tag=avadalove-20)
+### [47\. Twistables Crayons Coloring Set](https://www.amazon.com/Crayola-Twistables-Crayons-Exclusive-Stocking/dp/B07D4T2XKB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crayola-Twistables-Crayons-Exclusive-Stocking/dp/B07D4T2XKB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crayola-Twistables-Crayons-Exclusive-Stocking/dp/B07D4T2XKB/?ie=UTF8&tag=giftable02-20)
 
 A set of Crayola Twistables Crayons, including 50 compact Twistable Crayons in a reusable box. This exclusive drawing set doesn't need sharpening or peeling. It’s made from durable plastic that will stand up to years of abuse. The direction is very easy to use: Twisting up to color, twisting down to store. This compact pencil case is perfect for coloring, drawing, or creating anywhere. Along with that, kids really like colors so they will definitely love this present!
 
-[Buy from Amazon](https://www.amazon.com/Crayola-Twistables-Crayons-Exclusive-Stocking/dp/B07D4T2XKB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crayola-Twistables-Crayons-Exclusive-Stocking/dp/B07D4T2XKB/?ie=UTF8&tag=giftable02-20)
 
-### [48\. Spin and Sing Alphabet Zoo Amazon](https://www.amazon.com/Leapfrog-Spin-Alphabet-Amazon-Exclusive/dp/B074N2VSWJ?ie=UTF8&tag=avadalove-20)
+### [48\. Spin and Sing Alphabet Zoo Amazon](https://www.amazon.com/Leapfrog-Spin-Alphabet-Amazon-Exclusive/dp/B074N2VSWJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Leapfrog-Spin-Alphabet-Amazon-Exclusive/dp/B074N2VSWJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Leapfrog-Spin-Alphabet-Amazon-Exclusive/dp/B074N2VSWJ?ie=UTF8&tag=giftable02-20)
 
 The alphabet game introduces letters A-Z and animal names and sounds, which is very suitable for kids. It also features three ways to play: letter, animal, and music learning modes, and explores learning with each spin of the wheel. It has playful musical responses and lights that reward each touch. Spin, push, and slide to help develop motor skills. This is a perfect first birthday gift for those who are struggling with finding the right gifts for the babies first birthday!
 
-[Buy from Amazon](https://www.amazon.com/Leapfrog-Spin-Alphabet-Amazon-Exclusive/dp/B074N2VSWJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Leapfrog-Spin-Alphabet-Amazon-Exclusive/dp/B074N2VSWJ?ie=UTF8&tag=giftable02-20)
 
-### [49\. Big Building Bag with Big Building Blocks](https://www.amazon.com/Mega-Bloks-Building-Pink-Piece/dp/B007GE75G0?ie=UTF8&tag=avadalove-20)
+### [49\. Big Building Bag with Big Building Blocks](https://www.amazon.com/Mega-Bloks-Building-Pink-Piece/dp/B007GE75G0?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mega-Bloks-Building-Pink-Piece/dp/B007GE75G0?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mega-Bloks-Building-Pink-Piece/dp/B007GE75G0?ie=UTF8&tag=giftable02-20)
 
 This 8-piece play-and-build construction toy set features 80 classic-colored building blocks, including special shapes. This construction toy is perfect for little hands. The biggest reason why this is such a thoughtful gift for the babies' first birthday is that this hands-on play product is beneficial for early childhood development. Moreover, this storage bag is really easy for cleanup combine with other Mega Blocks preschool toys and builds.
 
-[Buy from Amazon](https://www.amazon.com/Mega-Bloks-Building-Pink-Piece/dp/B007GE75G0?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mega-Bloks-Building-Pink-Piece/dp/B007GE75G0?ie=UTF8&tag=giftable02-20)
 
-### [50\. Little Tikes Fairy Cozy Coupe](https://www.amazon.com/Little-Tikes-Fairy-Amazon-Exclusive/dp/B01C967BQS?ie=UTF8&tag=avadalove-20)
+### [50\. Little Tikes Fairy Cozy Coupe](https://www.amazon.com/Little-Tikes-Fairy-Amazon-Exclusive/dp/B01C967BQS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Little-Tikes-Fairy-Amazon-Exclusive/dp/B01C967BQS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Little-Tikes-Fairy-Amazon-Exclusive/dp/B01C967BQS?ie=UTF8&tag=giftable02-20)
 
 The little Coupe fairy is fun to have in the car. It features a removable floorboard, a parent push handle, and a fun design. The Parent and Kids Ride On Vehicle will thrill parents and kids alike. It’s designed to provide the ultimate in comfort, safety, style, and convenience. The engine in this bike is an electric starter motor. It’s made of brass and it moves as well as any other part of the bike. When it clicks into place, it allows the gas cap to close.
 
 It goes wherever you want it to go. You can carry it for a distance, and it's easy to maneuver. You can also push it along if necessary.
 
-[Buy from Amazon](https://www.amazon.com/Little-Tikes-Fairy-Amazon-Exclusive/dp/B01C967BQS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Little-Tikes-Fairy-Amazon-Exclusive/dp/B01C967BQS?ie=UTF8&tag=giftable02-20)
 
-### [51\. Little Sweet Hearts Doll](https://www.amazon.com/Linzy-Interactive-Embroidered-Removable-90958/dp/B08Q67339J/?ie=UTF8&tag=avadalove-20)
+### [51\. Little Sweet Hearts Doll](https://www.amazon.com/Linzy-Interactive-Embroidered-Removable-90958/dp/B08Q67339J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Linzy-Interactive-Embroidered-Removable-90958/dp/B08Q67339J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Linzy-Interactive-Embroidered-Removable-90958/dp/B08Q67339J/?ie=UTF8&tag=giftable02-20)
 
 This adorable doll is sweet, stylish, and makes the perfect gift for any little girl. She has a removable dress and a cute flower vest that can be removed. Our Sweet Cake Doll is a must-have for any doll collector. The perfect plush doll companion for children of all ages. This doll is a perfect gift for any occasion; birthdays, baby showers, and special celebrations.
 
-[Buy from Amazon](https://www.amazon.com/Linzy-Interactive-Embroidered-Removable-90958/dp/B08Q67339J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Linzy-Interactive-Embroidered-Removable-90958/dp/B08Q67339J/?ie=UTF8&tag=giftable02-20)
 
-### [52\. Bracelet Baby Gift](https://www.amazon.com/Bracelet-Personalized-Customized-Children-Birthday/dp/B01N5SVHUU?ie=UTF8&tag=avadalove-20)
+### [52\. Bracelet Baby Gift](https://www.amazon.com/Bracelet-Personalized-Customized-Children-Birthday/dp/B01N5SVHUU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bracelet-Personalized-Customized-Children-Birthday/dp/B01N5SVHUU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bracelet-Personalized-Customized-Children-Birthday/dp/B01N5SVHUU?ie=UTF8&tag=giftable02-20)
 
 It's a lovely bracelet for little boys and girls. Fashionable and trendy, merging style and modern elements, attracting the attention of many people in crowds. Unique gifts make sense and are timeless, such as petite boutique personalized bracelets. You can celebrate and remember all important and special moments. It is a great gift idea for babies and children for birthdays, Baptism, Christmas, Easter, Communion, and Confirmation due to its simple and elegant style.
 
-[Buy from Amazon](https://www.amazon.com/Bracelet-Personalized-Customized-Children-Birthday/dp/B01N5SVHUU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bracelet-Personalized-Customized-Children-Birthday/dp/B01N5SVHUU?ie=UTF8&tag=giftable02-20)
 
-### [53\. Smart Stages Learn with Puppy Walker](https://www.amazon.com/Fisher-Price-Laugh-Learn-Stages-Walker/dp/B074ZDNJBD?ie=UTF8&tag=avadalove-20)
+### [53\. Smart Stages Learn with Puppy Walker](https://www.amazon.com/Fisher-Price-Laugh-Learn-Stages-Walker/dp/B074ZDNJBD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Stages-Walker/dp/B074ZDNJBD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Stages-Walker/dp/B074ZDNJBD?ie=UTF8&tag=giftable02-20)
 
 Musical Infant Walking Toy is a musical instrument to help your baby learn basic skills such as learning the alphabet, colors, shapes, numbers and Spanish words. The toy is very easy to grasp and has a handle that helps steadies your baby’s first steps, and also includes 7 hands-on activities, including a piano key light-up and a nose, roller, spinner, flip page and more. The toy learns your baby’s age and stage through the included Smart Stages technology.
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Stages-Walker/dp/B074ZDNJBD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Stages-Walker/dp/B074ZDNJBD?ie=UTF8&tag=giftable02-20)
 
-### [54\. Hape Pound & Tap Bench with Slide Out Xylophone](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/?ie=UTF8&tag=avadalove-20)
+### [54\. Hape Pound & Tap Bench with Slide Out Xylophone](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/?ie=UTF8&tag=giftable02-20)
 
 This product is a multifunctional musical instrument that comes in different styles.
 
 We've had the most amazing time of our lives, and we want to share it with the world. And there's no better way to share the joy than with the perfect baby shower. The best baby showers are like a beautiful fairy tale with a happy ending, and this one will be the happiest of them all. We are sure that this will be the best birthday present for their first birthday ceremony ever!
 
-[Buy from Amazon](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hape-Pound-Bench-Slide-Xylophone/dp/B00712O2D6/?ie=UTF8&tag=giftable02-20)
 
-### [55\. LeapFrog Shapes & Sharing Picnic Basket](https://www.amazon.com/LeapFrog-Shapes-Sharing-Picnic-Basket/dp/B07B7319TG/?ie=UTF8&tag=avadalove-20)
+### [55\. LeapFrog Shapes & Sharing Picnic Basket](https://www.amazon.com/LeapFrog-Shapes-Sharing-Picnic-Basket/dp/B07B7319TG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LeapFrog-Shapes-Sharing-Picnic-Basket/dp/B07B7319TG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LeapFrog-Shapes-Sharing-Picnic-Basket/dp/B07B7319TG/?ie=UTF8&tag=giftable02-20)
 
 Features 15 brightly colored play pieces including plates, forks, cups, food and a tablecloth, perfect for a pretend picnic for two. Match the shape of the food pieces with the interactive shape sorter to hear the basket recognize the food and say the shape and color of each one. Press the butterfly button to hear music or polite snack requests from the picnic basket. A picnic basket requires three AA batteries (batteries included for demo purposes only, new batteries recommended for regular use). This item is intended for ages six months to four years so this iss undoubtedly a perfect first birthday present.
 
-[Buy from Amazon](https://www.amazon.com/LeapFrog-Shapes-Sharing-Picnic-Basket/dp/B07B7319TG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LeapFrog-Shapes-Sharing-Picnic-Basket/dp/B07B7319TG/?ie=UTF8&tag=giftable02-20)
 
-### [56\. VTech Sort and Discovery Activity Cube](https://www.amazon.com/VTech-Discovery-Activity-Frustration-Packaging/dp/B07NRXSSWT?ie=UTF8&tag=avadalove-20)
+### [56\. VTech Sort and Discovery Activity Cube](https://www.amazon.com/VTech-Discovery-Activity-Frustration-Packaging/dp/B07NRXSSWT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VTech-Discovery-Activity-Frustration-Packaging/dp/B07NRXSSWT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VTech-Discovery-Activity-Frustration-Packaging/dp/B07NRXSSWT?ie=UTF8&tag=giftable02-20)
 
 There are so many ways to explore and discover. This Activity Cube offers five sides of fun activities including 75+ songs, sounds, melodies and phrases. This activity cube teaches your little one how to sort objects based on color, size, shape and other qualities. It also has two electronic panels to introduce colors, numbers, animals and more. Your little one will enjoy learning how to sort the animals into three colors and how to recognize the numbers 0-9 in a variety of colors. This interactive book is perfect for little hands who want to explore, listen, learn and play.
 
-[Buy from Amazon](https://www.amazon.com/VTech-Discovery-Activity-Frustration-Packaging/dp/B07NRXSSWT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VTech-Discovery-Activity-Frustration-Packaging/dp/B07NRXSSWT?ie=UTF8&tag=giftable02-20)
 
-### [57\. Pink Owl Children’s Plush Chair](https://www.amazon.com/Animal-Adventure-SeatsPink-ChairLarge-SizeMachine/dp/B06X3WKY59/?ie=UTF8&tag=avadalove-20)
+### [57\. Pink Owl Children’s Plush Chair](https://www.amazon.com/Animal-Adventure-SeatsPink-ChairLarge-SizeMachine/dp/B06X3WKY59/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Animal-Adventure-SeatsPink-ChairLarge-SizeMachine/dp/B06X3WKY59/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Animal-Adventure-SeatsPink-ChairLarge-SizeMachine/dp/B06X3WKY59/?ie=UTF8&tag=giftable02-20)
 
 This polyurethane imported push slip cover is removable and washable. Zippers are child-friendly. They can easily be opened by a parent with a a simple paper clip. It is a beautiful, classic design from the 1930s, the Schott Zwiesel Water. The lovely pink owl is suitable with kiddos. The soft material will not hurt the sensitive skin of babies. This pink owl children's plush chair is specially designed for kids whose ages 2 to 4 years old. Therefore, if someone is looking for the most loveable birthday gift, this product is totally for you!
 
-[Buy from Amazon](https://www.amazon.com/Animal-Adventure-SeatsPink-ChairLarge-SizeMachine/dp/B06X3WKY59/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Animal-Adventure-SeatsPink-ChairLarge-SizeMachine/dp/B06X3WKY59/?ie=UTF8&tag=giftable02-20)
 
-### [58\. Fisher-Price Laugh & Learn My Smart Purse](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Purse/dp/B073CCQZS1?ie=UTF8&tag=avadalove-20)
+### [58\. Fisher-Price Laugh & Learn My Smart Purse](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Purse/dp/B073CCQZS1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Purse/dp/B073CCQZS1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Purse/dp/B073CCQZS1?ie=UTF8&tag=giftable02-20)
 
 This interactive toy purse is designed with a zipper that opens to reveal a bright, colorful compartment for toys, a mirror, a credit card, a clacker and an adjustable bead bracelet. The purse is a great way to keep toys organized while traveling, and it features 50+ songs and sounds. With Smart Stages technology, the learning content changes with your child's age and development. This product is perfectly designed for babies coming through 12 months this year.
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Purse/dp/B073CCQZS1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Laugh-Learn-Smart-Purse/dp/B073CCQZS1?ie=UTF8&tag=giftable02-20)
 
-### [59\. Fisher-Price Laugh & Learn Magical Musical Mirror](https://www.amazon.com/Fisher-Price-Magical-Musical-Mirror-Exclusive/dp/B00CQHYZ6K?ie=UTF8&tag=avadalove-20)
+### [59\. Fisher-Price Laugh & Learn Magical Musical Mirror](https://www.amazon.com/Fisher-Price-Magical-Musical-Mirror-Exclusive/dp/B00CQHYZ6K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-Magical-Musical-Mirror-Exclusive/dp/B00CQHYZ6K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-Magical-Musical-Mirror-Exclusive/dp/B00CQHYZ6K?ie=UTF8&tag=giftable02-20)
 
 You will have loads of fun with this delightful board game that includes a magical music box. It also includes all of the pieces for 30 songs that the 1-year-old babies can sing along to or play by themselves, plus more than 6 different dancing lights. The singing phrases, tunes, and phrases are also catchy and catchy and help you to build your confidence, so you can learn these beautiful phrases and play with the kids, too. It is such a perfect present to connect you and your baby!
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-Magical-Musical-Mirror-Exclusive/dp/B00CQHYZ6K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-Magical-Musical-Mirror-Exclusive/dp/B00CQHYZ6K?ie=UTF8&tag=giftable02-20)
 
 ### [60\. Baby Photos Custom Collage for 1 Year Old](https://loveable.ai/products/baby-photos-custom-collage-personalized-wall-clock-best-gifts-for-baby-parents-211ihplnwc483?variant=44061301833960?utm_source=avada&ranking=&utm_source=&utm_campaign=gorgeous-first-birthday-gifts-for-girl-to-celebrate-the-milestone)
 
@@ -786,9 +786,9 @@ With the option to choose the most heartwarming picture of your child, you can c
 
 [Buy from Loveable](https://loveable.ai/products/one-year-old-upload-photo-canvasposter-birthday-gift-305ihplnca613?variant=44620401737960?utm_source=avada&ranking=&utm_source=&utm_campaign=gorgeous-first-birthday-gifts-for-girl-to-celebrate-the-milestone)
 
-### [64\. Baby Nursery Acrylic Plaque](https://www.amazon.com/dp/B0CCHS3N9J?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [64\. Baby Nursery Acrylic Plaque](https://www.amazon.com/dp/B0CCHS3N9J?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CCHS3N9J?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CCHS3N9J?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Commemorate the incredible journey of your little one's first year with the Baby Nursery Acrylic Plaque.
 
@@ -804,11 +804,11 @@ With its elegant design, the plaque is versatile for various display options, wh
 
 ✔️ Adorable adornment for the nursery
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CCHS3N9J?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CCHS3N9J?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [65\. Baby Moon and Stars Nursery Decor](https://www.amazon.com/dp/B0CCHJJ2VM?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [65\. Baby Moon and Stars Nursery Decor](https://www.amazon.com/dp/B0CCHJJ2VM?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CCHJJ2VM?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CCHJJ2VM?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 This delightful decor set will transform any nursery into a magical realm, filling it with the wonder of the night sky.
 
@@ -824,7 +824,7 @@ The whimsical design of the moon and stars brings a sense of wonder and imaginat
 
 ✔️ Create lasting memories of wonder and joy
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CCHJJ2VM?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CCHJJ2VM?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [66\. Happy 1st Birthday Standard Youth T-shirt](https://loveable.us/products/happy-birthday-personalized-standard-youth-t-shirt-birthday-gift-for-kids-children-308ihpbnts902?variant=44673888682216?utm_source=avada&ranking=&utm_source=&utm_campaign=gorgeous-first-birthday-gifts-for-girl-to-celebrate-the-milestone)
 

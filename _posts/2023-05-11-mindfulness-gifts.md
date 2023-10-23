@@ -36,53 +36,53 @@ Will you be mindful of your mom? This list of positive statements will inspire a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975141278/motherhood-affirmation-cards-set)
 
-### [3\. Mindfulness Challenge Cards](https://www.amazon.com/31-Day-Mindfulness-Challenge-Cards/dp/B08DJ3YRSG/?ie=UTF8&tag=avadalove-20)
+### [3\. Mindfulness Challenge Cards](https://www.amazon.com/31-Day-Mindfulness-Challenge-Cards/dp/B08DJ3YRSG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/31-Day-Mindfulness-Challenge-Cards/dp/B08DJ3YRSG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/31-Day-Mindfulness-Challenge-Cards/dp/B08DJ3YRSG/?ie=UTF8&tag=giftable02-20)
 
 - The daily practice of mindfulness is said to boost mental clarity, productivity, calmness, and stress reduction. A mindful lifestyle requires practice, effort, and patience to develop. New methods of thinking must be substituted for old ones.
     
 - Even on the busiest days, the workouts are designed to be simple to do. The majority of workouts may be done anytime, anywhere, and frequently secretively. You'll hopefully become a bit more attentive during the day if you do these mindfulness exercises daily. We wish you success and happiness!
     
 
-[Buy from Amazon](https://www.amazon.com/31-Day-Mindfulness-Challenge-Cards/dp/B08DJ3YRSG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/31-Day-Mindfulness-Challenge-Cards/dp/B08DJ3YRSG/?ie=UTF8&tag=giftable02-20)
 
-### [4\. The Mindfulness Journal](https://www.amazon.com/Mindfulness-Journal-Creative-Prompts-Release/dp/1647399289/?ie=UTF8&tag=avadalove-20)
+### [4\. The Mindfulness Journal](https://www.amazon.com/Mindfulness-Journal-Creative-Prompts-Release/dp/1647399289/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mindfulness-Journal-Creative-Prompts-Release/dp/1647399289/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mindfulness-Journal-Creative-Prompts-Release/dp/1647399289/?ie=UTF8&tag=giftable02-20)
 
 - You already possess creative insight; you simply need to activate it. With the help of this mindfulness diary, encourage your creativity while living in the now. It is jam-packed with self-discovery resources and artistic mindfulness exercises to enrich your inner landscape, ranging from writing exercises and creative pursuits to **[meditation](/meditation-gifts/)** techniques and motivational sayings.
     
 - This mindfulness journal's illustrated prompts give you plenty of room to write, draw, and create. Explore the more than 120 pages in chronological sequence, or pick a prompt based on inspiration. Each page is meant to pique your interest and help you as you travel down the holy path of discovering your own potential.
     
 
-[Buy from Amazon](https://www.amazon.com/Mindfulness-Journal-Creative-Prompts-Release/dp/1647399289/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mindfulness-Journal-Creative-Prompts-Release/dp/1647399289/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Meditation accessories](https://www.amazon.com/Meditation-Relaxation-Natural-Anxiety-Affirmation/dp/B07VLPKG4X?ie=UTF8&tag=avadalove-20)
+### [5\. Meditation accessories](https://www.amazon.com/Meditation-Relaxation-Natural-Anxiety-Affirmation/dp/B07VLPKG4X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Meditation-Relaxation-Natural-Anxiety-Affirmation/dp/B07VLPKG4X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Meditation-Relaxation-Natural-Anxiety-Affirmation/dp/B07VLPKG4X?ie=UTF8&tag=giftable02-20)
 
 - These guided meditation exercises using cards are excellent for reducing stress and anxiety. Use it either alone or in conjunction with a self-love or wellness diary. You may reduce stress and anxiety by using breathing exercises, relaxation strategies, positive affirmations, and mindfulness practices.
     
 - These lovely affirmation cards encourage stress relief and anxiety reduction. A wonderful present for either a woman or a man. Self-care is essential and has a big impact.
     
 
-[Buy from Amazon](https://www.amazon.com/Meditation-Relaxation-Natural-Anxiety-Affirmation/dp/B07VLPKG4X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Meditation-Relaxation-Natural-Anxiety-Affirmation/dp/B07VLPKG4X?ie=UTF8&tag=giftable02-20)
 
-### [6\. Japanese Zen Garden](https://www.amazon.com/Meditation-Decoration-Japanese-Zen-Garden/dp/B08MZZP87J?ie=UTF8&tag=avadalove-20)
+### [6\. Japanese Zen Garden](https://www.amazon.com/Meditation-Decoration-Japanese-Zen-Garden/dp/B08MZZP87J?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Meditation-Decoration-Japanese-Zen-Garden/dp/B08MZZP87J?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Meditation-Decoration-Japanese-Zen-Garden/dp/B08MZZP87J?ie=UTF8&tag=giftable02-20)
 
 - This Japanese Bonsai Zen garden allows you to experience the peaceful and tranquil surroundings of nature, including the white crane bird flying freely and the Buddha meditating beneath the pine tree. You can spend as much time as you like in nature while escaping the busyness of earthly time and space.
     
 - On your desk, place this sizable Zen garden. Raking the rock sand garden might now help you relax while you're doing anything stressful. You may give your brain a break from the strains of daily life by concentrating on repeated physical motions.
     
 
-[Buy from Amazon](https://www.amazon.com/Meditation-Decoration-Japanese-Zen-Garden/dp/B08MZZP87J?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Meditation-Decoration-Japanese-Zen-Garden/dp/B08MZZP87J?ie=UTF8&tag=giftable02-20)
 
-### [7\. Engraved Inspirational Stones](https://www.amazon.com/BigOtters-Engraved-Inspirational-Different-Encouragement/dp/B07GNDT7R3/?ie=UTF8&tag=avadalove-20)
+### [7\. Engraved Inspirational Stones](https://www.amazon.com/BigOtters-Engraved-Inspirational-Different-Encouragement/dp/B07GNDT7R3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BigOtters-Engraved-Inspirational-Different-Encouragement/dp/B07GNDT7R3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BigOtters-Engraved-Inspirational-Different-Encouragement/dp/B07GNDT7R3/?ie=UTF8&tag=giftable02-20)
 
 - Be mindful of your friends by leaving messages that are set in stone! Our package comes with a velvet purse and 25 inspirational stones with various messages.
     
@@ -91,18 +91,18 @@ Will you be mindful of your mom? This list of positive statements will inspire a
 - Encouragement stones are a great Christmas present for friends, family, coworkers, or even for yourself if you ever need a little motivation.
     
 
-[Buy from Amazon](https://www.amazon.com/BigOtters-Engraved-Inspirational-Different-Encouragement/dp/B07GNDT7R3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BigOtters-Engraved-Inspirational-Different-Encouragement/dp/B07GNDT7R3/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Chakra Tree](https://www.amazon.com/Ornament-Positive-Meditation-Accessories-Spiritual/dp/B07F6Z3M5H/?ie=UTF8&tag=avadalove-20)
+### [8\. Chakra Tree](https://www.amazon.com/Ornament-Positive-Meditation-Accessories-Spiritual/dp/B07F6Z3M5H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ornament-Positive-Meditation-Accessories-Spiritual/dp/B07F6Z3M5H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ornament-Positive-Meditation-Accessories-Spiritual/dp/B07F6Z3M5H/?ie=UTF8&tag=giftable02-20)
 
 - Be considerate of your buddy by providing them with our Chakra Tree so they may connect with nature in the convenience of their own home.
     
 - Specifications for an artificial bonsai tree constructed of the seven chakra crystals: lapis lazuli, carnelian, amethyst, clear quartz, red jasper, yellow aventurine, green aventurine, and silver wire. The tree is approximately 10 to 12 inches tall. The wire may be arranged however you choose, and this will make you happy and upbeat.
     
 
-[Buy from Amazon](https://www.amazon.com/Ornament-Positive-Meditation-Accessories-Spiritual/dp/B07F6Z3M5H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ornament-Positive-Meditation-Accessories-Spiritual/dp/B07F6Z3M5H/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Opal Jasper Stone Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/822296902/natural-blue-african-opal-jasper-stone)
 
@@ -117,9 +117,9 @@ Will you be mindful of your mom? This list of positive statements will inspire a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/822296902/natural-blue-african-opal-jasper-stone)
 
-### [10\. Challenge Cards](https://www.amazon.com/Eccolo-How-Mindful-Challenge-Cards/dp/B08TB5Y83W/?ie=UTF8&tag=avadalove-20)
+### [10\. Challenge Cards](https://www.amazon.com/Eccolo-How-Mindful-Challenge-Cards/dp/B08TB5Y83W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Eccolo-How-Mindful-Challenge-Cards/dp/B08TB5Y83W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Eccolo-How-Mindful-Challenge-Cards/dp/B08TB5Y83W/?ie=UTF8&tag=giftable02-20)
 
 - You may use the How to be Mindful Challenge Cards to encourage daily reflection and mindfulness so you can live the healthiest, happiest life possible. It includes 60 mindfulness cards with day-reflection fill-in areas on the back.
     
@@ -128,11 +128,11 @@ Will you be mindful of your mom? This list of positive statements will inspire a
 - This is an excellent self-care or mindfulness gift idea to make your loved ones feel happier, healthier, and more confident every day. It comes in a 4" x 5 7/8" x 1" hinged matte laminated box that is the ideal desk decoration for any house or workplace.
     
 
-[Buy from Amazon](https://www.amazon.com/Eccolo-How-Mindful-Challenge-Cards/dp/B08TB5Y83W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Eccolo-How-Mindful-Challenge-Cards/dp/B08TB5Y83W/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Mindfulness Coloring Book](https://www.amazon.com/Mindfulness-Coloring-Book-Relaxation-Relieving/dp/B08QBS1NR5/?ie=UTF8&tag=avadalove-20)
+### [11\. Mindfulness Coloring Book](https://www.amazon.com/Mindfulness-Coloring-Book-Relaxation-Relieving/dp/B08QBS1NR5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mindfulness-Coloring-Book-Relaxation-Relieving/dp/B08QBS1NR5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mindfulness-Coloring-Book-Relaxation-Relieving/dp/B08QBS1NR5/?ie=UTF8&tag=giftable02-20)
 
 - Sometimes, all one needs to do is embrace their inner kid and practice self-awareness. For everyone who enjoys mindfulness and wants to express their creativity, unwind, and have fun, this amusing coloring book is ideal.
     
@@ -141,7 +141,7 @@ Will you be mindful of your mom? This list of positive statements will inspire a
 - Helping those who appreciate practicing mindfulness to express their creativity while having fun coloring these soothing, unwinding, and mindful images! No matter what tool you choose to use, each picture is printed on a single-sided page with the reverse blank to avoid bleeding through!
     
 
-[Buy from Amazon](https://www.amazon.com/Mindfulness-Coloring-Book-Relaxation-Relieving/dp/B08QBS1NR5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mindfulness-Coloring-Book-Relaxation-Relieving/dp/B08QBS1NR5/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Lotus Flower Art](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/471144605/lotus-flower-art-yoga-decor-lotus-wall)
 
@@ -200,16 +200,16 @@ Will you be mindful of your mom? This list of positive statements will inspire a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1159664423/rainbow-enamel-evil-eye-ring-by-caitlyn)
 
-### [17\. Joycuff Bracelets](https://www.amazon.com/Joycuff-Bracelet-Mindfulness-Recovery-Engraved/dp/B07W52971V/r?ie=UTF8&tag=avadalove-20)
+### [17\. Joycuff Bracelets](https://www.amazon.com/Joycuff-Bracelet-Mindfulness-Recovery-Engraved/dp/B07W52971V/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Joycuff-Bracelet-Mindfulness-Recovery-Engraved/dp/B07W52971V/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Joycuff-Bracelet-Mindfulness-Recovery-Engraved/dp/B07W52971V/r?ie=UTF8&tag=giftable02-20)
 
 - Someone you care about is struggling right now? Give them this bracelet with the phrase "This, too, shall pass" on it. Joycuff's encouragement bracelet comes in a sweet gift box and is a thoughtful present for a friend, sister, wife, daughter, mother, niece, or aunt. It is also engraved with a motivational phrase.
     
 - The women's Joycuff bracelet may be adjusted to accommodate most wrist sizes. Affordable Quality at an Extraordinary Price High-polished cuff bracelet with gleaming, smooth, rounded edges that won't harm your wrist and easily readable, clearly etched phrases
     
 
-[Buy from Amazon](https://www.amazon.com/Joycuff-Bracelet-Mindfulness-Recovery-Engraved/dp/B07W52971V/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Joycuff-Bracelet-Mindfulness-Recovery-Engraved/dp/B07W52971V/r?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Box of Pick me ups](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/974776486/box-of-pick-me-ups-little-box-of)
 
@@ -235,27 +235,27 @@ Positive messages may be sent to friends, or even better, you can create your ow
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/643829182/mindful-minute-mindfulness-activities)
 
-### [20\. The Miracle of Mindfulness](https://www.amazon.com/Miracle-Mindfulness-Gift-Introduction-Meditation/dp/0807064904?ie=UTF8&tag=avadalove-20)
+### [20\. The Miracle of Mindfulness](https://www.amazon.com/Miracle-Mindfulness-Gift-Introduction-Meditation/dp/0807064904?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Miracle-Mindfulness-Gift-Introduction-Meditation/dp/0807064904?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Miracle-Mindfulness-Gift-Introduction-Meditation/dp/0807064904?ie=UTF8&tag=giftable02-20)
 
 - The next item on our list is an introduction to meditation, which is used by many individuals to become more aware of their surroundings. The traditional manual of meditation and mindfulness is now available in a new gift edition, with gorgeous calligraphy by Thich Nhat Hanh and archival images.
     
 - Generations of readers have learned about the transformative power of focused awareness thanks to the classic meditation manual The Miracle of Mindfulness. Zen Master Thich Nhat Hanh provides peaceful stories and helpful exercises as a way to practice mindfulness techniques. He reminds us that every instant offers the chance to strive toward increased self-awareness and tranquility, whether it is doing the dishes, taking a call, or peeling an orange.
     
 
-[Buy from Amazon](https://www.amazon.com/Miracle-Mindfulness-Gift-Introduction-Meditation/dp/0807064904?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Miracle-Mindfulness-Gift-Introduction-Meditation/dp/0807064904?ie=UTF8&tag=giftable02-20)
 
-### [21\. Portable Water Painting](https://www.amazon.com/Buddha-Board-Enso-Drawing-Painting/dp/B017A7MALC/?ie=UTF8&tag=avadalove-20)
+### [21\. Portable Water Painting](https://www.amazon.com/Buddha-Board-Enso-Drawing-Painting/dp/B017A7MALC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Buddha-Board-Enso-Drawing-Painting/dp/B017A7MALC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Buddha-Board-Enso-Drawing-Painting/dp/B017A7MALC/?ie=UTF8&tag=giftable02-20)
 
 - Zen's emphasis on being mindful of the present moment is an inspiration for the Enso Art Board. With our water board painting kit, you can create lovely works of art that vanish as the water dries using only water and our drawing and writing board. You may practice mindfulness by using a Buddha waterboard kit.
     
 - The mind is everything; you become what you believe. A 10"x10" water painting board that will return to its "clean slate" without defects, bubbles, or peeling is included in this zen-like water painting board for artists. With our water-based painting board, a high-quality, refillable brush with thick, ultra-soft bristles is supplied. It includes a one-year quality guarantee.
     
 
-[Buy from Amazon](https://www.amazon.com/Buddha-Board-Enso-Drawing-Painting/dp/B017A7MALC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Buddha-Board-Enso-Drawing-Painting/dp/B017A7MALC/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Motivational Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1086783652/be-mindful-grateful-positive-true-kind)
 
@@ -362,9 +362,9 @@ Positive messages may be sent to friends, or even better, you can create your ow
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235551725/motivation-mindfulness-journal)
 
-### [31\. Daily Affirmation Cards](https://www.amazon.com/Affirmation-Meditation-Motivation-Perfect-Mindfulness/dp/B09JFDJF3C/?ie=UTF8&tag=avadalove-20)
+### [31\. Daily Affirmation Cards](https://www.amazon.com/Affirmation-Meditation-Motivation-Perfect-Mindfulness/dp/B09JFDJF3C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Affirmation-Meditation-Motivation-Perfect-Mindfulness/dp/B09JFDJF3C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Affirmation-Meditation-Motivation-Perfect-Mindfulness/dp/B09JFDJF3C/?ie=UTF8&tag=giftable02-20)
 
 - Purple Canyon's DAILY AFFIRMATION CARDS are intended to support you in leading a more upbeat life that is motivated, confident, and joyful.
     
@@ -373,33 +373,33 @@ Positive messages may be sent to friends, or even better, you can create your ow
 - Each card is a kind reminder to help you stay focused on your objectives and to be nice to yourself. Many individuals have utilized them as stress reduction tools, self-esteem boosters, confidence boosters, and happiness and productivity boosters.
     
 
-[Buy from Amazon](https://www.amazon.com/Affirmation-Meditation-Motivation-Perfect-Mindfulness/dp/B09JFDJF3C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Affirmation-Meditation-Motivation-Perfect-Mindfulness/dp/B09JFDJF3C/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Essential Oil Storage Stand](https://www.amazon.com/TJ-MOREE-Meditation-Aromatherapist-Mindfulness-Essential/dp/B09792XHFY/?ie=UTF8&tag=avadalove-20)
+### [32\. Essential Oil Storage Stand](https://www.amazon.com/TJ-MOREE-Meditation-Aromatherapist-Mindfulness-Essential/dp/B09792XHFY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TJ-MOREE-Meditation-Aromatherapist-Mindfulness-Essential/dp/B09792XHFY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TJ-MOREE-Meditation-Aromatherapist-Mindfulness-Essential/dp/B09792XHFY/?ie=UTF8&tag=giftable02-20)
 
 - Give your loved one something to help them start unwinding. This essential oil rack makes it simple to create the atmosphere you want before practicing meditation.
     
 - It can store 11 bottles of your favorite essential oils. This essential oil stand is decorated with a stunning lotus and the word "breathe". If you want to create a calm, unwinding, and soothing atmosphere, this product would be the perfect addition. It might increase your feeling of ritual and serve as a reminder to perform it.
     
 
-[Buy from Amazon](https://www.amazon.com/TJ-MOREE-Meditation-Aromatherapist-Mindfulness-Essential/dp/B09792XHFY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TJ-MOREE-Meditation-Aromatherapist-Mindfulness-Essential/dp/B09792XHFY/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Stress Less Cards](https://www.amazon.com/Stress-Less-Cards-Mindfulness-Meditation/dp/B01CP326ME?ie=UTF8&tag=avadalove-20)
+### [33\. Stress Less Cards](https://www.amazon.com/Stress-Less-Cards-Mindfulness-Meditation/dp/B01CP326ME?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stress-Less-Cards-Mindfulness-Meditation/dp/B01CP326ME?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stress-Less-Cards-Mindfulness-Meditation/dp/B01CP326ME?ie=UTF8&tag=giftable02-20)
 
 - Let's give your pal a break and some mental exercise. When you need it most, you may use this special deck of Stress Less Cards, which includes 50 really effective exercises, to reduce stress and manage anxiety.
     
 - These effective strategies are simple to learn and apply in any setting, whether it be at your desk on the bus, at work in line at the grocery store, or just before bed at night. These exercises are intended to calm that stress response and promote relaxation.
     
 
-[Buy from Amazon](https://www.amazon.com/Stress-Less-Cards-Mindfulness-Meditation/dp/B01CP326ME?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stress-Less-Cards-Mindfulness-Meditation/dp/B01CP326ME?ie=UTF8&tag=giftable02-20)
 
-### [34\. Affirmation Deck](https://www.amazon.com/Dreamers-Deck-Affirmation-Inspirational-Motivational/dp/B089ZVS591/?ie=UTF8&tag=avadalove-20)
+### [34\. Affirmation Deck](https://www.amazon.com/Dreamers-Deck-Affirmation-Inspirational-Motivational/dp/B089ZVS591/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dreamers-Deck-Affirmation-Inspirational-Motivational/dp/B089ZVS591/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dreamers-Deck-Affirmation-Inspirational-Motivational/dp/B089ZVS591/?ie=UTF8&tag=giftable02-20)
 
 - Give your favorite woman this deck of affirmation cards and show her that you care.
     
@@ -408,4 +408,4 @@ Positive messages may be sent to friends, or even better, you can create your ow
 - Each card features a basic yet thought-provoking affirmation and a minimal line design printed in gold foil, making it both elegant and simple.
     
 
-[Buy from Amazon](https://www.amazon.com/Dreamers-Deck-Affirmation-Inspirational-Motivational/dp/B089ZVS591/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dreamers-Deck-Affirmation-Inspirational-Motivational/dp/B089ZVS591/?ie=UTF8&tag=giftable02-20)

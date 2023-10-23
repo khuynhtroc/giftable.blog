@@ -361,9 +361,9 @@ Crafted from high-quality materials, this doormat not only keeps dirt and debris
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1248291461/not-swingers-we-just-like-pineapples)
 
-### [20\. Sterile Unique Shaped Bandages](https://www.amazon.com/BioSwiss-Bandages-Collectable-Self-Adhesive-Pineapple/dp/B07S45YPYB/?ie=UTF8&tag=avadalove-20)
+### [20\. Sterile Unique Shaped Bandages](https://www.amazon.com/BioSwiss-Bandages-Collectable-Self-Adhesive-Pineapple/dp/B07S45YPYB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BioSwiss-Bandages-Collectable-Self-Adhesive-Pineapple/dp/B07S45YPYB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BioSwiss-Bandages-Collectable-Self-Adhesive-Pineapple/dp/B07S45YPYB/?ie=UTF8&tag=giftable02-20)
 
 The 50pcs Sterile bandages with the unique shape with pineapple pattern are a perfect pineapple gift.
 
@@ -377,11 +377,11 @@ With the pineapple shape, it's soft and comfortable to use, and easy to stick an
 
 ✔️ Individually wrapped for easy and hygienic use
 
-[Buy from Amazon](https://www.amazon.com/BioSwiss-Bandages-Collectable-Self-Adhesive-Pineapple/dp/B07S45YPYB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BioSwiss-Bandages-Collectable-Self-Adhesive-Pineapple/dp/B07S45YPYB/?ie=UTF8&tag=giftable02-20)
 
-### [21\. WAVEYU Pen Holder](https://www.amazon.com/WAVEYU-Pineapple-Pattern-Organizer-Classroom/dp/B07YG61QJV/?ie=UTF8&tag=avadalove-20)
+### [21\. WAVEYU Pen Holder](https://www.amazon.com/WAVEYU-Pineapple-Pattern-Organizer-Classroom/dp/B07YG61QJV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WAVEYU-Pineapple-Pattern-Organizer-Classroom/dp/B07YG61QJV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WAVEYU-Pineapple-Pattern-Organizer-Classroom/dp/B07YG61QJV/?ie=UTF8&tag=giftable02-20)
 
 Pineapples are one of the most beautiful fruits. They are also good for health. The pencil holder for the desk with a pineapple pattern is a perfect pineapple gift.
 
@@ -395,11 +395,11 @@ Designed with a pineapple-inspired pattern, this holder keeps your pens, pencils
 
 ✔️ Ample storage space for pens, pencils, and other items
 
-[Buy from Amazon](https://www.amazon.com/WAVEYU-Pineapple-Pattern-Organizer-Classroom/dp/B07YG61QJV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WAVEYU-Pineapple-Pattern-Organizer-Classroom/dp/B07YG61QJV/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Willow Tree Gracious Hand-Painted Figure](https://www.amazon.com/Willow-Tree-Gracious-sculpted-hand-painted/dp/B00P2NNGA6?ie=UTF8&tag=avadalove-20)
+### [22\. Willow Tree Gracious Hand-Painted Figure](https://www.amazon.com/Willow-Tree-Gracious-sculpted-hand-painted/dp/B00P2NNGA6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Willow-Tree-Gracious-sculpted-hand-painted/dp/B00P2NNGA6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Willow-Tree-Gracious-sculpted-hand-painted/dp/B00P2NNGA6?ie=UTF8&tag=giftable02-20)
 
 This cute and adorable pineapple gift is specially designed and hand-painted by the artist.
 
@@ -413,11 +413,11 @@ With its elegant design and hand-painted finish, this figurine conveys a sense o
 
 ✔️ Elegant and minimalist design fits any decor style
 
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-Gracious-sculpted-hand-painted/dp/B00P2NNGA6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Willow-Tree-Gracious-sculpted-hand-painted/dp/B00P2NNGA6?ie=UTF8&tag=giftable02-20)
 
-### [23\. KAVU Rope Bag](https://www.amazon.com/KAVU-Original-Cotton-Crossbody-Sling/dp/B07VVR7CB1?ie=UTF8&tag=avadalove-20)
+### [23\. KAVU Rope Bag](https://www.amazon.com/KAVU-Original-Cotton-Crossbody-Sling/dp/B07VVR7CB1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/KAVU-Original-Cotton-Crossbody-Sling/dp/B07VVR7CB1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KAVU-Original-Cotton-Crossbody-Sling/dp/B07VVR7CB1?ie=UTF8&tag=giftable02-20)
 
 The KAVU Rope Bag is not just a regular backpack, it's a versatile companion that combines style and functionality.
 
@@ -431,11 +431,11 @@ Ideal for your active lifestyle, this sling pack offers a combination of the com
 
 ✔️ Comfortable and adjustable rope shoulder strap
 
-[Buy from Amazon](https://www.amazon.com/KAVU-Original-Cotton-Crossbody-Sling/dp/B07VVR7CB1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KAVU-Original-Cotton-Crossbody-Sling/dp/B07VVR7CB1?ie=UTF8&tag=giftable02-20)
 
-### [24\. Mini Maker for Individual Waffles](https://www.amazon.com/DMWA100PP-Machine-Individual-Paninis-Pineapple/dp/B08BCSMRPH?ie=UTF8&tag=avadalove-20)
+### [24\. Mini Maker for Individual Waffles](https://www.amazon.com/DMWA100PP-Machine-Individual-Paninis-Pineapple/dp/B08BCSMRPH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DMWA100PP-Machine-Individual-Paninis-Pineapple/dp/B08BCSMRPH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DMWA100PP-Machine-Individual-Paninis-Pineapple/dp/B08BCSMRPH?ie=UTF8&tag=giftable02-20)
 
 For anyone who loves the deliciousness of waffles, this Mini Maker for individual waffles makes the perfect gift.
 
@@ -449,11 +449,11 @@ It comes with one waffle-making tool and four waffle baking tools that are easil
 
 ✔️ Quick and efficient waffle-making process
 
-[Buy from Amazon](https://www.amazon.com/DMWA100PP-Machine-Individual-Paninis-Pineapple/dp/B08BCSMRPH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DMWA100PP-Machine-Individual-Paninis-Pineapple/dp/B08BCSMRPH?ie=UTF8&tag=giftable02-20)
 
-### [25\. Rave Envy Beach Tote Bags](https://www.amazon.com/Pineapple-Summer-Beach-Tote-Bags/dp/B07BT4TCFY?ie=UTF8&tag=avadalove-20)
+### [25\. Rave Envy Beach Tote Bags](https://www.amazon.com/Pineapple-Summer-Beach-Tote-Bags/dp/B07BT4TCFY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pineapple-Summer-Beach-Tote-Bags/dp/B07BT4TCFY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pineapple-Summer-Beach-Tote-Bags/dp/B07BT4TCFY?ie=UTF8&tag=giftable02-20)
 
 Give your beach and pineapple lover a present that will make every day more enjoyable.
 
@@ -469,11 +469,11 @@ Your beach bum buddy will love this beach bag made from high-quality cotton canv
 
 ✔️ Perfect gift for those who love spending time by the water
 
-[Buy from Amazon](https://www.amazon.com/Pineapple-Summer-Beach-Tote-Bags/dp/B07BT4TCFY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pineapple-Summer-Beach-Tote-Bags/dp/B07BT4TCFY?ie=UTF8&tag=giftable02-20)
 
-### [26\. Short-Sleeve T-Shirts](https://www.amazon.com/Amazon-Essentials-Little-Short-Sleeve-Pineapple/dp/B07HS1P2XD?ie=UTF8&tag=avadalove-20)
+### [26\. Short-Sleeve T-Shirts](https://www.amazon.com/Amazon-Essentials-Little-Short-Sleeve-Pineapple/dp/B07HS1P2XD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-Essentials-Little-Short-Sleeve-Pineapple/dp/B07HS1P2XD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-Essentials-Little-Short-Sleeve-Pineapple/dp/B07HS1P2XD?ie=UTF8&tag=giftable02-20)
 
 For the toddler who loves being outside, wearing a sun-friendly short-sleeved T-shirt is a great gift!
 
@@ -487,11 +487,11 @@ With a super-soft feel, it’s sure to keep her comfortable during those long da
 
 ✔️ Available in a wide range of styles and colors
 
-[Buy from Amazon](https://www.amazon.com/Amazon-Essentials-Little-Short-Sleeve-Pineapple/dp/B07HS1P2XD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-Essentials-Little-Short-Sleeve-Pineapple/dp/B07HS1P2XD?ie=UTF8&tag=giftable02-20)
 
-### [27\. Pineapple Kitchen Dish Towel](https://www.amazon.com/Pantry-Pineapple-Kitchen-100-Percent-28-inch/dp/B0773ZYL7H?ie=UTF8&tag=avadalove-20)
+### [27\. Pineapple Kitchen Dish Towel](https://www.amazon.com/Pantry-Pineapple-Kitchen-100-Percent-28-inch/dp/B0773ZYL7H?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pantry-Pineapple-Kitchen-100-Percent-28-inch/dp/B0773ZYL7H?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pantry-Pineapple-Kitchen-100-Percent-28-inch/dp/B0773ZYL7H?ie=UTF8&tag=giftable02-20)
 
 Pineapple is one of the best gifts for the kitchen. If you're planning to buy a pineapple gift, you should select a set of kitchen dish towels that you can use over and over again.
 
@@ -505,11 +505,11 @@ These pineapples will help you get through the busy times in your home. These ar
 
 ✔️ Durable material for long-lasting performance
 
-[Buy from Amazon](https://www.amazon.com/Pantry-Pineapple-Kitchen-100-Percent-28-inch/dp/B0773ZYL7H?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pantry-Pineapple-Kitchen-100-Percent-28-inch/dp/B0773ZYL7H?ie=UTF8&tag=giftable02-20)
 
-### [28\. Gilded Pineapple Soap Dispenser](https://www.amazon.com/SKL-Home-Saturday-Knight-Ltd/dp/B07J3SKS2H/?ie=UTF8&tag=avadalove-20)
+### [28\. Gilded Pineapple Soap Dispenser](https://www.amazon.com/SKL-Home-Saturday-Knight-Ltd/dp/B07J3SKS2H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SKL-Home-Saturday-Knight-Ltd/dp/B07J3SKS2H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SKL-Home-Saturday-Knight-Ltd/dp/B07J3SKS2H/?ie=UTF8&tag=giftable02-20)
 
 Get that tropical island feel without leaving home with this soap dispenser from SKL Home by Saturday Knight Ltd.
 
@@ -523,11 +523,11 @@ It is hand-crafted using solid pine wood and the white color is achieved through
 
 ✔️ Adds a touch of sophistication to your bathroom
 
-[Buy from Amazon](https://www.amazon.com/SKL-Home-Saturday-Knight-Ltd/dp/B07J3SKS2H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SKL-Home-Saturday-Knight-Ltd/dp/B07J3SKS2H/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Squishy Pineapple Toy Stress Relief](https://www.amazon.com/Squishy-Pineapple-Scented-Collection-Shellvcase/dp/B076SC5S32/?ie=UTF8&tag=avadalove-20)
+### [29\. Squishy Pineapple Toy Stress Relief](https://www.amazon.com/Squishy-Pineapple-Scented-Collection-Shellvcase/dp/B076SC5S32/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Squishy-Pineapple-Scented-Collection-Shellvcase/dp/B076SC5S32/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Squishy-Pineapple-Scented-Collection-Shellvcase/dp/B076SC5S32/?ie=UTF8&tag=giftable02-20)
 
 A fun gift for anyone who loves Pineapples, this Squishy Pineapple is a cute Stress Relief for anyone looking for a little relief from the stresses of the day.
 
@@ -543,11 +543,11 @@ With its adorable design, cute smell, and great scent, this toy will help provid
 
 ✔️ Compact yet satisfying to squeeze
 
-[Buy from Amazon](https://www.amazon.com/Squishy-Pineapple-Scented-Collection-Shellvcase/dp/B076SC5S32/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Squishy-Pineapple-Scented-Collection-Shellvcase/dp/B076SC5S32/?ie=UTF8&tag=giftable02-20)
 
-### [30\. NC Be A Pineapple Makeup Bag](https://www.amazon.com/Pineapple-Birthday-Toiletry-Accessories-Organizer/dp/B098SLMDXK?ie=UTF8&tag=avadalove-20)
+### [30\. NC Be A Pineapple Makeup Bag](https://www.amazon.com/Pineapple-Birthday-Toiletry-Accessories-Organizer/dp/B098SLMDXK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pineapple-Birthday-Toiletry-Accessories-Organizer/dp/B098SLMDXK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pineapple-Birthday-Toiletry-Accessories-Organizer/dp/B098SLMDXK?ie=UTF8&tag=giftable02-20)
 
 Do you want to be the center of attention on Christmas Day? Then this NC Pineapple Makeup Bag is perfect for you!
 
@@ -561,11 +561,11 @@ This fun pineapple makeup bag can carry your favorite beauty products so you can
 
 ✔️ Portable design for travel or everyday use
 
-[Buy from Amazon](https://www.amazon.com/Pineapple-Birthday-Toiletry-Accessories-Organizer/dp/B098SLMDXK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pineapple-Birthday-Toiletry-Accessories-Organizer/dp/B098SLMDXK?ie=UTF8&tag=giftable02-20)
 
-### [31\. Crocs Jibbitz Fruit Shoe Charms](https://www.amazon.com/Crocs-Jibbitz-Charms-Multicolor-Small/dp/B07DBFGK3T/?ie=UTF8&tag=avadalove-20)
+### [31\. Crocs Jibbitz Fruit Shoe Charms](https://www.amazon.com/Crocs-Jibbitz-Charms-Multicolor-Small/dp/B07DBFGK3T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crocs-Jibbitz-Charms-Multicolor-Small/dp/B07DBFGK3T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crocs-Jibbitz-Charms-Multicolor-Small/dp/B07DBFGK3T/?ie=UTF8&tag=giftable02-20)
 
 There's no better way to start the day than by putting on a set of shoes with these adorable pineapple charms.
 
@@ -579,11 +579,11 @@ These delightful little pieces of pineapple are sewn onto Crocs Jibbitz shoes an
 
 ✔️ Adds a unique and quirky touch to your footwear
 
-[Buy from Amazon](https://www.amazon.com/Crocs-Jibbitz-Charms-Multicolor-Small/dp/B07DBFGK3T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crocs-Jibbitz-Charms-Multicolor-Small/dp/B07DBFGK3T/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Summertime Fleece Throw Blanket](https://www.amazon.com/D%C3%A9cor-More-Summertime-Whimsy-Blanket/dp/B07GBGDJNP?ie=UTF8&tag=avadalove-20)
+### [32\. Summertime Fleece Throw Blanket](https://www.amazon.com/D%C3%A9cor-More-Summertime-Whimsy-Blanket/dp/B07GBGDJNP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/D%C3%A9cor-More-Summertime-Whimsy-Blanket/dp/B07GBGDJNP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/D%C3%A9cor-More-Summertime-Whimsy-Blanket/dp/B07GBGDJNP?ie=UTF8&tag=giftable02-20)
 
 The summertime plush throw blanket with a pineapple pattern is a great pineapple gift.
 
@@ -597,11 +597,11 @@ Give one as a pineapple-inspired gift this summer and let your recipient know yo
 
 ✔️ Provides warmth and comfort during chilly evenings
 
-[Buy from Amazon](https://www.amazon.com/D%C3%A9cor-More-Summertime-Whimsy-Blanket/dp/B07GBGDJNP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/D%C3%A9cor-More-Summertime-Whimsy-Blanket/dp/B07GBGDJNP?ie=UTF8&tag=giftable02-20)
 
-### [33\. Symbols Expandable Bangle](https://www.amazon.com/Alex-Ani-Pineapple-Rafaelian-Expandable/dp/B01N2WORYY/?ie=UTF8&tag=avadalove-20)
+### [33\. Symbols Expandable Bangle](https://www.amazon.com/Alex-Ani-Pineapple-Rafaelian-Expandable/dp/B01N2WORYY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Alex-Ani-Pineapple-Rafaelian-Expandable/dp/B01N2WORYY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Alex-Ani-Pineapple-Rafaelian-Expandable/dp/B01N2WORYY/?ie=UTF8&tag=giftable02-20)
 
 Pineapples have become increasingly popular as a fruit and a symbol. In fact, the fruit is often called the "king of fruits".
 
@@ -615,11 +615,11 @@ With its fresh green foliage and golden yellow skin, the pineapple is a unique f
 
 ✔️ Holds personal significance and meaning
 
-[Buy from Amazon](https://www.amazon.com/Alex-Ani-Pineapple-Rafaelian-Expandable/dp/B01N2WORYY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Alex-Ani-Pineapple-Rafaelian-Expandable/dp/B01N2WORYY/?ie=UTF8&tag=giftable02-20)
 
-### [34\. LED Pineapple Ananas Night Light](https://www.amazon.com/Pineapple-Illusion-Decoration-Operated-Changing/dp/B07DVBGVP6?ie=UTF8&tag=avadalove-20)
+### [34\. LED Pineapple Ananas Night Light](https://www.amazon.com/Pineapple-Illusion-Decoration-Operated-Changing/dp/B07DVBGVP6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pineapple-Illusion-Decoration-Operated-Changing/dp/B07DVBGVP6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pineapple-Illusion-Decoration-Operated-Changing/dp/B07DVBGVP6?ie=UTF8&tag=giftable02-20)
 
 If you know someone who loves pineapples this will be a wonderful Christmas gift for them.
 
@@ -635,11 +635,11 @@ They can enjoy watching the light beam up and down the length of the pineapple a
 
 ✔️ Ideal bedside size (9.1" height)
 
-[Buy from Amazon](https://www.amazon.com/Pineapple-Illusion-Decoration-Operated-Changing/dp/B07DVBGVP6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pineapple-Illusion-Decoration-Operated-Changing/dp/B07DVBGVP6?ie=UTF8&tag=giftable02-20)
 
-### [35\. Vacuum Insulated Bottles](https://www.amazon.com/Stainless-Bottle-handle-liquids-Insulated/dp/B07KNDDSYH/?ie=UTF8&tag=avadalove-20)
+### [35\. Vacuum Insulated Bottles](https://www.amazon.com/Stainless-Bottle-handle-liquids-Insulated/dp/B07KNDDSYH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stainless-Bottle-handle-liquids-Insulated/dp/B07KNDDSYH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stainless-Bottle-handle-liquids-Insulated/dp/B07KNDDSYH/?ie=UTF8&tag=giftable02-20)
 
 Get your day started off right with the insulated bottle that comes with a straw lid as well as a loop handle. It is perfect for a hot or cold drink and has a pineapple black design!
 
@@ -653,11 +653,11 @@ With their double-walled insulation, these bottles keep your beverages hot or co
 
 ✔️ Sleek and stylish design
 
-[Buy from Amazon](https://www.amazon.com/Stainless-Bottle-handle-liquids-Insulated/dp/B07KNDDSYH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stainless-Bottle-handle-liquids-Insulated/dp/B07KNDDSYH/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Cocktail Bar Pineapple Tumbler Mug Cup](https://www.amazon.com/Vastigo-Pineapple-Stainless-Cocktail-Standing/dp/B085DPKRWZ?ie=UTF8&tag=avadalove-20)
+### [36\. Cocktail Bar Pineapple Tumbler Mug Cup](https://www.amazon.com/Vastigo-Pineapple-Stainless-Cocktail-Standing/dp/B085DPKRWZ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vastigo-Pineapple-Stainless-Cocktail-Standing/dp/B085DPKRWZ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vastigo-Pineapple-Stainless-Cocktail-Standing/dp/B085DPKRWZ?ie=UTF8&tag=giftable02-20)
 
 A unique and stylish stainless-steel mug with a classic pineapple pattern design that adds a beautiful tropical touch to your drink.
 
@@ -671,11 +671,11 @@ With its pineapple-shaped design and stainless steel construction, this tumbler 
 
 ✔️ Perfect for serving cocktails in style
 
-[Buy from Amazon](https://www.amazon.com/Vastigo-Pineapple-Stainless-Cocktail-Standing/dp/B085DPKRWZ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vastigo-Pineapple-Stainless-Cocktail-Standing/dp/B085DPKRWZ?ie=UTF8&tag=giftable02-20)
 
-### [37\. Pineapple Initial Charm Keychain](https://www.amazon.com/Pineapple-Gifts-Initial-Keychain-Women/dp/B07X1PTCVQ/?ie=UTF8&tag=avadalove-20)
+### [37\. Pineapple Initial Charm Keychain](https://www.amazon.com/Pineapple-Gifts-Initial-Keychain-Women/dp/B07X1PTCVQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pineapple-Gifts-Initial-Keychain-Women/dp/B07X1PTCVQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pineapple-Gifts-Initial-Keychain-Women/dp/B07X1PTCVQ/?ie=UTF8&tag=giftable02-20)
 
 A pineapple keychain, a pineapple in the hand of your loved ones, or a lovely pineapple gift, this pineapple gift will make your friends, relatives, and colleagues feel special.
 
@@ -689,7 +689,7 @@ With an initial charm and a pineapple pendant, this keychain is a delightful and
 
 ✔️ Ideal for keeping keys or bags secure
 
-[Buy from Amazon](https://www.amazon.com/Pineapple-Gifts-Initial-Keychain-Women/dp/B07X1PTCVQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pineapple-Gifts-Initial-Keychain-Women/dp/B07X1PTCVQ/?ie=UTF8&tag=giftable02-20)
 
 ## Final words
 

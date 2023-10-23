@@ -87,9 +87,9 @@ _Pros:_
 
 [Buy from Loveable](https://loveable.ai/products/personalized-photo-and-name-customized-dart-board-wall-clock-funny-game-room-decor-gift-for-dart-board-lover-210icnnpwc047?variant=43998407557352?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-board-game-lovers-even-picky-players-will-love)
 
-### [5\. New York Slice](https://www.amazon.com/Bezier-Games-BEZNYSL-York-Slice/dp/B01NCAQGSF?ie=UTF8&tag=avadalove-20)
+### [5\. New York Slice](https://www.amazon.com/Bezier-Games-BEZNYSL-York-Slice/dp/B01NCAQGSF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bezier-Games-BEZNYSL-York-Slice/dp/B01NCAQGSF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bezier-Games-BEZNYSL-York-Slice/dp/B01NCAQGSF?ie=UTF8&tag=giftable02-20)
 
 A new **[kind of pizza](/gifts-for-pizza-lovers/)** party game where each person makes a slice, giving others a first choice, and keeping a tasty half for themselves!
 
@@ -103,7 +103,7 @@ Play solo or with a friend and enjoy a delicious, fast-paced pizza party game! D
 
 ✔️ Variety of delicious toppings available.
 
-[Buy from Amazon](https://www.amazon.com/Bezier-Games-BEZNYSL-York-Slice/dp/B01NCAQGSF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bezier-Games-BEZNYSL-York-Slice/dp/B01NCAQGSF?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Steampunk Dice Tower](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/uk/listing/457924346/steampunk-dice-tower-dice-games-board)
 
@@ -159,9 +159,9 @@ What is more, if you are looking for a cheap yet fun present for board gamers, t
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/colorku)
 
-### [9\. Don’t Get Stabbed](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=avadalove-20)
+### [9\. Don’t Get Stabbed](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=giftable02-20)
 
 A party game for any age, this is a game for the whole family! It’s got everyone covered; from big kids to **[little kids](/cheap-gifts-kids/)**, adults to teenagers, and everyone in-between.
 
@@ -175,11 +175,11 @@ No matter how old you are, this is the game for any occasion. Pick up this uniqu
 
 ✔️ Humorous and entertaining gameplay experience.
 
-[Buy from Amazon](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dont-Get-Stabbed-Friends-Pretend/dp/B07Y9DT3SQ/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Board Games Socks](https://www.amazon.com/gp/product/B07JQQZXFC//?ie=UTF8&tag=avadalove-20)
+### [10\. Board Games Socks](https://www.amazon.com/gp/product/B07JQQZXFC//?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B07JQQZXFC//?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B07JQQZXFC//?ie=UTF8&tag=giftable02-20)
 
 Sock lovers and game lovers alike will appreciate this gift. Made with the finest cotton for softness and comfort, this cozy cuddly stuffed animal is an adorable companion and playmate for your little one.
 
@@ -193,7 +193,7 @@ Just place it in their crib or in a car seat tray to soothe and entertain the ba
 
 ✔️ Great gift for board game enthusiasts.
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B07JQQZXFC//?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B07JQQZXFC//?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Bandit for Oath Board Game](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1058258211/bandit-for-oath-board-game)
 
@@ -429,9 +429,9 @@ If it's a game, it's on this list. The goal of the site is to give a definitive 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/711501279/top-100-board-games-2022-bgg-edition)
 
-### [24\. Shut The Box Dice Game](https://www.amazon.com/AMEROUS-Upgraded-Players-Wooden-Classroom/dp/B08ZYDR8KF/?ie=UTF8&tag=avadalove-20)
+### [24\. Shut The Box Dice Game](https://www.amazon.com/AMEROUS-Upgraded-Players-Wooden-Classroom/dp/B08ZYDR8KF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AMEROUS-Upgraded-Players-Wooden-Classroom/dp/B08ZYDR8KF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AMEROUS-Upgraded-Players-Wooden-Classroom/dp/B08ZYDR8KF/?ie=UTF8&tag=giftable02-20)
 
 This unique handmade game board is made from wood and includes 7 original pieces. The game comes as a set with dice, game tiles, cardboard, and wooden token.
 
@@ -445,11 +445,11 @@ It's also a great gift for a child or loved one, especially it is an amazing pre
 
 ✔️ Compact and portable for travel or storage.
 
-[Buy from Amazon](https://www.amazon.com/AMEROUS-Upgraded-Players-Wooden-Classroom/dp/B08ZYDR8KF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AMEROUS-Upgraded-Players-Wooden-Classroom/dp/B08ZYDR8KF/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Rummikub](https://www.amazon.com/Rummikub-Complete-Original-Full-Size-Exclusive/dp/B07NHYYM1T/?ie=UTF8&tag=avadalove-20)
+### [25\. Rummikub](https://www.amazon.com/Rummikub-Complete-Original-Full-Size-Exclusive/dp/B07NHYYM1T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Rummikub-Complete-Original-Full-Size-Exclusive/dp/B07NHYYM1T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Rummikub-Complete-Original-Full-Size-Exclusive/dp/B07NHYYM1T/?ie=UTF8&tag=giftable02-20)
 
 You'll love our Rummikub game for the family or the office! This classic game is a winner for both kids and adults and can be played just about anywhere. It's made from high-quality material that's easy to clean and comes in a range of exciting colors so everyone can find their favorite color.
 
@@ -463,11 +463,11 @@ If you have not made up your mind on choosing what gift for your board gamer, th
 
 ✔️ Suitable for players of different ages.
 
-[Buy from Amazon](https://www.amazon.com/Rummikub-Complete-Original-Full-Size-Exclusive/dp/B07NHYYM1T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Rummikub-Complete-Original-Full-Size-Exclusive/dp/B07NHYYM1T/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Boardgame Backpack](https://www.amazon.com/Ultimate-Boardgame-Backpack-Multi-Functional-Carry/dp/B07KMMMVRB/?ie=UTF8&tag=avadalove-20)
+### [26\. Boardgame Backpack](https://www.amazon.com/Ultimate-Boardgame-Backpack-Multi-Functional-Carry/dp/B07KMMMVRB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ultimate-Boardgame-Backpack-Multi-Functional-Carry/dp/B07KMMMVRB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ultimate-Boardgame-Backpack-Multi-Functional-Carry/dp/B07KMMMVRB/?ie=UTF8&tag=giftable02-20)
 
 A great choice for storing board games at home or while traveling. The expandable board game bag is the perfect addition to any gamer's board game collection. This premium board game storage case has been designed for the most protective environment possible.
 
@@ -481,11 +481,11 @@ Any board game lover will be interested in this, so he will feel pleasant when r
 
 ✔️ Often equipped with multiple pockets for accessories.
 
-[Buy from Amazon](https://www.amazon.com/Ultimate-Boardgame-Backpack-Multi-Functional-Carry/dp/B07KMMMVRB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ultimate-Boardgame-Backpack-Multi-Functional-Carry/dp/B07KMMMVRB/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Strategy Board Game](https://www.amazon.com/Wonder-Forge-Disney-Villainous-Strategy/dp/B07DLGD9K6?ie=UTF8&tag=avadalove-20)
+### [27\. Strategy Board Game](https://www.amazon.com/Wonder-Forge-Disney-Villainous-Strategy/dp/B07DLGD9K6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wonder-Forge-Disney-Villainous-Strategy/dp/B07DLGD9K6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wonder-Forge-Disney-Villainous-Strategy/dp/B07DLGD9K6?ie=UTF8&tag=giftable02-20)
 
 This exciting and dynamic board game gives player 6 Disney villains and 1 player as their target. Each villain has a secret goal and plans on getting it done, but players must defeat their enemies to become the new hero of their kingdom.
 
@@ -499,11 +499,11 @@ This is to say, this kind of board game is too interesting that any gamer will b
 
 ✔️ Offers replayability and depth of tactics.
 
-[Buy from Amazon](https://www.amazon.com/Wonder-Forge-Disney-Villainous-Strategy/dp/B07DLGD9K6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wonder-Forge-Disney-Villainous-Strategy/dp/B07DLGD9K6?ie=UTF8&tag=giftable02-20)
 
-### [28\. Dice Tray](https://www.amazon.co.uk/dp/B0814VCQ18?ie=UTF8&tag=avadalove-20)
+### [28\. Dice Tray](https://www.amazon.co.uk/dp/B0814VCQ18?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/dp/B0814VCQ18?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/dp/B0814VCQ18?ie=UTF8&tag=giftable02-20)
 
 Made for the best roleplaying games out there, these dice can fit in your hand when you don't want them rolling around on the table. Perfect for games like Pathfinder and **[Dungeons & Dragons](/dnd-gifts/)**.
 
@@ -517,7 +517,7 @@ They have an easy-to-grip body made from flexible plastic and are printed with g
 
 ✔️ Convenient for organized and clutter-free gameplay.
 
-[Buy from Amazon](https://www.amazon.co.uk/dp/B0814VCQ18?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/dp/B0814VCQ18?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Board Game Coasters](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/uk/listing/646698209/meeple-board-game-coasters-great-for)
 

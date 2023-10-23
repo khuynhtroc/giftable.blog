@@ -323,9 +323,9 @@ The necklace is made of high-quality sterling silver, ensuring durability and lo
 
 [Buy from Loveable](https://loveable.ai/products/to-my-mommy-mom-to-be-baby-feet-sterling-silver-heart-pendant-necklace-baby-shower-gift-expecting-mother-pregnancy-gift-set-301ihpnpje029?variant=44268736938216?utm_source=avada&ranking=&utm_source=&utm_campaign=congratulation-gifts-for-pregnancy-on-a-special-day)
 
-### [18\. Kicking Me Smalls Funny T-Shirt](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B07289Q29L?ie=UTF8&tag=avadalove-20)
+### [18\. Kicking Me Smalls Funny T-Shirt](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B07289Q29L?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B07289Q29L?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B07289Q29L?ie=UTF8&tag=giftable02-20)
 
 Make your pregnancy announcement memorable and cherish the special moments with this delightful maternity t-shirt.
 
@@ -339,11 +339,11 @@ Crazy Dog T-shirt tees are created and printed in the United States. We screen p
 
 ✔️ Available in various sizes for a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B07289Q29L?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B07289Q29L?ie=UTF8&tag=giftable02-20)
 
-### [19\. Mommy To Be Mug](https://www.amazon.com/Shower-Gifts-Pregnancy-Expecting-Mothers/dp/B073V7XLJT?ie=UTF8&tag=avadalove-20)
+### [19\. Mommy To Be Mug](https://www.amazon.com/Shower-Gifts-Pregnancy-Expecting-Mothers/dp/B073V7XLJT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Shower-Gifts-Pregnancy-Expecting-Mothers/dp/B073V7XLJT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Shower-Gifts-Pregnancy-Expecting-Mothers/dp/B073V7XLJT?ie=UTF8&tag=giftable02-20)
 
 Imagine the expression on the expecting mother's face when she opens your gift and discovers her new favorite Mommy To Be Mug with a stunning emotional mother dedication Coaster!
 
@@ -357,11 +357,11 @@ The finest baby shower and pregnancy announcement gift for less than $20. With t
 
 ✔️ Sturdy handle and elegant design for a comfortable grip
 
-[Buy from Amazon](https://www.amazon.com/Shower-Gifts-Pregnancy-Expecting-Mothers/dp/B073V7XLJT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Shower-Gifts-Pregnancy-Expecting-Mothers/dp/B073V7XLJT?ie=UTF8&tag=giftable02-20)
 
-### [20\. Pink Stork Pregnancy Flakes](https://www.amazon.com/dp/B08LF4BJ4C/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B08LF4BJ4C&pd_rd_w=BMzsQ&content-id=amzn1.sym.a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_p=a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_r=VB7RG36H5X6K6N2HY9MJ&pd_rd_wg=wa2gx&pd_rd_r=c3eb71fe-971f-42c2-a15d-f5102801f823&s=hpc&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExT1oyUlk4NkhHRjNaJmVuY3J5cHRlZElkPUEwNzI1OTc0VlNVNFBSMzVFUU9NJmVuY3J5cHRlZEFkSWQ9QTAwNTI3NjIzTDJXM085NzNMQVZNJndpZGdldE5hbWU9c3BfZGV0YWlsX?ie=UTF8&tag=avadalove-20)
+### [20\. Pink Stork Pregnancy Flakes](https://www.amazon.com/dp/B08LF4BJ4C/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B08LF4BJ4C&pd_rd_w=BMzsQ&content-id=amzn1.sym.a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_p=a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_r=VB7RG36H5X6K6N2HY9MJ&pd_rd_wg=wa2gx&pd_rd_r=c3eb71fe-971f-42c2-a15d-f5102801f823&s=hpc&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExT1oyUlk4NkhHRjNaJmVuY3J5cHRlZElkPUEwNzI1OTc0VlNVNFBSMzVFUU9NJmVuY3J5cHRlZEFkSWQ9QTAwNTI3NjIzTDJXM085NzNMQVZNJndpZGdldE5hbWU9c3BfZGV0YWlsX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B08LF4BJ4C/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B08LF4BJ4C&pd_rd_w=BMzsQ&content-id=amzn1.sym.a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_p=a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_r=VB7RG36H5X6K6N2HY9MJ&pd_rd_wg=wa2gx&pd_rd_r=c3eb71fe-971f-42c2-a15d-f5102801f823&s=hpc&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExT1oyUlk4NkhHRjNaJmVuY3J5cHRlZElkPUEwNzI1OTc0VlNVNFBSMzVFUU9NJmVuY3J5cHRlZEFkSWQ9QTAwNTI3NjIzTDJXM085NzNMQVZNJndpZGdldE5hbWU9c3BfZGV0YWlsX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B08LF4BJ4C/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B08LF4BJ4C&pd_rd_w=BMzsQ&content-id=amzn1.sym.a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_p=a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_r=VB7RG36H5X6K6N2HY9MJ&pd_rd_wg=wa2gx&pd_rd_r=c3eb71fe-971f-42c2-a15d-f5102801f823&s=hpc&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExT1oyUlk4NkhHRjNaJmVuY3J5cHRlZElkPUEwNzI1OTc0VlNVNFBSMzVFUU9NJmVuY3J5cHRlZEFkSWQ9QTAwNTI3NjIzTDJXM085NzNMQVZNJndpZGdldE5hbWU9c3BfZGV0YWlsX?ie=UTF8&tag=giftable02-20)
 
 Give the gift of relaxation and self-care to the expectant mother in your life with Pink Stork Pregnancy Flakes.
 
@@ -375,7 +375,7 @@ This product is intended to help with relaxation as well as relief from nausea a
 
 ✔️ Safe and gentle on sensitive skin
 
-[Buy from Amazon](https://www.amazon.com/dp/B08LF4BJ4C/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B08LF4BJ4C&pd_rd_w=BMzsQ&content-id=amzn1.sym.a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_p=a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_r=VB7RG36H5X6K6N2HY9MJ&pd_rd_wg=wa2gx&pd_rd_r=c3eb71fe-971f-42c2-a15d-f5102801f823&s=hpc&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExT1oyUlk4NkhHRjNaJmVuY3J5cHRlZElkPUEwNzI1OTc0VlNVNFBSMzVFUU9NJmVuY3J5cHRlZEFkSWQ9QTAwNTI3NjIzTDJXM085NzNMQVZNJndpZGdldE5hbWU9c3BfZGV0YWlsX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B08LF4BJ4C/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B08LF4BJ4C&pd_rd_w=BMzsQ&content-id=amzn1.sym.a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_p=a8bfa847-39f1-4f54-bb95-ee052e9f7910&pf_rd_r=VB7RG36H5X6K6N2HY9MJ&pd_rd_wg=wa2gx&pd_rd_r=c3eb71fe-971f-42c2-a15d-f5102801f823&s=hpc&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExT1oyUlk4NkhHRjNaJmVuY3J5cHRlZElkPUEwNzI1OTc0VlNVNFBSMzVFUU9NJmVuY3J5cHRlZEFkSWQ9QTAwNTI3NjIzTDJXM085NzNMQVZNJndpZGdldE5hbWU9c3BfZGV0YWlsX?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Pregnancy Prayer Cards](https://www.etsy.com/listing/819735650/pregnancy-gift-expecting-mom-gift)
 
@@ -485,9 +485,9 @@ Each of the 40 pages features a lovely eucalyptus pattern that has been professi
 
 [Buy from Esty](https://www.etsy.com/listing/930166644/pregnancy-journal-pregnancy-planner)
 
-### [27\. Knit Sleeping Bag](https://www.amazon.com/XMWEALTHY-Newborn-Swaddle-Sleeping-Stroller/dp/B01N7BN23M?ie=UTF8&tag=avadalove-20)
+### [27\. Knit Sleeping Bag](https://www.amazon.com/XMWEALTHY-Newborn-Swaddle-Sleeping-Stroller/dp/B01N7BN23M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/XMWEALTHY-Newborn-Swaddle-Sleeping-Stroller/dp/B01N7BN23M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/XMWEALTHY-Newborn-Swaddle-Sleeping-Stroller/dp/B01N7BN23M?ie=UTF8&tag=giftable02-20)
 
 This knit fabric is really smooth and pleasant, and it will keep your baby warm. It can be used as a blanket as well as a sleeping bag.
 
@@ -501,11 +501,11 @@ Suitable for babies aged 0 to 6 months, and an ideal present for pregnant women.
 
 ✔️ Soft and breathable fabric for cozy sleep
 
-[Buy from Amazon](https://www.amazon.com/XMWEALTHY-Newborn-Swaddle-Sleeping-Stroller/dp/B01N7BN23M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/XMWEALTHY-Newborn-Swaddle-Sleeping-Stroller/dp/B01N7BN23M?ie=UTF8&tag=giftable02-20)
 
-### [28\. Fill-in-the-Blank Gift Journal](https://www.amazon.com/Knock-Youre-Bestie-Fill-Journal/dp/1601066902/?ie=UTF8&tag=avadalove-20)
+### [28\. Fill-in-the-Blank Gift Journal](https://www.amazon.com/Knock-Youre-Bestie-Fill-Journal/dp/1601066902/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Knock-Youre-Bestie-Fill-Journal/dp/1601066902/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Knock-Youre-Bestie-Fill-Journal/dp/1601066902/?ie=UTF8&tag=giftable02-20)
 
 This tiny book features fill-in-the-blank sentences describing why your best friend is the best.
 
@@ -519,11 +519,11 @@ It has 112 pages; hardcover with removable clear plastic jacket. You may make it
 
 ✔️ Personalize messages and memories with fill-in-the-blank prompts
 
-[Buy from Amazon](https://www.amazon.com/Knock-Youre-Bestie-Fill-Journal/dp/1601066902/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Knock-Youre-Bestie-Fill-Journal/dp/1601066902/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Pregnancy Journal Memory Book with Stickers](https://www.amazon.com/Belly-Book-Pregnancy-Scrapbook-Milestone/dp/B072LP2RDX?ie=UTF8&tag=avadalove-20)
+### [29\. Pregnancy Journal Memory Book with Stickers](https://www.amazon.com/Belly-Book-Pregnancy-Scrapbook-Milestone/dp/B072LP2RDX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Belly-Book-Pregnancy-Scrapbook-Milestone/dp/B072LP2RDX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Belly-Book-Pregnancy-Scrapbook-Milestone/dp/B072LP2RDX?ie=UTF8&tag=giftable02-20)
 
 This lovely pregnancy journal is a lovely way to record all the key moments of your pregnancy. Photographs and milestones are great ways to capture special experiences!
 
@@ -537,7 +537,7 @@ This wonderful pregnancy scrapbook, ideal for you as a new mum or as a baby show
 
 ✔️ Unique designs for each milestone or moment
 
-[Buy from Amazon](https://www.amazon.com/Belly-Book-Pregnancy-Scrapbook-Milestone/dp/B072LP2RDX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Belly-Book-Pregnancy-Scrapbook-Milestone/dp/B072LP2RDX?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Mama to Be Bracelet](https://www.etsy.com/listing/974415508/pregnancy-gift-for-mom-to-be-mama-to-be)
 
@@ -773,9 +773,9 @@ The chic apothecary jar candle has a soft pink and red polka dot label with a te
 
 [Buy from Esty](https://www.etsy.com/listing/963875255/mum-to-be-congratulations-gift-candle)
 
-### [43\. Baby Bottle Feeding Gift Set](https://www.amazon.com/Tommee-Tippee-Advanced-Newborn-Feeding/dp/B078H9H19W/?ie=UTF8&tag=avadalove-20)
+### [43\. Baby Bottle Feeding Gift Set](https://www.amazon.com/Tommee-Tippee-Advanced-Newborn-Feeding/dp/B078H9H19W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tommee-Tippee-Advanced-Newborn-Feeding/dp/B078H9H19W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tommee-Tippee-Advanced-Newborn-Feeding/dp/B078H9H19W/?ie=UTF8&tag=giftable02-20)
 
 The unique 3-piece anti-colic baby bottle design pushes air away from the milk, resulting in 80% less discomfort and 100% more smiles!
 
@@ -789,11 +789,11 @@ The ideal bottle for breastfed babies, with an award-winning breast-like nipple 
 
 ✔️ BPA-free bottles designed to mimic the breast for comfortable feeding
 
-[Buy from Amazon](https://www.amazon.com/Tommee-Tippee-Advanced-Newborn-Feeding/dp/B078H9H19W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tommee-Tippee-Advanced-Newborn-Feeding/dp/B078H9H19W/?ie=UTF8&tag=giftable02-20)
 
-### [44\. Shower Steamers](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=avadalove-20)
+### [44\. Shower Steamers](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=giftable02-20)
 
 Surprise Your Girl & Loved Ones; spoil your sweetheart for Christmas or Valentine's Day, your mother for Mother's Day, or a friend for her birthday! This bath steamer is unrivaled when it comes to spa presents, soothing gifts for women, or stress relief gifts for women!
 
@@ -805,11 +805,11 @@ Surprise Your Girl & Loved Ones; spoil your sweetheart for Christmas or Valentin
 
 ✔️ Variety of scents for personalized aromatherapy
 
-[Buy from Amazon](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bedtime-Essential-Oil-Shower-Steamer/dp/B08FDCLXNP/?ie=UTF8&tag=giftable02-20)
 
-### [45\. iHave Bath Bombs](https://www.amazon.com/iHave-Natural-Handmade-Essential-Romantic/dp/B09PGNK1NH?ie=UTF8&tag=avadalove-20)
+### [45\. iHave Bath Bombs](https://www.amazon.com/iHave-Natural-Handmade-Essential-Romantic/dp/B09PGNK1NH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/iHave-Natural-Handmade-Essential-Romantic/dp/B09PGNK1NH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/iHave-Natural-Handmade-Essential-Romantic/dp/B09PGNK1NH?ie=UTF8&tag=giftable02-20)
 
 This excellent bath bomb gift set is suitable as both a romantic spa present for women and a self-care gift for expectant women.
 
@@ -823,11 +823,11 @@ The bath bombs for women are scented with 12 different natural scents. Mint, lav
 
 ✔️ Variety of scents for a personalized bathing experience
 
-[Buy from Amazon](https://www.amazon.com/iHave-Natural-Handmade-Essential-Romantic/dp/B09PGNK1NH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/iHave-Natural-Handmade-Essential-Romantic/dp/B09PGNK1NH?ie=UTF8&tag=giftable02-20)
 
-### [46\. Bath Discovery Gift Set](https://www.amazon.com/Johnsons-Discovery-Baby-Essentials-Parents/dp/B07NH4YSPX?ie=UTF8&tag=avadalove-20)
+### [46\. Bath Discovery Gift Set](https://www.amazon.com/Johnsons-Discovery-Baby-Essentials-Parents/dp/B07NH4YSPX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Johnsons-Discovery-Baby-Essentials-Parents/dp/B07NH4YSPX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Johnsons-Discovery-Baby-Essentials-Parents/dp/B07NH4YSPX?ie=UTF8&tag=giftable02-20)
 
 Johnson's Bath Discovery Baby Gift Set includes hypoallergenic bath time essentials in a stylish, reusable bath caddy, all of which are meant to make bath time fun for new mom and her baby.
 
@@ -841,11 +841,11 @@ This baby bath gift set includes everything you need to cleanse, nourish, and pr
 
 ✔️ Convenient and travel-friendly size for on-the-go parents
 
-[Buy from Amazon](https://www.amazon.com/Johnsons-Discovery-Baby-Essentials-Parents/dp/B07NH4YSPX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Johnsons-Discovery-Baby-Essentials-Parents/dp/B07NH4YSPX?ie=UTF8&tag=giftable02-20)
 
-### [47\. Baby Swaddle Blanket](https://www.amazon.com/Ultra-Soft-Essential-Receiving-Swaddling-Accessories/dp/B07Q78S742?ie=UTF8&tag=avadalove-20)
+### [47\. Baby Swaddle Blanket](https://www.amazon.com/Ultra-Soft-Essential-Receiving-Swaddling-Accessories/dp/B07Q78S742?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ultra-Soft-Essential-Receiving-Swaddling-Accessories/dp/B07Q78S742?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ultra-Soft-Essential-Receiving-Swaddling-Accessories/dp/B07Q78S742?ie=UTF8&tag=giftable02-20)
 
 Our swaddling blanket's incredible softness will soothe your baby! Order this wonderful swaddle blanket for congratulatory pregnancy gifts or a baby shower, and you'll be sure to wow her!
 
@@ -859,11 +859,11 @@ This ultra-soft plush swaddling blanket is highly flexible, serving as a strolle
 
 ✔️ Easy to care for and machine washable
 
-[Buy from Amazon](https://www.amazon.com/Ultra-Soft-Essential-Receiving-Swaddling-Accessories/dp/B07Q78S742?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ultra-Soft-Essential-Receiving-Swaddling-Accessories/dp/B07Q78S742?ie=UTF8&tag=giftable02-20)
 
-### [48\. Map Artwork](https://www.amazon.com/How-Traumatize-Your-Children-Deliberately/dp/1601063091/?ie=UTF8&tag=avadalove-20)
+### [48\. Map Artwork](https://www.amazon.com/How-Traumatize-Your-Children-Deliberately/dp/1601063091/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/How-Traumatize-Your-Children-Deliberately/dp/1601063091/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/How-Traumatize-Your-Children-Deliberately/dp/1601063091/?ie=UTF8&tag=giftable02-20)
 
 Parents all throughout the world, rejoice! Knock Knock's best-selling How to Traumatize Your Children has been updated with brand-new, completely dysfunctional graphics.
 
@@ -877,11 +877,11 @@ This is a fantastic choice for congratulatory pregnancy gifts. This ground-break
 
 ✔️ Compact size for easy display in different spaces
 
-[Buy from Amazon](https://www.amazon.com/How-Traumatize-Your-Children-Deliberately/dp/1601063091/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/How-Traumatize-Your-Children-Deliberately/dp/1601063091/?ie=UTF8&tag=giftable02-20)
 
-### [49\. PharMeDoc Pregnancy Pillow](https://www.amazon.com/PharMeDoc-Pregnancy-Maternity-Detachable-Extension/dp/B07J5SMJQJ?ie=UTF8&tag=avadalove-20)
+### [49\. PharMeDoc Pregnancy Pillow](https://www.amazon.com/PharMeDoc-Pregnancy-Maternity-Detachable-Extension/dp/B07J5SMJQJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PharMeDoc-Pregnancy-Maternity-Detachable-Extension/dp/B07J5SMJQJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PharMeDoc-Pregnancy-Maternity-Detachable-Extension/dp/B07J5SMJQJ?ie=UTF8&tag=giftable02-20)
 
 A U-shaped body cushion supports your back, hips, knees, neck, and head to alleviate discomfort caused by pregnancy, sciatica, fibromyalgia, gastric reflux, and other conditions.
 
@@ -895,7 +895,7 @@ The pregnancy pillow has a detachable extension that can be used as a complete b
 
 ✔️ Versatile size for comfortable sleeping and lounging
 
-[Buy from Amazon](https://www.amazon.com/PharMeDoc-Pregnancy-Maternity-Detachable-Extension/dp/B07J5SMJQJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PharMeDoc-Pregnancy-Maternity-Detachable-Extension/dp/B07J5SMJQJ?ie=UTF8&tag=giftable02-20)
 
 ### [50\. Look At You Becoming Parents Pregnant Candle](https://loveable.ai/products/look-at-you-becoming-parents-and-shit-special-scented-candle-funny-gift-for-pregnant-mom-for-new-parents-best-gift-for-her-family-decor-306ihpnpsc463?variant=44553875620072?utm_source=avada&ranking=&utm_source=&utm_campaign=congratulation-gifts-for-pregnancy-on-a-special-day)
 

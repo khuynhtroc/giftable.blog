@@ -17,9 +17,9 @@ In the spirit of Hanukkah, we bring you a carefully curated collection of remark
 
 Our collection is crafted with love and attention to detail, ensuring each gift embodies the essence of this treasured festival. So, let us journey together, spreading the joy of Hanukkah and discovering the perfect tokens of love that will illuminate the hearts of your loved ones. This season, let your gifts speak volumes and kindle the spirit of togetherness as you celebrate the Festival of Lights in all its glory. Happy Hanukkah!
 
-### [1\. Chanukkah Decorations](https://www.amazon.com/Dreidel-Company-Hanukkah-Chanukkah-Decorations/dp/B08BLV52JY/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. Chanukkah Decorations](https://www.amazon.com/Dreidel-Company-Hanukkah-Chanukkah-Decorations/dp/B08BLV52JY/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dreidel-Company-Hanukkah-Chanukkah-Decorations/dp/B08BLV52JY/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dreidel-Company-Hanukkah-Chanukkah-Decorations/dp/B08BLV52JY/?th=1?ie=UTF8&tag=giftable02-20)
 
 Are you looking for a great Hanukkah gift for loved ones? This Chanukkah decoration won't disappoint them.
 
@@ -33,11 +33,11 @@ Technology features the magnetic dreidel, which is suspended in mid-air by magne
 
 ✔️ Express Your Tradition with Sophistication
 
-[Buy from Amazon](https://www.amazon.com/Dreidel-Company-Hanukkah-Chanukkah-Decorations/dp/B08BLV52JY/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dreidel-Company-Hanukkah-Chanukkah-Decorations/dp/B08BLV52JY/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. Hanukkah Musical Light-Up Dreidel Spinning Tops Set](https://www.amazon.com/Hanukkah-Light-Up-Dreidel-Spinning-Assorted/dp/B08N6ZXNNM?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Hanukkah Musical Light-Up Dreidel Spinning Tops Set](https://www.amazon.com/Hanukkah-Light-Up-Dreidel-Spinning-Assorted/dp/B08N6ZXNNM?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hanukkah-Light-Up-Dreidel-Spinning-Assorted/dp/B08N6ZXNNM?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hanukkah-Light-Up-Dreidel-Spinning-Assorted/dp/B08N6ZXNNM?th=1?ie=UTF8&tag=giftable02-20)
 
 This item allows you to add some song and dance to your dreidel games. Flip the switch and give the top a spin to activate music and flashing lights for a dreidel game that will keep everyone entertained.
 
@@ -51,11 +51,11 @@ Children and adults will love the music and lights of this spinning Hanukkah toy
 
 ✔️ Crafted from premium, durable materials
 
-[Buy from Amazon](https://www.amazon.com/Hanukkah-Light-Up-Dreidel-Spinning-Assorted/dp/B08N6ZXNNM?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hanukkah-Light-Up-Dreidel-Spinning-Assorted/dp/B08N6ZXNNM?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Amazon.com eGift Card](https://www.amazon.com/Amazon-eGift-Card-Hanukkah-Dreidels/dp/B07YJFZXX1?ie=UTF8&tag=avadalove-20)
+### [3\. Amazon.com eGift Card](https://www.amazon.com/Amazon-eGift-Card-Hanukkah-Dreidels/dp/B07YJFZXX1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-eGift-Card-Hanukkah-Dreidels/dp/B07YJFZXX1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-eGift-Card-Hanukkah-Dreidels/dp/B07YJFZXX1?ie=UTF8&tag=giftable02-20)
 
 Amazon.com gift cards never expire and carry no fees. There are multiple gift card designs and denominations to choose from.
 
@@ -69,11 +69,11 @@ Gift cards sent by email can be scheduled up to a year in advance. Amazon.com gi
 
 ✔️ Vast selection of designs for personalization options
 
-[Buy from Amazon](https://www.amazon.com/Amazon-eGift-Card-Hanukkah-Dreidels/dp/B07YJFZXX1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-eGift-Card-Hanukkah-Dreidels/dp/B07YJFZXX1?ie=UTF8&tag=giftable02-20)
 
-### [4\. Colorful Hanukkah Candles](https://www.amazon.com/Dreidel-Company-Chanukah-Colorful-Hanukkah/dp/B06ZZY2W8R?th=1?ie=UTF8&tag=avadalove-20)
+### [4\. Colorful Hanukkah Candles](https://www.amazon.com/Dreidel-Company-Chanukah-Colorful-Hanukkah/dp/B06ZZY2W8R?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dreidel-Company-Chanukah-Colorful-Hanukkah/dp/B06ZZY2W8R?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dreidel-Company-Chanukah-Colorful-Hanukkah/dp/B06ZZY2W8R?th=1?ie=UTF8&tag=giftable02-20)
 
 These classic multicolored candles will really brighten your Chanukah experience. It is a great gift for your beloved one to celebrate Hanukkah in a sparkling space.
 
@@ -87,11 +87,11 @@ These 3 5/8" standard size candles perfectly fit most menorahs. This 44-count bo
 
 ✔️ Long-lasting burn time for extended enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Dreidel-Company-Chanukah-Colorful-Hanukkah/dp/B06ZZY2W8R?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dreidel-Company-Chanukah-Colorful-Hanukkah/dp/B06ZZY2W8R?th=1?ie=UTF8&tag=giftable02-20)
 
-### [5\. Hanukkah Wrapping Paper](https://www.amazon.com/Hanukkah-Wrapping-Paper-Metallic-Chanukah/dp/B09C6L6G13?ie=UTF8&tag=avadalove-20)
+### [5\. Hanukkah Wrapping Paper](https://www.amazon.com/Hanukkah-Wrapping-Paper-Metallic-Chanukah/dp/B09C6L6G13?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hanukkah-Wrapping-Paper-Metallic-Chanukah/dp/B09C6L6G13?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hanukkah-Wrapping-Paper-Metallic-Chanukah/dp/B09C6L6G13?ie=UTF8&tag=giftable02-20)
 
 This Chanukah wrapping paper will easily elevate any gift and make it fun to share the spirit of the holiday and the Chanukah season with the ones you love.
 
@@ -105,11 +105,11 @@ Each Hanukkah wrapping paper roll measures 17 in x 144 in, or 30 square feet per
 
 ✔️ Beautiful Hanukkah-themed designs capture the holiday spirit
 
-[Buy from Amazon](https://www.amazon.com/Hanukkah-Wrapping-Paper-Metallic-Chanukah/dp/B09C6L6G13?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hanukkah-Wrapping-Paper-Metallic-Chanukah/dp/B09C6L6G13?ie=UTF8&tag=giftable02-20)
 
-### [6\. Hanukkah Dreidel](https://www.amazon.com/Green-New-Deal-Dreidel-Hanukkah/dp/B07ZKZ4HZ6/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. Hanukkah Dreidel](https://www.amazon.com/Green-New-Deal-Dreidel-Hanukkah/dp/B07ZKZ4HZ6/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Green-New-Deal-Dreidel-Hanukkah/dp/B07ZKZ4HZ6/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Green-New-Deal-Dreidel-Hanukkah/dp/B07ZKZ4HZ6/?th=1?ie=UTF8&tag=giftable02-20)
 
 Celebrate the Festival of Lights with a delightful Hanukkah gift that embodies the spirit of hope and unity.
 
@@ -123,11 +123,11 @@ Each pack comes with 4 dreidels per pack. It is perfect for your political-lovin
 
 ✔️ Compact size suitable for all ages
 
-[Buy from Amazon](https://www.amazon.com/Green-New-Deal-Dreidel-Hanukkah/dp/B07ZKZ4HZ6/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Green-New-Deal-Dreidel-Hanukkah/dp/B07ZKZ4HZ6/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. Calligraphy Pen Set](https://www.amazon.com/FEATTY-Calligraphy-12-Piece-Writing-Anitque/dp/B07BP3T34W?th=1?ie=UTF8&tag=avadalove-20)
+### [7\. Calligraphy Pen Set](https://www.amazon.com/FEATTY-Calligraphy-12-Piece-Writing-Anitque/dp/B07BP3T34W?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FEATTY-Calligraphy-12-Piece-Writing-Anitque/dp/B07BP3T34W?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FEATTY-Calligraphy-12-Piece-Writing-Anitque/dp/B07BP3T34W?th=1?ie=UTF8&tag=giftable02-20)
 
 The 12-piece deluxe calligraphy dip pen set comes in an elegant case complete with a comprehensive range of nib sizes and ink colors for use on all media.
 
@@ -141,11 +141,11 @@ These beautiful writing instruments are individually made by hand with luxury bi
 
 ✔️ Smooth and precise writing experience for creativity
 
-[Buy from Amazon](https://www.amazon.com/FEATTY-Calligraphy-12-Piece-Writing-Anitque/dp/B07BP3T34W?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FEATTY-Calligraphy-12-Piece-Writing-Anitque/dp/B07BP3T34W?th=1?ie=UTF8&tag=giftable02-20)
 
-### [8\. Hanukkah Gelt](https://www.amazon.com/Milk-Chocolate-Coins-Hanukkah-Certified/dp/B08LHKPB4C?ie=UTF8&tag=avadalove-20)
+### [8\. Hanukkah Gelt](https://www.amazon.com/Milk-Chocolate-Coins-Hanukkah-Certified/dp/B08LHKPB4C?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Milk-Chocolate-Coins-Hanukkah-Certified/dp/B08LHKPB4C?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Milk-Chocolate-Coins-Hanukkah-Certified/dp/B08LHKPB4C?ie=UTF8&tag=giftable02-20)
 
 All your guests will enjoy seeing them as decorations and eating them! They are wonderful for this Hanukkah occasion.
 
@@ -159,11 +159,11 @@ These Hanukkah Gelt Coin Chocolates, which are made with high-quality premium Be
 
 ✔️ Individually wrapped coins for easy sharing
 
-[Buy from Amazon](https://www.amazon.com/Milk-Chocolate-Coins-Hanukkah-Certified/dp/B08LHKPB4C?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Milk-Chocolate-Coins-Hanukkah-Certified/dp/B08LHKPB4C?ie=UTF8&tag=giftable02-20)
 
-### [9\. Netilat Yadayim Cup](https://www.amazon.com/Kosher-Cook-Stainless-Netilat-Yadayim/dp/B07BF8D8XV?ie=UTF8&tag=avadalove-20)
+### [9\. Netilat Yadayim Cup](https://www.amazon.com/Kosher-Cook-Stainless-Netilat-Yadayim/dp/B07BF8D8XV?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kosher-Cook-Stainless-Netilat-Yadayim/dp/B07BF8D8XV?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kosher-Cook-Stainless-Netilat-Yadayim/dp/B07BF8D8XV?ie=UTF8&tag=giftable02-20)
 
 Looking for a Judaic gift for a relative, colleague, host or hostess? Enhance your Kosher kitchen, Shabbat, or holiday table with a beautiful Netilat Yadayim Washing Cup.
 
@@ -177,11 +177,11 @@ It's made from rust-proof stainless steel metal that won’t chip, crack or brea
 
 ✔️ Kosher-certified, suitable for religious practices
 
-[Buy from Amazon](https://www.amazon.com/Kosher-Cook-Stainless-Netilat-Yadayim/dp/B07BF8D8XV?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kosher-Cook-Stainless-Netilat-Yadayim/dp/B07BF8D8XV?ie=UTF8&tag=giftable02-20)
 
-### [10\. Chanukah Mug and Bookmark Gift Set](https://www.amazon.com/Zion-Judaica-Chanukah-Bookmark-Gift/dp/B01M2A6FR9?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Chanukah Mug and Bookmark Gift Set](https://www.amazon.com/Zion-Judaica-Chanukah-Bookmark-Gift/dp/B01M2A6FR9?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Zion-Judaica-Chanukah-Bookmark-Gift/dp/B01M2A6FR9?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Zion-Judaica-Chanukah-Bookmark-Gift/dp/B01M2A6FR9?th=1?ie=UTF8&tag=giftable02-20)
 
 This gift set will make a surprise for your beloved one on this Hanukkah occasion. It includes an adorable Hanukkah coffee mug and a matching bookmark.
 
@@ -195,11 +195,11 @@ The mug is designed with exciting warm expressions, and the bookmark is silver e
 
 ✔️ Practical bookmark complements the mug for a complete set
 
-[Buy from Amazon](https://www.amazon.com/Zion-Judaica-Chanukah-Bookmark-Gift/dp/B01M2A6FR9?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Zion-Judaica-Chanukah-Bookmark-Gift/dp/B01M2A6FR9?th=1?ie=UTF8&tag=giftable02-20)
 
-### [11\. Happy Hanukkah Glass Gift Bag Ornament](https://www.amazon.com/Kurt-Adler-Hanukkah-Ornament-NB1126/dp/B01AY9OR8M/?ie=UTF8&tag=avadalove-20)
+### [11\. Happy Hanukkah Glass Gift Bag Ornament](https://www.amazon.com/Kurt-Adler-Hanukkah-Ornament-NB1126/dp/B01AY9OR8M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kurt-Adler-Hanukkah-Ornament-NB1126/dp/B01AY9OR8M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kurt-Adler-Hanukkah-Ornament-NB1126/dp/B01AY9OR8M/?ie=UTF8&tag=giftable02-20)
 
 This Happy Hanukkah Glass Gift Bag Ornament is an intricate work of art that is sure to be treasured.
 
@@ -213,11 +213,11 @@ This Kurt Adler 4" Noble Gems Happy Hanukkah Glass Gift Bag Ornament resembles a
 
 ✔️ Perfect addition to any holiday ornament collection
 
-[Buy from Amazon](https://www.amazon.com/Kurt-Adler-Hanukkah-Ornament-NB1126/dp/B01AY9OR8M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kurt-Adler-Hanukkah-Ornament-NB1126/dp/B01AY9OR8M/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Hanukkah Table Decoration](https://www.amazon.com/Hanukkah-Chanukah-Dreidel-Memorah-Decoration/dp/B09FG85ZQ1?ie=UTF8&tag=avadalove-20)
+### [12\. Hanukkah Table Decoration](https://www.amazon.com/Hanukkah-Chanukah-Dreidel-Memorah-Decoration/dp/B09FG85ZQ1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hanukkah-Chanukah-Dreidel-Memorah-Decoration/dp/B09FG85ZQ1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hanukkah-Chanukah-Dreidel-Memorah-Decoration/dp/B09FG85ZQ1?ie=UTF8&tag=giftable02-20)
 
 There is nothing better than creating a funny and happy atmosphere on the table at a Hanukkah occasion with this table decoration.
 
@@ -231,11 +231,11 @@ It is made of 100% linen fabric; no shrinkage, no fading. The unique design of t
 
 ✔️ Perfect centerpiece for a memorable holiday gathering
 
-[Buy from Amazon](https://www.amazon.com/Hanukkah-Chanukah-Dreidel-Memorah-Decoration/dp/B09FG85ZQ1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hanukkah-Chanukah-Dreidel-Memorah-Decoration/dp/B09FG85ZQ1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Dishtowel Set](https://www.amazon.com/DII-Hanukkah-Holiday-Decorative-Oversized/dp/B01C5JFPJY/?ie=UTF8&tag=avadalove-20)
+### [13\. Dishtowel Set](https://www.amazon.com/DII-Hanukkah-Holiday-Decorative-Oversized/dp/B01C5JFPJY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DII-Hanukkah-Holiday-Decorative-Oversized/dp/B01C5JFPJY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DII-Hanukkah-Holiday-Decorative-Oversized/dp/B01C5JFPJY/?ie=UTF8&tag=giftable02-20)
 
 Turn kitchen towels into a fun and functional piece that is a must-have in every household this holiday season.
 
@@ -249,19 +249,19 @@ A set of 3 dishtowels measures 18 x 28" to tackle all of your drying and cleanin
 
 ✔️ Beautiful decoration and functional kitchen essential
 
-[Buy from Amazon](https://www.amazon.com/DII-Hanukkah-Holiday-Decorative-Oversized/dp/B01C5JFPJY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DII-Hanukkah-Holiday-Decorative-Oversized/dp/B01C5JFPJY/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Personalized custom pens](https://www.amazon.com/Engraving-Personalized-custom-Ballpen-Ballpoint/dp/B0915TNZVD?th=1?ie=UTF8&tag=avadalove-20)
+### [14\. Personalized custom pens](https://www.amazon.com/Engraving-Personalized-custom-Ballpen-Ballpoint/dp/B0915TNZVD?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engraving-Personalized-custom-Ballpen-Ballpoint/dp/B0915TNZVD?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engraving-Personalized-custom-Ballpen-Ballpoint/dp/B0915TNZVD?th=1?ie=UTF8&tag=giftable02-20)
 
 The pen has a pen weight of 39g, a pen length of 14.4cm/5.67inch, built-in steel pipe, multi-layer baking paint;0.5mm medium point; high quality black ink, smooth writing, continuous ink, and long-term preservation of the text. This pen uses laser engraving technology to engrave the text without fading. You can customize this adorable pen according to your recipients, making it to a unique item. The beautiful appearance of this pen makes it suitable for gifting this Hanukkah occasion.
 
-[Buy from Amazon](https://www.amazon.com/Engraving-Personalized-custom-Ballpen-Ballpoint/dp/B0915TNZVD?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engraving-Personalized-custom-Ballpen-Ballpoint/dp/B0915TNZVD?th=1?ie=UTF8&tag=giftable02-20)
 
-### [15\. Magen David Blanket](https://www.amazon.com/Pure-Country-Weavers-Tapestry-Blanket/dp/B001GDLEPK/?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Magen David Blanket](https://www.amazon.com/Pure-Country-Weavers-Tapestry-Blanket/dp/B001GDLEPK/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pure-Country-Weavers-Tapestry-Blanket/dp/B001GDLEPK/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pure-Country-Weavers-Tapestry-Blanket/dp/B001GDLEPK/?th=1?ie=UTF8&tag=giftable02-20)
 
 Stand out from the crowd and give the gift that will last a lifetime. Your friends and family will appreciate you for the quality they see in the blanket.
 
@@ -275,11 +275,11 @@ Woven from a mixture of virgin and recycled eco-friendly cotton, the blanket wil
 
 ✔️ Generous size for versatile use as a blanket or decor
 
-[Buy from Amazon](https://www.amazon.com/Pure-Country-Weavers-Tapestry-Blanket/dp/B001GDLEPK/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pure-Country-Weavers-Tapestry-Blanket/dp/B001GDLEPK/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Pewter Mezuzah Case with Scroll for Door with Jewish Star of David](https://www.amazon.com/TALISMAN4U-Pewter-MEZUZAH-Scroll-Judaica/dp/B08F3S8GDX?ie=UTF8&tag=avadalove-20)
+### [16\. Pewter Mezuzah Case with Scroll for Door with Jewish Star of David](https://www.amazon.com/TALISMAN4U-Pewter-MEZUZAH-Scroll-Judaica/dp/B08F3S8GDX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TALISMAN4U-Pewter-MEZUZAH-Scroll-Judaica/dp/B08F3S8GDX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TALISMAN4U-Pewter-MEZUZAH-Scroll-Judaica/dp/B08F3S8GDX?ie=UTF8&tag=giftable02-20)
 
 Jewish Mezuzah Case in Pewter and Silver Tone with Door Scroll Jerusalem, Star of David.
 
@@ -293,11 +293,11 @@ This beautiful classic Mezuzah Cover is decorated with a star of David symbol, t
 
 ✔️ Perfect Jewish Judaica gift for homes and occasions
 
-[Buy from Amazon](https://www.amazon.com/TALISMAN4U-Pewter-MEZUZAH-Scroll-Judaica/dp/B08F3S8GDX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TALISMAN4U-Pewter-MEZUZAH-Scroll-Judaica/dp/B08F3S8GDX?ie=UTF8&tag=giftable02-20)
 
-### [17\. Amazon.com Gift Card](https://www.amazon.com/Amazon-com-Greeting-Happy-Chanukah-Design/dp/B005DHN3UE/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Amazon.com Gift Card](https://www.amazon.com/Amazon-com-Greeting-Happy-Chanukah-Design/dp/B005DHN3UE/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Greeting-Happy-Chanukah-Design/dp/B005DHN3UE/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Greeting-Happy-Chanukah-Design/dp/B005DHN3UE/?th=1?ie=UTF8&tag=giftable02-20)
 
 Amazon.com Gift cards are the perfect way to give them exactly what they're hoping for—even if you don't know what it is. Amazon.com gift cards are redeemable for millions of items across Amazon.com.
 
@@ -311,11 +311,11 @@ The item delivered is a single physical Amazon.com Gift Card. A gift card is att
 
 ✔️ Envelope included for convenient and ready-to-gift option
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Greeting-Happy-Chanukah-Design/dp/B005DHN3UE/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Greeting-Happy-Chanukah-Design/dp/B005DHN3UE/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [18\. Chanukah Decorative String Lights](https://www.amazon.com/Impress-Life-Decorative-Candelabra-Decorations/dp/B072JSN7Y5?th=1?ie=UTF8&tag=avadalove-20)
+### [18\. Chanukah Decorative String Lights](https://www.amazon.com/Impress-Life-Decorative-Candelabra-Decorations/dp/B072JSN7Y5?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Impress-Life-Decorative-Candelabra-Decorations/dp/B072JSN7Y5?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Impress-Life-Decorative-Candelabra-Decorations/dp/B072JSN7Y5?th=1?ie=UTF8&tag=giftable02-20)
 
 These Chanukah decorative string lights are inspired by the traditional menorah and are made with a fine bendable copper wire that can conform to any shape to add a beautiful decorative accent.
 
@@ -329,11 +329,11 @@ Flexible yet durable, the string lights are perfect for positioning lights on an
 
 ✔️ Flexible and bendable string for versatile and creative decorations
 
-[Buy from Amazon](https://www.amazon.com/Impress-Life-Decorative-Candelabra-Decorations/dp/B072JSN7Y5?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Impress-Life-Decorative-Candelabra-Decorations/dp/B072JSN7Y5?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. 9-Branch Classic Hanukkah Menorah](https://www.amazon.com/Zion-Judaica-Hanukkah-Menorah-Silverplated/dp/B016V0NTZK?ie=UTF8&tag=avadalove-20)
+### [19\. 9-Branch Classic Hanukkah Menorah](https://www.amazon.com/Zion-Judaica-Hanukkah-Menorah-Silverplated/dp/B016V0NTZK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Zion-Judaica-Hanukkah-Menorah-Silverplated/dp/B016V0NTZK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Zion-Judaica-Hanukkah-Menorah-Silverplated/dp/B016V0NTZK?ie=UTF8&tag=giftable02-20)
 
 Adorn your home with a gorgeous Hanukkah menorah from Zion Judaica. Enjoy a classic geometric look, die-cast with a modern sleekness that carries tradition to the future.
 
@@ -347,11 +347,11 @@ Light your menorah **[candles](https://avada.io/loveable/candle-gifts/)** with p
 
 ✔️ Fits most standard Hanukkah candles for easy use
 
-[Buy from Amazon](https://www.amazon.com/Zion-Judaica-Hanukkah-Menorah-Silverplated/dp/B016V0NTZK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Zion-Judaica-Hanukkah-Menorah-Silverplated/dp/B016V0NTZK?ie=UTF8&tag=giftable02-20)
 
-### [20\. Hanukkah Photo Booth Props Kit](https://www.amazon.com/Big-Dot-Happiness-Happy-Hanukkah/dp/B01M3R6UTJ?ie=UTF8&tag=avadalove-20)
+### [20\. Hanukkah Photo Booth Props Kit](https://www.amazon.com/Big-Dot-Happiness-Happy-Hanukkah/dp/B01M3R6UTJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Big-Dot-Happiness-Happy-Hanukkah/dp/B01M3R6UTJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Big-Dot-Happiness-Happy-Hanukkah/dp/B01M3R6UTJ?ie=UTF8&tag=giftable02-20)
 
 Take entertaining and shareable party photos of your friends and family while making memories with these funny photo booth props!
 
@@ -365,11 +365,11 @@ The Happy Hanukkah Photo Booth Props Kit includes 20 Happy Hanukkah photo booth 
 
 ✔️ Durable and high-quality materials for reliable use
 
-[Buy from Amazon](https://www.amazon.com/Big-Dot-Happiness-Happy-Hanukkah/dp/B01M3R6UTJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Big-Dot-Happiness-Happy-Hanukkah/dp/B01M3R6UTJ?ie=UTF8&tag=giftable02-20)
 
-### [21\. 24 Hanukkah gift paper bags](https://www.amazon.com/Ruisita-Hanukkah-Dreidels-Designed-Patterns/dp/B09DT1HXRG/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. 24 Hanukkah gift paper bags](https://www.amazon.com/Ruisita-Hanukkah-Dreidels-Designed-Patterns/dp/B09DT1HXRG/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ruisita-Hanukkah-Dreidels-Designed-Patterns/dp/B09DT1HXRG/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ruisita-Hanukkah-Dreidels-Designed-Patterns/dp/B09DT1HXRG/?th=1?ie=UTF8&tag=giftable02-20)
 
 Each set includes 24 Hanukkah gift paper bags with handles; they are very suitable for Hanukkah gift packaging.
 
@@ -383,11 +383,11 @@ This Hanukkah gift bag set has a total of 6 different self-designed patterns, in
 
 ✔️ Multiple sizes for versatile gifting and party favors
 
-[Buy from Amazon](https://www.amazon.com/Ruisita-Hanukkah-Dreidels-Designed-Patterns/dp/B09DT1HXRG/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ruisita-Hanukkah-Dreidels-Designed-Patterns/dp/B09DT1HXRG/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [22\. Hanukkah Shaped Cookie Cutters](https://www.amazon.com/Hanukkah-Shaped-Cookie-Cutters-Five/dp/B08NLNTCG4?ie=UTF8&tag=avadalove-20)
+### [22\. Hanukkah Shaped Cookie Cutters](https://www.amazon.com/Hanukkah-Shaped-Cookie-Cutters-Five/dp/B08NLNTCG4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hanukkah-Shaped-Cookie-Cutters-Five/dp/B08NLNTCG4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hanukkah-Shaped-Cookie-Cutters-Five/dp/B08NLNTCG4?ie=UTF8&tag=giftable02-20)
 
 Bring Hanukkah into your kitchen with this set of five holiday-themed cookie cutters.
 
@@ -401,7 +401,7 @@ They are made from stainless steel for non-stick use and easy cleaning. You can 
 
 ✔️ Fun activity for creating festive treats with loved ones
 
-[Buy from Amazon](https://www.amazon.com/Hanukkah-Shaped-Cookie-Cutters-Five/dp/B08NLNTCG4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hanukkah-Shaped-Cookie-Cutters-Five/dp/B08NLNTCG4?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Aloha kakahiaka good morning mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/994955962/aloha-kakahiaka-good-morning-mug)
 
@@ -457,9 +457,9 @@ Both Hanukkah and Christmas are widely observed gift-giving holidays that fall i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/468410608/a-christmas-santa-and-sand-tree-salt-and)
 
-### [26\. Small Hanukkah Menorah Tree of Life](https://www.amazon.com/Menorah-Tree-Life-Mini-Brass/dp/B076QJ1Z5Y?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Small Hanukkah Menorah Tree of Life](https://www.amazon.com/Menorah-Tree-Life-Mini-Brass/dp/B076QJ1Z5Y?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Menorah-Tree-Life-Mini-Brass/dp/B076QJ1Z5Y?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Menorah-Tree-Life-Mini-Brass/dp/B076QJ1Z5Y?th=1?ie=UTF8&tag=giftable02-20)
 
 It is great to take along when travelling or as a home decoration for happy Hanukkah! This makes the perfect Hanukah holiday gift for boys and girls of all ages on this Hanukkah occasion.
 
@@ -473,7 +473,7 @@ The 6" brass menorah features a small tree of life design and meets all Halachic
 
 ✔️ Crafted from brass for an elegant and durable menorah
 
-[Buy from Amazon](https://www.amazon.com/Menorah-Tree-Life-Mini-Brass/dp/B076QJ1Z5Y?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Menorah-Tree-Life-Mini-Brass/dp/B076QJ1Z5Y?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Glass Star of David](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/565076204/glass-star-of-david-wire-wrapped-star)
 

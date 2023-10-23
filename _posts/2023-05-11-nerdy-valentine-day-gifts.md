@@ -4,8 +4,8 @@ description: "For a nerdy person, the gift should be far from the usual romantic
 date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/nerdy-valentine-day-gifts/"
-categories:
-tags:
+categories: Occasions Valentine
+tags: true geek
 image:
     path: "/assets/img/post/2023/09/copied/medium_nerdy valentine gifts.png"
     alt: "Nerdy Valentine’s Day Gifts For The True Geek of Your Life"                                
@@ -215,9 +215,9 @@ Consider giving them this Custom Faces Men Boxer for Valentine's Day so they can
 
 [Buy from Loveable](https://loveable.ai/products/blow-me-its-my-birthday-custom-faces-personalized-photo-men-boxer-best-gift-for-husband-dad-boyfriend?variant=44110178943208?utm_source=avada&ranking=&utm_source=&utm_campaign=nerdy-valentines-day-gifts-for-the-true-geek-of-your-life)
 
-### [12\. Harry Potter Mug](https://www.amazon.com/Harry-Potter-Latte-Coffee-Mug/dp/B07K3626BS?ie=UTF8&tag=avadalove-20)
+### [12\. Harry Potter Mug](https://www.amazon.com/Harry-Potter-Latte-Coffee-Mug/dp/B07K3626BS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Latte-Coffee-Mug/dp/B07K3626BS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Latte-Coffee-Mug/dp/B07K3626BS?ie=UTF8&tag=giftable02-20)
 
 Being **[a fan of the Harry Potter](/harry-potter-gifts/)** series, you cannot resist but get this set of Harry Potter latte mugs for your boyfriend/girlfriend on a special day like Valentine’s day. The two 16 oz white mugs feature black Harry Potter designs surrounded by falling gold stars with fancy gold handles. With a fancy design, that makes her/him use this pretty mug regularly whenever drinking coffee or latte.
 
@@ -231,7 +231,7 @@ A perfect Valentine's Day gift for those who want to share their love of Harry P
 
 ✔️ Perfect gift for Harry Potter fans
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Latte-Coffee-Mug/dp/B07K3626BS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Latte-Coffee-Mug/dp/B07K3626BS?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Molecule Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/628676340/oxytocin-molecule-necklace-love-molecule)
 
@@ -287,9 +287,9 @@ Made from steel, gold plated, this custom **[pokemon gift](/gifts-for-pokemon-fa
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1125397825/gold-valentines-day-anniversary-gift)
 
-### [16\. Valentine Keyring](https://www.amazon.com/Valentines-Keychain-Anniversary-Boyfriend-Engagement/dp/B08T5M162J/?ie=UTF8&tag=avadalove-20)
+### [16\. Valentine Keyring](https://www.amazon.com/Valentines-Keychain-Anniversary-Boyfriend-Engagement/dp/B08T5M162J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Valentines-Keychain-Anniversary-Boyfriend-Engagement/dp/B08T5M162J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Valentines-Keychain-Anniversary-Boyfriend-Engagement/dp/B08T5M162J/?ie=UTF8&tag=giftable02-20)
 
 To express your love and care to your soulmate who is nerdy, let’s show in a unique way - a nerdy way by giving him this sweet keyring.
 
@@ -303,11 +303,11 @@ Made by premium process, there is no distortion, no deformation and says no to t
 
 ✔️ Symbolizes love and affection
 
-[Buy from Amazon](https://www.amazon.com/Valentines-Keychain-Anniversary-Boyfriend-Engagement/dp/B08T5M162J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Valentines-Keychain-Anniversary-Boyfriend-Engagement/dp/B08T5M162J/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Bread Night Light](https://www.amazon.com/Rechargeable-Dimmable-Portable-Bedroom-Bedside/dp/B08PQNS73H?ie=UTF8&tag=avadalove-20)
+### [17\. Bread Night Light](https://www.amazon.com/Rechargeable-Dimmable-Portable-Bedroom-Bedside/dp/B08PQNS73H?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Rechargeable-Dimmable-Portable-Bedroom-Bedside/dp/B08PQNS73H?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Rechargeable-Dimmable-Portable-Bedroom-Bedside/dp/B08PQNS73H?ie=UTF8&tag=giftable02-20)
 
 If your girlfriend is a nerdy person, giving something related to nerdy things will be a great valentine gift for her. Come with this cute bread night light as a gift!
 
@@ -321,7 +321,7 @@ Provides high-quality LED energy-saving lamp beads, switching between single- or
 
 ✔️ Great gift for bread and food lovers
 
-[Buy from Amazon](https://www.amazon.com/Rechargeable-Dimmable-Portable-Bedroom-Bedside/dp/B08PQNS73H?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Rechargeable-Dimmable-Portable-Bedroom-Bedside/dp/B08PQNS73H?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Medical Valentine Cards](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/772626185/medical-valentine-card-set-pun-humor)
 
@@ -341,9 +341,9 @@ This listing is for traditional old school Valentine’s Day cards (no envelopes
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/772626185/medical-valentine-card-set-pun-humor)
 
-### [19\. Romantic Keychain](https://www.amazon.com/Keychain-Anniversary-Valentine-Girlfriend-Boyfriend/dp/B07QLL4RSV/?ie=UTF8&tag=avadalove-20)
+### [19\. Romantic Keychain](https://www.amazon.com/Keychain-Anniversary-Valentine-Girlfriend-Boyfriend/dp/B07QLL4RSV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Anniversary-Valentine-Girlfriend-Boyfriend/dp/B07QLL4RSV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Anniversary-Valentine-Girlfriend-Boyfriend/dp/B07QLL4RSV/?ie=UTF8&tag=giftable02-20)
 
 “I Love You Most The End I Win” - Is this what you say to each other every day and never get tired of? Then you can’t miss this gift. It will bring smiles and even laugh for him/her with this sentimental keychain.
 
@@ -357,11 +357,11 @@ The keychain is thick and sturdy, and also has a nice weight in hand. Engraving 
 
 ✔️ Great gift for couples and partners
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Anniversary-Valentine-Girlfriend-Boyfriend/dp/B07QLL4RSV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Anniversary-Valentine-Girlfriend-Boyfriend/dp/B07QLL4RSV/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Animal Squishies](https://www.amazon.com/Valentine-Squishies-Classroom-Exchange-Carnivals/dp/B082BJR2FQ/?ie=UTF8&tag=avadalove-20)
+### [20\. Animal Squishies](https://www.amazon.com/Valentine-Squishies-Classroom-Exchange-Carnivals/dp/B082BJR2FQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Valentine-Squishies-Classroom-Exchange-Carnivals/dp/B082BJR2FQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Valentine-Squishies-Classroom-Exchange-Carnivals/dp/B082BJR2FQ/?ie=UTF8&tag=giftable02-20)
 
 Send lots of love with these adorable heart packs filled with adorable squishies inside. Their valuable Valentine party favors set include 28 red heart cases and 28 valentine cards which feature 4 designs. These unique design mochi squishies are pre-filled into translucent plastic red heart shells with thick paper heart shaped valentine’s cards.
 
@@ -375,11 +375,11 @@ A fun way to encourage social skill development by playing an exchange gift game
 
 ✔️ Compact and portable for on-the-go fun
 
-[Buy from Amazon](https://www.amazon.com/Valentine-Squishies-Classroom-Exchange-Carnivals/dp/B082BJR2FQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Valentine-Squishies-Classroom-Exchange-Carnivals/dp/B082BJR2FQ/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Haxtec Metal Dices](https://www.amazon.com/dp/B07CCBJXX3?ie=UTF8&tag=avadalove-20)
+### [21\. Haxtec Metal Dices](https://www.amazon.com/dp/B07CCBJXX3?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07CCBJXX3?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07CCBJXX3?ie=UTF8&tag=giftable02-20)
 
 Play a board game on Valenti+ne's day with your lover. That would be so much fun and interesting for sure!
 
@@ -393,11 +393,11 @@ The dice are made with eco-friendly metal for great hand feel and durability. Pl
 
 ✔️ Great addition to tabletop games and collections
 
-[Buy from Amazon](https://www.amazon.com/dp/B07CCBJXX3?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07CCBJXX3?ie=UTF8&tag=giftable02-20)
 
-### [22\. Mickey Glass](https://www.amazon.com/Silver-Buffalo-Classic-Stemless-20-Ounce/dp/B07QQH85HV/?ie=UTF8&tag=avadalove-20)
+### [22\. Mickey Glass](https://www.amazon.com/Silver-Buffalo-Classic-Stemless-20-Ounce/dp/B07QQH85HV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silver-Buffalo-Classic-Stemless-20-Ounce/dp/B07QQH85HV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Classic-Stemless-20-Ounce/dp/B07QQH85HV/?ie=UTF8&tag=giftable02-20)
 
 Show your love to your soulmate on Valentine's day with this couple mickey glass. That would be a lovely gift that he or she has ever been given from you.
 
@@ -411,11 +411,11 @@ The glass features cute artwork of Mickey and Minnie in black glitter with a cla
 
 ✔️ Made of high-quality glass material
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Classic-Stemless-20-Ounce/dp/B07QQH85HV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Classic-Stemless-20-Ounce/dp/B07QQH85HV/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Scented Candle](https://www.amazon.com/GSPY-Lavender-Scented-Candles-Anniversary/dp/B0895FFJY2?ie=UTF8&tag=avadalove-20)
+### [23\. Scented Candle](https://www.amazon.com/GSPY-Lavender-Scented-Candles-Anniversary/dp/B0895FFJY2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GSPY-Lavender-Scented-Candles-Anniversary/dp/B0895FFJY2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GSPY-Lavender-Scented-Candles-Anniversary/dp/B0895FFJY2?ie=UTF8&tag=giftable02-20)
 
 Bring a comfort and relaxing time with this scented candle after working hard all day long. That would be an ideal valentine’s day for your wife or girlfriend by caring for her from trivial things like this.
 
@@ -429,11 +429,11 @@ Characterized by its humorous saying, this candle makes a naughty funny gift for
 
 ✔️ Can help reduce stress and improve mood
 
-[Buy from Amazon](https://www.amazon.com/GSPY-Lavender-Scented-Candles-Anniversary/dp/B0895FFJY2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GSPY-Lavender-Scented-Candles-Anniversary/dp/B0895FFJY2?ie=UTF8&tag=giftable02-20)
 
-### [24\. Star Wars Music Box](https://www.amazon.com/Box%EF%BC%8CWooden-Starwars-Decorations-Christmas-Valentines/dp/B08776SJ1X/?ie=UTF8&tag=avadalove-20)
+### [24\. Star Wars Music Box](https://www.amazon.com/Box%EF%BC%8CWooden-Starwars-Decorations-Christmas-Valentines/dp/B08776SJ1X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Box%EF%BC%8CWooden-Starwars-Decorations-Christmas-Valentines/dp/B08776SJ1X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Box%EF%BC%8CWooden-Starwars-Decorations-Christmas-Valentines/dp/B08776SJ1X/?ie=UTF8&tag=giftable02-20)
 
 For a fan of the Star Wars series, this music box will be an awesome item to be given as a gift. If your lover is a fan of this movie, why don’t you give him/her this wooden box on Valentine’s day. He/she will be thrilled and excited with this gift so much!
 
@@ -447,11 +447,11 @@ The musical box is made of wood, compact and high-quality. Turning the handle, t
 
 ✔️ Perfect gift for Star Wars enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Box%EF%BC%8CWooden-Starwars-Decorations-Christmas-Valentines/dp/B08776SJ1X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Box%EF%BC%8CWooden-Starwars-Decorations-Christmas-Valentines/dp/B08776SJ1X/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Mickey Mouse Shirt](https://www.amazon.com/Vintage-Classic-Disneyland-Graphic-T-Shirt/dp/B07MJTP9K2/?ie=UTF8&tag=avadalove-20)
+### [25\. Mickey Mouse Shirt](https://www.amazon.com/Vintage-Classic-Disneyland-Graphic-T-Shirt/dp/B07MJTP9K2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Classic-Disneyland-Graphic-T-Shirt/dp/B07MJTP9K2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Classic-Disneyland-Graphic-T-Shirt/dp/B07MJTP9K2/?ie=UTF8&tag=giftable02-20)
 
 Whether your lover is a nerdy person or not, she/he cannot know Disney characters, right? Then about a Valentine’s gift, come and get this naughty Mickey Mouse shirt.
 
@@ -465,11 +465,11 @@ Officially licensed by Disney firm, the shirt features a Mickey Mouse character.
 
 ✔️ Ideal for Disney fans of all ages
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Classic-Disneyland-Graphic-T-Shirt/dp/B07MJTP9K2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Classic-Disneyland-Graphic-T-Shirt/dp/B07MJTP9K2/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Koala Diary](https://www.amazon.com/Journal-Notebook-Secret-Writing-Drawing/dp/B099K9HWCG?ie=UTF8&tag=avadalove-20)
+### [26\. Koala Diary](https://www.amazon.com/Journal-Notebook-Secret-Writing-Drawing/dp/B099K9HWCG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Journal-Notebook-Secret-Writing-Drawing/dp/B099K9HWCG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Journal-Notebook-Secret-Writing-Drawing/dp/B099K9HWCG?ie=UTF8&tag=giftable02-20)
 
 Writing down your feelings and thoughts at the end of the day is a good habit for your mental health. So this Koala diary is a cute notebook, especially for a nerdy person to note down their thoughts after completing a book. Get this for your wife/girlfriend on Valentine’s day as a secret gift.
 
@@ -483,7 +483,7 @@ She will laugh out loud because of knowing what this gift is about. Open this lo
 
 ✔️ Compact and easy to carry around
 
-[Buy from Amazon](https://www.amazon.com/Journal-Notebook-Secret-Writing-Drawing/dp/B099K9HWCG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Journal-Notebook-Secret-Writing-Drawing/dp/B099K9HWCG?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Hamilton Character Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1158460215/printable-hamilton-valentines-kids)
 
@@ -701,9 +701,9 @@ Your lover who is a nerdy person will laugh out loud with its design card. It pr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/490832090/funny-valentines-day-card-for-gamers)
 
-### [39\. Hallmark Card](https://www.amazon.com/Hallmark-Valentines-Significant-Favorite-Astronauts/dp/B08KGR69JW?ie=UTF8&tag=avadalove-20)
+### [39\. Hallmark Card](https://www.amazon.com/Hallmark-Valentines-Significant-Favorite-Astronauts/dp/B08KGR69JW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hallmark-Valentines-Significant-Favorite-Astronauts/dp/B08KGR69JW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hallmark-Valentines-Significant-Favorite-Astronauts/dp/B08KGR69JW?ie=UTF8&tag=giftable02-20)
 
 Send love to your husband or wife who is a nerdy person with a lovely Valentine's Day card since he/she is sure to appreciate it.
 
@@ -717,11 +717,11 @@ Printed on high quality paper stock, Hallmark's eco-friendly greeting cards are 
 
 ✔️ Heartfelt messages that resonate with recipients
 
-[Buy from Amazon](https://www.amazon.com/Hallmark-Valentines-Significant-Favorite-Astronauts/dp/B08KGR69JW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hallmark-Valentines-Significant-Favorite-Astronauts/dp/B08KGR69JW?ie=UTF8&tag=giftable02-20)
 
-### [40\. Artificial Rose Gift](https://www.amazon.com/AUSAYE-Artificial-Valentines-Thanksgiving-Anniversary/dp/B083XRJLRV/?ie=UTF8&tag=avadalove-20)
+### [40\. Artificial Rose Gift](https://www.amazon.com/AUSAYE-Artificial-Valentines-Thanksgiving-Anniversary/dp/B083XRJLRV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AUSAYE-Artificial-Valentines-Thanksgiving-Anniversary/dp/B083XRJLRV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AUSAYE-Artificial-Valentines-Thanksgiving-Anniversary/dp/B083XRJLRV/?ie=UTF8&tag=giftable02-20)
 
 Don’t hesitate to give your girlfriend this beautiful stunning artificial rose. Its design will make her fall in love with your gift immediately!
 
@@ -735,11 +735,11 @@ The flower rod is made of polyethylene with gold plating, also petals and leaves
 
 ✔️ Symbolizes everlasting love and affection
 
-[Buy from Amazon](https://www.amazon.com/AUSAYE-Artificial-Valentines-Thanksgiving-Anniversary/dp/B083XRJLRV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AUSAYE-Artificial-Valentines-Thanksgiving-Anniversary/dp/B083XRJLRV/?ie=UTF8&tag=giftable02-20)
 
-### [41\. Girlfriend Mug](https://www.amazon.com/Girlfriend-Hotter-Than-Coffee-Funny/dp/B07ST6HFQ2/?ie=UTF8&tag=avadalove-20)
+### [41\. Girlfriend Mug](https://www.amazon.com/Girlfriend-Hotter-Than-Coffee-Funny/dp/B07ST6HFQ2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Girlfriend-Hotter-Than-Coffee-Funny/dp/B07ST6HFQ2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Girlfriend-Hotter-Than-Coffee-Funny/dp/B07ST6HFQ2/?ie=UTF8&tag=giftable02-20)
 
 On the upcoming Valentine’s day, you have not come up with any great gifts for your nerdy girlfriend? Don’t worry too much, this adorable mug will steal her heart at the first sight for sure!
 
@@ -753,11 +753,11 @@ Every woman will enjoy taking sips of coffee, tea or chocolate from this cute mu
 
 ✔️ Practical for daily use and reminder of you
 
-[Buy from Amazon](https://www.amazon.com/Girlfriend-Hotter-Than-Coffee-Funny/dp/B07ST6HFQ2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Girlfriend-Hotter-Than-Coffee-Funny/dp/B07ST6HFQ2/?ie=UTF8&tag=giftable02-20)
 
-### [42\. Animal Blocks](https://www.amazon.com/JOYIN-Valentines-Prefilled-Valentine-Classroom/dp/B08NTTP6K9/?ie=UTF8&tag=avadalove-20)
+### [42\. Animal Blocks](https://www.amazon.com/JOYIN-Valentines-Prefilled-Valentine-Classroom/dp/B08NTTP6K9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JOYIN-Valentines-Prefilled-Valentine-Classroom/dp/B08NTTP6K9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JOYIN-Valentines-Prefilled-Valentine-Classroom/dp/B08NTTP6K9/?ie=UTF8&tag=giftable02-20)
 
 Being a nerdy person who loves reading comics, your beloved one will love these Joyin lego animals. They will be a great decor to make her/his room to be creative and colorful.
 
@@ -771,7 +771,7 @@ Filled hearts with animal building blocks include valentine’s cards and 26 ani
 
 ✔️ Fun and educational toy for kids
 
-[Buy from Amazon](https://www.amazon.com/JOYIN-Valentines-Prefilled-Valentine-Classroom/dp/B08NTTP6K9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JOYIN-Valentines-Prefilled-Valentine-Classroom/dp/B08NTTP6K9/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

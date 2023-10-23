@@ -17,9 +17,9 @@ Finding the right gift for a runner can be challenging, but we've curated a sele
 
 But our collection doesn't stop at the essentials. We also offer a variety of accessories that runners will love, such as wireless headphones for a seamless music experience, compression socks for improved recovery, and foam rollers for relieving muscle tension. To keep them motivated and inspired, we have inspirational running books and uplifting playlists that will fuel their determination. Get ready to make their day and leave a lasting impression!
 
-### [1\. Sleeve Stars Ankle Brace](https://www.amazon.com/SS-SLEEVE-STARS-Plantar-Fasciitis/dp/B016F59BDU/?ie=UTF8&tag=avadalove-20)
+### [1\. Sleeve Stars Ankle Brace](https://www.amazon.com/SS-SLEEVE-STARS-Plantar-Fasciitis/dp/B016F59BDU/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SS-SLEEVE-STARS-Plantar-Fasciitis/dp/B016F59BDU/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SS-SLEEVE-STARS-Plantar-Fasciitis/dp/B016F59BDU/?ie=UTF8&tag=giftable02-20)
 
 If you experience pain around the knee or ankle during activity and are looking for a quick fix, then the Sleeve Stars Ankle Brace is just what you need.
 
@@ -33,11 +33,11 @@ Featuring a speed-up recovery foam padding, this comfortable brace will help red
 
 ✔️ Quickly absorb sweat and odor
 
-[Buy from Amazon](https://www.amazon.com/SS-SLEEVE-STARS-Plantar-Fasciitis/dp/B016F59BDU/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SS-SLEEVE-STARS-Plantar-Fasciitis/dp/B016F59BDU/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Wall Mounted Medal Hanger](https://www.amazon.com/Gone-Run-BibFOLIO-Display-Mounted/dp/B00NWPD890?ie=UTF8&tag=avadalove-20)
+### [2\. Wall Mounted Medal Hanger](https://www.amazon.com/Gone-Run-BibFOLIO-Display-Mounted/dp/B00NWPD890?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gone-Run-BibFOLIO-Display-Mounted/dp/B00NWPD890?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gone-Run-BibFOLIO-Display-Mounted/dp/B00NWPD890?ie=UTF8&tag=giftable02-20)
 
 This wall mounted Medal Display makes your Medals and Bibs the focal point of the room and adds a touch of class and style to your home or office.
 
@@ -51,11 +51,11 @@ Hang up your medals and bibs by using the included mounting screws and wall anch
 
 ✔️ Cool and unique decoration
 
-[Buy from Amazon](https://www.amazon.com/Gone-Run-BibFOLIO-Display-Mounted/dp/B00NWPD890?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gone-Run-BibFOLIO-Display-Mounted/dp/B00NWPD890?ie=UTF8&tag=giftable02-20)
 
-### [3\. Stylish Travel Loop Scarf](https://www.amazon.com/TRAVEL-WAYPOINT-GOODS-Infinity-Hidden/dp/B074PYFC5G/?ie=UTF8&tag=avadalove-20)
+### [3\. Stylish Travel Loop Scarf](https://www.amazon.com/TRAVEL-WAYPOINT-GOODS-Infinity-Hidden/dp/B074PYFC5G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TRAVEL-WAYPOINT-GOODS-Infinity-Hidden/dp/B074PYFC5G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TRAVEL-WAYPOINT-GOODS-Infinity-Hidden/dp/B074PYFC5G/?ie=UTF8&tag=giftable02-20)
 
 This stylish travel loop scarf is made of super soft flimsy fabric with a tiny pocket. It's hidden pocket is virtually invisible and unexpected so you feel safe when wearing.
 
@@ -69,11 +69,11 @@ Perfect for keeping things neat and tidy during the day or for those moments you
 
 ✔️ Stylish and trendy
 
-[Buy from Amazon](https://www.amazon.com/TRAVEL-WAYPOINT-GOODS-Infinity-Hidden/dp/B074PYFC5G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TRAVEL-WAYPOINT-GOODS-Infinity-Hidden/dp/B074PYFC5G/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Running Keychain](https://www.amazon.com/FEELMEM-Marathon-Running-Keychain-Memories/dp/B085DDWTFV/?ie=UTF8&tag=avadalove-20)
+### [4\. Running Keychain](https://www.amazon.com/FEELMEM-Marathon-Running-Keychain-Memories/dp/B085DDWTFV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FEELMEM-Marathon-Running-Keychain-Memories/dp/B085DDWTFV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FEELMEM-Marathon-Running-Keychain-Memories/dp/B085DDWTFV/?ie=UTF8&tag=giftable02-20)
 
 A wonderful gift for someone who runs marathons or other ultra-distance events. Let's upgrade your running way!
 
@@ -87,11 +87,11 @@ These unique keychains feature running keys with laser engraving that is easy to
 
 ✔️ Motivates fitness and well-being
 
-[Buy from Amazon](https://www.amazon.com/FEELMEM-Marathon-Running-Keychain-Memories/dp/B085DDWTFV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FEELMEM-Marathon-Running-Keychain-Memories/dp/B085DDWTFV/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Runner Bracelet](https://www.amazon.com/ENSIANTH-Bracelet-Believed-Running-Marathon/dp/B07CSQ3DC5?ie=UTF8&tag=avadalove-20)
+### [5\. Runner Bracelet](https://www.amazon.com/ENSIANTH-Bracelet-Believed-Running-Marathon/dp/B07CSQ3DC5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ENSIANTH-Bracelet-Believed-Running-Marathon/dp/B07CSQ3DC5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ENSIANTH-Bracelet-Believed-Running-Marathon/dp/B07CSQ3DC5?ie=UTF8&tag=giftable02-20)
 
 Get ready to run with this awesomely functional runner bracelet! Whether you want to add a stylish accent to your look or simply want to get out and enjoy some fresh air in your life, this lightweight bracelet is a fantastic option.
 
@@ -105,11 +105,11 @@ A unique design is constructed from durable stainless steel, making it ideal for
 
 ✔️ Supports active lifestyle
 
-[Buy from Amazon](https://www.amazon.com/ENSIANTH-Bracelet-Believed-Running-Marathon/dp/B07CSQ3DC5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ENSIANTH-Bracelet-Believed-Running-Marathon/dp/B07CSQ3DC5?ie=UTF8&tag=giftable02-20)
 
-### [6\. Womens Cross Backless Workout Tops](https://www.amazon.com/Fihayli-Sleeveless-Running-Razorback-LightGreen/dp/B07VL4GVJD/?ie=UTF8&tag=avadalove-20)
+### [6\. Womens Cross Backless Workout Tops](https://www.amazon.com/Fihayli-Sleeveless-Running-Razorback-LightGreen/dp/B07VL4GVJD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fihayli-Sleeveless-Running-Razorback-LightGreen/dp/B07VL4GVJD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fihayli-Sleeveless-Running-Razorback-LightGreen/dp/B07VL4GVJD/?ie=UTF8&tag=giftable02-20)
 
 Women’s backless workout tops. Do you want a flattering fit and a sexy look when you work out? Then these tank tops are what you are looking for!
 
@@ -123,11 +123,11 @@ Made from a blend of cotton and spandex, these tanks offer a great fit and feel.
 
 ✔️ Stylish and fashionable
 
-[Buy from Amazon](https://www.amazon.com/Fihayli-Sleeveless-Running-Razorback-LightGreen/dp/B07VL4GVJD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fihayli-Sleeveless-Running-Razorback-LightGreen/dp/B07VL4GVJD/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Running Stemless Wine Glass](https://www.amazon.com/Running-Stemless-Glass-Runners-Measurements/dp/B017BOJ5V2/?ie=UTF8&tag=avadalove-20)
+### [7\. Running Stemless Wine Glass](https://www.amazon.com/Running-Stemless-Glass-Runners-Measurements/dp/B017BOJ5V2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Running-Stemless-Glass-Runners-Measurements/dp/B017BOJ5V2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Running-Stemless-Glass-Runners-Measurements/dp/B017BOJ5V2/?ie=UTF8&tag=giftable02-20)
 
 Celebrate your hobby like a true champion! The running stemless wine glass is the perfect gift for any fitness enthusiast and makes a perfect keepsake to commemorate an event or to celebrate yourself.
 
@@ -141,11 +141,11 @@ Made in the USA from BPA-free and lead-free crystal, the running stemless wine g
 
 ✔️ Motivate to drink more water
 
-[Buy from Amazon](https://www.amazon.com/Running-Stemless-Glass-Runners-Measurements/dp/B017BOJ5V2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Running-Stemless-Glass-Runners-Measurements/dp/B017BOJ5V2/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Calf Compression Sleeves](https://www.amazon.com/BLITZU-Compression-Performance-Running-Circulation/dp/B07CMR568K/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+### [8\. Calf Compression Sleeves](https://www.amazon.com/BLITZU-Compression-Performance-Running-Circulation/dp/B07CMR568K/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BLITZU-Compression-Performance-Running-Circulation/dp/B07CMR568K/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BLITZU-Compression-Performance-Running-Circulation/dp/B07CMR568K/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 This high quality product has been designed using Kinesiology Tape, which applies tape to the skin to create a tourniquet effect.
 
@@ -159,11 +159,11 @@ A very effective treatment for shin splints, as well as reducing pain associated
 
 ✔️ Soft and easy-to-wear
 
-[Buy from Amazon](https://www.amazon.com/BLITZU-Compression-Performance-Running-Circulation/dp/B07CMR568K/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BLITZU-Compression-Performance-Running-Circulation/dp/B07CMR568K/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-### [9\. Workout-Headbands-for-Women](https://www.amazon.com/Dreamlover-Headband-Sweatband-Lightweight-Headbands/dp/B075JC3VWZ/r?ie=UTF8&tag=avadalove-20)
+### [9\. Workout-Headbands-for-Women](https://www.amazon.com/Dreamlover-Headband-Sweatband-Lightweight-Headbands/dp/B075JC3VWZ/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dreamlover-Headband-Sweatband-Lightweight-Headbands/dp/B075JC3VWZ/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dreamlover-Headband-Sweatband-Lightweight-Headbands/dp/B075JC3VWZ/r?ie=UTF8&tag=giftable02-20)
 
 For a headband that will keep your hair out of your face while working out. Styled in a variety of bright colors to fit your mood and occasion, these headbands are great for a range of workout activities and are both fun and functional.
 
@@ -177,11 +177,11 @@ Made of polyester and nylon, these are great for stretching your hair while keep
 
 ✔️ Get rid of sweat
 
-[Buy from Amazon](https://www.amazon.com/Dreamlover-Headband-Sweatband-Lightweight-Headbands/dp/B075JC3VWZ/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dreamlover-Headband-Sweatband-Lightweight-Headbands/dp/B075JC3VWZ/r?ie=UTF8&tag=giftable02-20)
 
-### [10\. Forerunner 45S](https://www.amazon.com/Garmin-Forerunner-Running-Training-Support/dp/B07QZT6KRD/?ie=UTF8&tag=avadalove-20)
+### [10\. Forerunner 45S](https://www.amazon.com/Garmin-Forerunner-Running-Training-Support/dp/B07QZT6KRD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Garmin-Forerunner-Running-Training-Support/dp/B07QZT6KRD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Garmin-Forerunner-Running-Training-Support/dp/B07QZT6KRD/?ie=UTF8&tag=giftable02-20)
 
 Smaller-sized easy-to-use running watch estimates heart rate at the wrist and Features GPS to track your pace, distance, intervals, and more.
 
@@ -195,11 +195,11 @@ Connected features include smart notifications for incoming texts and calls, and
 
 ✔️ Provides comfort and support
 
-[Buy from Amazon](https://www.amazon.com/Garmin-Forerunner-Running-Training-Support/dp/B07QZT6KRD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Garmin-Forerunner-Running-Training-Support/dp/B07QZT6KRD/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Winners’-Running-Fuel-Belt](https://www.amazon.com/Runtasty-Hydration-Winners-Running-Accessories/dp/B01AWCQLEE/?ie=UTF8&tag=avadalove-20)
+### [11\. Winners’-Running-Fuel-Belt](https://www.amazon.com/Runtasty-Hydration-Winners-Running-Accessories/dp/B01AWCQLEE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Runtasty-Hydration-Winners-Running-Accessories/dp/B01AWCQLEE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Runtasty-Hydration-Winners-Running-Accessories/dp/B01AWCQLEE/?ie=UTF8&tag=giftable02-20)
 
 The Winners' Running Fuel Belt is designed specifically for active runners. It's comfortable, safe, and stylish so you can focus on your run, not your belt.
 
@@ -213,11 +213,11 @@ The anti-slip technology keeps your keys in place, while the large main compartm
 
 ✔️ Increases safety during runs
 
-[Buy from Amazon](https://www.amazon.com/Runtasty-Hydration-Winners-Running-Accessories/dp/B01AWCQLEE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Runtasty-Hydration-Winners-Running-Accessories/dp/B01AWCQLEE/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Run Traction Cleats](https://www.amazon.com/gp/product/B007S3R6KO/?ie=UTF8&tag=avadalove-20)
+### [12\. Run Traction Cleats](https://www.amazon.com/gp/product/B007S3R6KO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B007S3R6KO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B007S3R6KO/?ie=UTF8&tag=giftable02-20)
 
 The Run Traction Cleats are designed to fit over the top of running shoes and provide 360 degrees of traction. These cleats are super comfortable and come with exclusive Run-Traction technology that provides 360 degrees of traction, including on hard surfaces.
 
@@ -231,11 +231,11 @@ This means no slipping! They have a special metal base plate that acts like a sp
 
 ✔️ Increases safety during runs
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B007S3R6KO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B007S3R6KO/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Reactik And Headlamp](https://www.amazon.com/gp/product/B01FIDI7LW?ie=UTF8&tag=avadalove-20)
+### [13\. Reactik And Headlamp](https://www.amazon.com/gp/product/B01FIDI7LW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B01FIDI7LW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B01FIDI7LW?ie=UTF8&tag=giftable02-20)
 
 Reactive Lighting Technology delivers maximum brightness with minimum heat. When activated by the included headband, a bright LED bulb turns on instantly when you need it.
 
@@ -249,11 +249,11 @@ It’s the best way to see in low light or in total darkness. The Reactive Light
 
 ✔️ Supports active lifestyle
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B01FIDI7LW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B01FIDI7LW?ie=UTF8&tag=giftable02-20)
 
-### [14\. Road ID Bracelet](https://www.amazon.com/gp/product/B01N25ONJI/?ie=UTF8&tag=avadalove-20)
+### [14\. Road ID Bracelet](https://www.amazon.com/gp/product/B01N25ONJI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B01N25ONJI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B01N25ONJI/?ie=UTF8&tag=giftable02-20)
 
 The Road ID is a bracelet that allows you to include the information that you need to keep you safe. It helps to save lives and provides invaluable peace of mind.
 
@@ -267,11 +267,11 @@ Whether you are hiking, camping, or participating in other outdoor activities, R
 
 ✔️ Offers style and fashion options
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B01N25ONJI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B01N25ONJI/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Oval Blister Prevention Patches](https://www.amazon.com/gp/product/B003URZNW0/?ie=UTF8&tag=avadalove-20)
+### [15\. Oval Blister Prevention Patches](https://www.amazon.com/gp/product/B003URZNW0/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B003URZNW0/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B003URZNW0/?ie=UTF8&tag=giftable02-20)
 
 Oval Blister Prevention Patches provide a comfortable, breathable and long lasting barrier against foot blisters. These patches can be applied directly to the skin or over the existing protection.
 
@@ -285,11 +285,11 @@ The adhesive strip is easy to remove and reapply as needed, providing maximum fl
 
 ✔️ Motivates fitness and well-being
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B003URZNW0/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B003URZNW0/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Stunt Runner Hands](https://www.amazon.com/Stunt-Puppy-Runner-Hands-Free-Silver/dp/B004VOWRIO/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+### [16\. Stunt Runner Hands](https://www.amazon.com/Stunt-Puppy-Runner-Hands-Free-Silver/dp/B004VOWRIO/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stunt-Puppy-Runner-Hands-Free-Silver/dp/B004VOWRIO/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stunt-Puppy-Runner-Hands-Free-Silver/dp/B004VOWRIO/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 Stunt Runner Hands is designed to give your dog freedom, independence, and comfort when exercising. This leash is easy to attach and remove, and does not bind up the dog’s neck.
 
@@ -303,11 +303,11 @@ The D-Ring attachment allows you to slide it anywhere along the belt of your pan
 
 ✔️ Bring comfortable experience
 
-[Buy from Amazon](https://www.amazon.com/Stunt-Puppy-Runner-Hands-Free-Silver/dp/B004VOWRIO/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stunt-Puppy-Runner-Hands-Free-Silver/dp/B004VOWRIO/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-### [17\. Men’s Element Running Top](https://www.amazon.com/gp/product/B07L7SB3J7/?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Men’s Element Running Top](https://www.amazon.com/gp/product/B07L7SB3J7/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B07L7SB3J7/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B07L7SB3J7/?th=1?ie=UTF8&tag=giftable02-20)
 
 Built to perform in any environment, this top will have you ready to race around town and beyond. The Element Running Top is designed to keep you dry and comfortable during all your running adventures.
 
@@ -321,11 +321,11 @@ With lightweight fabric and a mesh lining, you'll stay cool, while the reflectiv
 
 ✔️ Durable zip-up design
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B07L7SB3J7/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B07L7SB3J7/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [18\. Body Glide Original Anti-Chafe Balm](https://www.amazon.com/gp/product/B0043S06GI/?ie=UTF8&tag=avadalove-20)
+### [18\. Body Glide Original Anti-Chafe Balm](https://www.amazon.com/gp/product/B0043S06GI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B0043S06GI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B0043S06GI/?ie=UTF8&tag=giftable02-20)
 
 Body Glide Original Anti-Chafe Balm is the only balm of its kind that prevents chafing and provides long lasting protection from the everyday friction of exercise and sport.
 
@@ -339,11 +339,11 @@ It keeps you comfortable and in control with a smooth, moisturizing texture that
 
 ✔️ Prevent chafing
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B0043S06GI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B0043S06GI/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Wrist Based Heart Rate Monitoring](https://www.amazon.com/gp/product/B016ZWT64M/?ie=UTF8&tag=avadalove-20)
+### [19\. Wrist Based Heart Rate Monitoring](https://www.amazon.com/gp/product/B016ZWT64M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B016ZWT64M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B016ZWT64M/?ie=UTF8&tag=giftable02-20)
 
 The WRIST BASED Forerunner 235 heart rate monitor from Garmin is one of the most accurate ways to track your fitness activity. With an easy to use and intuitive interface, this watch is the ideal companion for your daily workouts.
 
@@ -357,11 +357,11 @@ Stay motivated by receiving real-time feedback, including pace, distance, calori
 
 ✔️ Offers convenience and portability
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B016ZWT64M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B016ZWT64M/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Low-Cut Athletic Socks](https://www.amazon.com/gp/product/B075MH393W/?ie=UTF8&tag=avadalove-20)
+### [20\. Low-Cut Athletic Socks](https://www.amazon.com/gp/product/B075MH393W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B075MH393W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B075MH393W/?ie=UTF8&tag=giftable02-20)
 
 These low-cut athletic socks are made from a blend of Prolene and Elastane to keep you comfortable and protected during your sport or workout activity.
 
@@ -375,11 +375,11 @@ They are breathable and ultra-light, and have anti-slip and moisture-wicking pro
 
 ✔️ Help keep track running
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B075MH393W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B075MH393W/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Medium Women Backpack Quilted](https://www.amazon.com/gp/product/B06X3XRV3Q/?ie=UTF8&tag=avadalove-20)
+### [21\. Medium Women Backpack Quilted](https://www.amazon.com/gp/product/B06X3XRV3Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B06X3XRV3Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B06X3XRV3Q/?ie=UTF8&tag=giftable02-20)
 
 Whether your travels take you by plane or car, the medium women backpack quilted is the bag for you. This backpack has exterior zippered pockets for storing necessities such as your phone, keys, and passport.
 
@@ -393,11 +393,11 @@ It also has an interior mesh pocket for keeping smaller items like your wallet, 
 
 ✔️ Minimalist style
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B06X3XRV3Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B06X3XRV3Q/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Organic Magic Balm](https://www.amazon.com/Dr-Bronner-Balm-Unscented-Ounce/dp/B01LXE0TP5/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+### [22\. Organic Magic Balm](https://www.amazon.com/Dr-Bronner-Balm-Unscented-Ounce/dp/B01LXE0TP5/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dr-Bronner-Balm-Unscented-Ounce/dp/B01LXE0TP5/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dr-Bronner-Balm-Unscented-Ounce/dp/B01LXE0TP5/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
 Your skin is your largest organ. And it needs attention too. If you're spending your days sitting at your desk or working in the yard, the skin on your hands will feel chafed and dry. But there is a way to get back to feeling and looking like yourself again, without resorting to harsh chemicals or treatments.
 
@@ -411,11 +411,11 @@ That's where this Organic Magic Balm comes in. It's a simple solution that's eas
 
 ✔️ Enhances mental focus and clarity
 
-[Buy from Amazon](https://www.amazon.com/Dr-Bronner-Balm-Unscented-Ounce/dp/B01LXE0TP5/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dr-Bronner-Balm-Unscented-Ounce/dp/B01LXE0TP5/ref=cm_cr_arp_d_product_top?ie=UTF8?ie=UTF8&tag=giftable02-20)
 
-### [23\. Ultra Pocket Hat](https://www.amazon.com/gp/product/B009W7T1S4?ie=UTF8&tag=avadalove-20)
+### [23\. Ultra Pocket Hat](https://www.amazon.com/gp/product/B009W7T1S4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B009W7T1S4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B009W7T1S4?ie=UTF8&tag=giftable02-20)
 
 This ultra-pocket hat is ideal for various activities, including jogging, hiking, golfing, tennis, and simply resting. It's ideal for running in all weather, and the luminous piping around the brim lets you to run at any time of day.
 
@@ -429,11 +429,11 @@ The two pockets keep your essentials safe and secure. It's made of 100% polyeste
 
 ✔️ Easy and lightweight to wear
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B009W7T1S4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B009W7T1S4?ie=UTF8&tag=giftable02-20)
 
-### [24\. Hydraform Thermal-Lite Bottle](https://www.amazon.com/gp/product/B013T7VIE2/?ie=UTF8&tag=avadalove-20)
+### [24\. Hydraform Thermal-Lite Bottle](https://www.amazon.com/gp/product/B013T7VIE2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B013T7VIE2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B013T7VIE2/?ie=UTF8&tag=giftable02-20)
 
 This bottle is a must-have accessory for every backpacker, camper, and adventurer on the go. It is the easiest way to keep yourself hydrated in the most extreme environments.
 
@@ -447,11 +447,11 @@ Whether you are hiking, camping, climbing, or trekking, carrying our bottle with
 
 ✔️ Fit perfectly any bag
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B013T7VIE2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B013T7VIE2/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Dynamic Support Insole](https://www.amazon.com/gp/product/B079J11LBY/?ie=UTF8&tag=avadalove-20)
+### [25\. Dynamic Support Insole](https://www.amazon.com/gp/product/B079J11LBY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B079J11LBY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B079J11LBY/?ie=UTF8&tag=giftable02-20)
 
 Dynamic Support Insole is designed to reduce injuries by giving you a more comfortable, flexible, and injury-free gait. These insoles provide a custom fit, with a different shape, arch height, and flex, allowing for a perfect, customized fit.
 
@@ -465,11 +465,11 @@ Each pair of Dynamic Support Insole is made from a special proprietary mix of ma
 
 ✔️ Packaged carefully
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B079J11LBY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B079J11LBY/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Vibrating Foam Roller](https://www.amazon.com/gp/product/B08HV9ZBWM?ie=UTF8&tag=avadalove-20)
+### [26\. Vibrating Foam Roller](https://www.amazon.com/gp/product/B08HV9ZBWM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B08HV9ZBWM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B08HV9ZBWM?ie=UTF8&tag=giftable02-20)
 
 The Vibrating Foam Roller is a safe, effective and reliable way to massage away aches and pains. The built-in vibration function allows you to relax with this portable massage tool during your free time.
 
@@ -483,11 +483,11 @@ This powerful massage tool is designed to run at a speed of up to 4000r/min, wit
 
 ✔️ Include remote control
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B08HV9ZBWM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B08HV9ZBWM?ie=UTF8&tag=giftable02-20)
 
-### [27\. Cooling Towels](https://www.amazon.com/gp/product/B071DNYSPB?ie=UTF8&tag=avadalove-20)
+### [27\. Cooling Towels](https://www.amazon.com/gp/product/B071DNYSPB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B071DNYSPB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B071DNYSPB?ie=UTF8&tag=giftable02-20)
 
 Our best-selling cooling towel. The perfect companion for summer. Use it as a cooling towel to keep cool or for blocking UVA and UVB rays to help reduce premature aging and sunburn.
 
@@ -501,11 +501,11 @@ Keep one close to your head, body or face to help cool down and protect. Availab
 
 ✔️ Soft and comfortable
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B071DNYSPB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B071DNYSPB?ie=UTF8&tag=giftable02-20)
 
-### [28\. Natural-Instant-Happy-Feet-Pedicure-Can-Gift-Set](https://www.amazon.com/gp/product/B002U8EX4Y?ie=UTF8&tag=avadalove-20)
+### [28\. Natural-Instant-Happy-Feet-Pedicure-Can-Gift-Set](https://www.amazon.com/gp/product/B002U8EX4Y?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B002U8EX4Y?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B002U8EX4Y?ie=UTF8&tag=giftable02-20)
 
 The natural Instant Happy Feet Pedicure set is the perfect gift for the running lover in your life. This set contains a collection of five natural products designed to gently care for the feet.
 
@@ -519,11 +519,11 @@ This set of four gifts comes packaged in a cleverly designed box that is perfect
 
 ✔️ Ready to be gifted immediately
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B002U8EX4Y?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B002U8EX4Y?ie=UTF8&tag=giftable02-20)
 
-### [29\. Classic Running Belt](https://www.amazon.com/gp/product/B00JF9EF0S?ie=UTF8&tag=avadalove-20)
+### [29\. Classic Running Belt](https://www.amazon.com/gp/product/B00JF9EF0S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B00JF9EF0S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B00JF9EF0S?ie=UTF8&tag=giftable02-20)
 
 This lightweight Classic Running Belt will be a welcome addition to your wardrobe, with a stylish design that fits easily into your everyday life.
 
@@ -537,7 +537,7 @@ It's designed with a patented waist pack technology to keep things secure and wo
 
 ✔️ Functional and stylish
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B00JF9EF0S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B00JF9EF0S?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Allied Medal Hanger](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/231598146/trailscape-allied-medal-hanger-holder)
 

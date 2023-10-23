@@ -17,9 +17,9 @@ Understanding the world of teenagers can be a challenge, but fear not, as we've 
 
 Watch their faces light up with joy as they unwrap these thoughtful stocking stuffers. There's nothing quite like making your teens feel understood and appreciated during the holidays. So, go ahead and make this festive season extra special for your beloved teenagers with these delightful gifts! This year, show them how much you care with these carefully chosen stocking stuffers that perfectly match their interests and desires. Get ready to make their holiday season unforgettable!"
 
-### [1\. The Original Slinky Walking Spring Toy](https://www.amazon.com/Slinky-60100-Original-Brand/dp/B00000IZKX/)
+### [1\. The Original Slinky Walking Spring Toy](https://www.amazon.com/Slinky-60100-Original-Brand/dp/B00000IZKX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Slinky-60100-Original-Brand/dp/B00000IZKX/)
+[](https://www.amazon.com/Slinky-60100-Original-Brand/dp/B00000IZKX/?ie=UTF8&tag=giftable02-20)
 
 Spring into joy with The Original Slinky Walking Spring Toy, a timeless favorite that keeps teenagers entertained!
 
@@ -33,11 +33,11 @@ The Original Slinky Walking Spring Toy is a classic metal slinky with a diameter
 
 ✔️ Iconic and entertaining movement
 
-[Buy from Amazon](https://www.amazon.com/Slinky-60100-Original-Brand/dp/B00000IZKX/)
+[Buy from Amazon](https://www.amazon.com/Slinky-60100-Original-Brand/dp/B00000IZKX/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Rubber Chicken Slingshot](https://www.amazon.com/Namii-Slingshot-Flingers-Thanksging-Christmas/dp/B07BQFS9W8/?th=1)
+### [2\. Rubber Chicken Slingshot](https://www.amazon.com/Namii-Slingshot-Flingers-Thanksging-Christmas/dp/B07BQFS9W8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Namii-Slingshot-Flingers-Thanksging-Christmas/dp/B07BQFS9W8/?th=1)
+[](https://www.amazon.com/Namii-Slingshot-Flingers-Thanksging-Christmas/dp/B07BQFS9W8/?th=1?ie=UTF8&tag=giftable02-20)
 
 Namii W.'s Rubber Chicken Slingshot offers the following: One package of grow beads and ten rubber chicken slingshots. To catch a chicken, insert your index finger into the slit under its head and tug on its tail with the other.
 
@@ -51,11 +51,11 @@ Take aim, then fire away! The rubber chicken catapault designed by Namii W has i
 
 ✔️ Fun and amusing slingshot action
 
-[Buy from Amazon](https://www.amazon.com/Namii-Slingshot-Flingers-Thanksging-Christmas/dp/B07BQFS9W8/?th=1)
+[Buy from Amazon](https://www.amazon.com/Namii-Slingshot-Flingers-Thanksging-Christmas/dp/B07BQFS9W8/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Unicorn Stress Balls](https://www.amazon.com/VOMAOK-Unicorn-Christmas-Stocking-Stuffers/dp/B09FFF6XWT)
+### [3\. Unicorn Stress Balls](https://www.amazon.com/VOMAOK-Unicorn-Christmas-Stocking-Stuffers/dp/B09FFF6XWT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VOMAOK-Unicorn-Christmas-Stocking-Stuffers/dp/B09FFF6XWT)
+[](https://www.amazon.com/VOMAOK-Unicorn-Christmas-Stocking-Stuffers/dp/B09FFF6XWT?ie=UTF8&tag=giftable02-20)
 
 The Unicorn Style-Pack has four fluffy, adorable unicorn stress balls in all colours. Squeezing, squashing, and stretching these unicorn stress balls can help reduce tension.
 
@@ -69,11 +69,11 @@ These are extremely long-lasting and can withstand being squashed repeatedly bec
 
 ✔️ Safe and non-toxic materials
 
-[Buy from Amazon](https://www.amazon.com/VOMAOK-Unicorn-Christmas-Stocking-Stuffers/dp/B09FFF6XWT)
+[Buy from Amazon](https://www.amazon.com/VOMAOK-Unicorn-Christmas-Stocking-Stuffers/dp/B09FFF6XWT?ie=UTF8&tag=giftable02-20)
 
-### [4\. Detangler Hairbrush](https://www.amazon.com/Detangling-Brush-Women-Hairbrush-Detangler-Hair-Brushes/dp/B06XY32DP9)
+### [4\. Detangler Hairbrush](https://www.amazon.com/Detangling-Brush-Women-Hairbrush-Detangler-Hair-Brushes/dp/B06XY32DP9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Detangling-Brush-Women-Hairbrush-Detangler-Hair-Brushes/dp/B06XY32DP9)
+[](https://www.amazon.com/Detangling-Brush-Women-Hairbrush-Detangler-Hair-Brushes/dp/B06XY32DP9?ie=UTF8&tag=giftable02-20)
 
 Done with spending half your day combing your hair? This detangling brush is the best option for getting rid of knots quickly and easily.
 
@@ -87,11 +87,11 @@ The ergonomic handle provides superior control and comfort for brushing of all h
 
 ✔️ Minimizes hair loss and damage
 
-[Buy from Amazon](https://www.amazon.com/Detangling-Brush-Women-Hairbrush-Detangler-Hair-Brushes/dp/B06XY32DP9)
+[Buy from Amazon](https://www.amazon.com/Detangling-Brush-Women-Hairbrush-Detangler-Hair-Brushes/dp/B06XY32DP9?ie=UTF8&tag=giftable02-20)
 
-### [5\. Farting Poop Emoji Pen](https://www.amazon.com/Talking-Emoji-Poop-Pen-Funniest/dp/B01M8NEFZ1)
+### [5\. Farting Poop Emoji Pen](https://www.amazon.com/Talking-Emoji-Poop-Pen-Funniest/dp/B01M8NEFZ1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Talking-Emoji-Poop-Pen-Funniest/dp/B01M8NEFZ1)
+[](https://www.amazon.com/Talking-Emoji-Poop-Pen-Funniest/dp/B01M8NEFZ1?ie=UTF8&tag=giftable02-20)
 
 Give the present that keeps on giving: the Farting Poop Emoji Pen. It seems to be a regular pen, but when you press down on its top, it farts!
 
@@ -105,11 +105,11 @@ Your teen can fart whenever they like without worrying about stinking up the hom
 
 ✔️ Entertaining stocking stuffer
 
-[Buy from Amazon](https://www.amazon.com/Talking-Emoji-Poop-Pen-Funniest/dp/B01M8NEFZ1)
+[Buy from Amazon](https://www.amazon.com/Talking-Emoji-Poop-Pen-Funniest/dp/B01M8NEFZ1?ie=UTF8&tag=giftable02-20)
 
-### [6\. Snack Sticks](https://www.amazon.com/Wenzels-Farm-Variety-Pack-packages/dp/B07J2PSBF9/)
+### [6\. Snack Sticks](https://www.amazon.com/Wenzels-Farm-Variety-Pack-packages/dp/B07J2PSBF9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wenzels-Farm-Variety-Pack-packages/dp/B07J2PSBF9/)
+[](https://www.amazon.com/Wenzels-Farm-Variety-Pack-packages/dp/B07J2PSBF9/?ie=UTF8&tag=giftable02-20)
 
 This assortment of Wenzel's Naturally Smoked Snack Sticks is sure to please any customer. It is handcrafted in small batches using premium slices of actual beef that are never frozen.
 
@@ -123,11 +123,11 @@ There are zero artificial ingredients, including MGS, binders, flavourings, and 
 
 ✔️ No unwanted additives
 
-[Buy from Amazon](https://www.amazon.com/Wenzels-Farm-Variety-Pack-packages/dp/B07J2PSBF9/)
+[Buy from Amazon](https://www.amazon.com/Wenzels-Farm-Variety-Pack-packages/dp/B07J2PSBF9/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Super Stretchy Strings](https://www.amazon.com/BunMo-12pc-Super-Silly-String/dp/B08YJHR2D8)
+### [7\. Super Stretchy Strings](https://www.amazon.com/BunMo-12pc-Super-Silly-String/dp/B08YJHR2D8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BunMo-12pc-Super-Silly-String/dp/B08YJHR2D8)
+[](https://www.amazon.com/BunMo-12pc-Super-Silly-String/dp/B08YJHR2D8?ie=UTF8&tag=giftable02-20)
 
 Bunmo's 12-pack of ultra flexible strings not only makes people happy, but also makes for an excellent holiday or birthday present for kids of both sexes.
 
@@ -141,11 +141,11 @@ Bunmo makes high-sensory fidget toys and toys to help with anxiety. With the hel
 
 ✔️ Promotes confidence
 
-[Buy from Amazon](https://www.amazon.com/BunMo-12pc-Super-Silly-String/dp/B08YJHR2D8)
+[Buy from Amazon](https://www.amazon.com/BunMo-12pc-Super-Silly-String/dp/B08YJHR2D8?ie=UTF8&tag=giftable02-20)
 
-### [8\. Flipslide Game](https://www.amazon.com/Games-25254-Flipslide-Game/dp/B079D7XHSY)
+### [8\. Flipslide Game](https://www.amazon.com/Games-25254-Flipslide-Game/dp/B079D7XHSY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Games-25254-Flipslide-Game/dp/B079D7XHSY)
+[](https://www.amazon.com/Games-25254-Flipslide-Game/dp/B079D7XHSY?ie=UTF8&tag=giftable02-20)
 
 The skill-based puzzle game Flipslide is really entertaining. The red block must be removed off the board, and this is done by moving other blocks to make room for it.
 
@@ -159,11 +159,11 @@ Flipslide is a fun and fast-paced game that is simple to pick up yet difficult t
 
 ✔️ Various exciting modes
 
-[Buy from Amazon](https://www.amazon.com/Games-25254-Flipslide-Game/dp/B079D7XHSY)
+[Buy from Amazon](https://www.amazon.com/Games-25254-Flipslide-Game/dp/B079D7XHSY?ie=UTF8&tag=giftable02-20)
 
-### [9\. Smile Phone Holder](https://www.amazon.com/ArtCreativity-Squeezable-Smartphone-Decoration-Red-Blue-Yellow/dp/B07DC9L2LD)
+### [9\. Smile Phone Holder](https://www.amazon.com/ArtCreativity-Squeezable-Smartphone-Decoration-Red-Blue-Yellow/dp/B07DC9L2LD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ArtCreativity-Squeezable-Smartphone-Decoration-Red-Blue-Yellow/dp/B07DC9L2LD)
+[](https://www.amazon.com/ArtCreativity-Squeezable-Smartphone-Decoration-Red-Blue-Yellow/dp/B07DC9L2LD?ie=UTF8&tag=giftable02-20)
 
 Put a grin on your desk with this matching set of phone stands. It includes three adorable phone holders in bright colours (red, blue, and yellow) that are ready to welcome your phone with open arms, cheer you up with big grins, and brighten up any workspace (whether it be a child's or an adult's).
 
@@ -177,11 +177,11 @@ These one-of-a-kind smartphone desk holders are made from delightfully squishy f
 
 ✔️ Vibrant desk decor
 
-[Buy from Amazon](https://www.amazon.com/ArtCreativity-Squeezable-Smartphone-Decoration-Red-Blue-Yellow/dp/B07DC9L2LD)
+[Buy from Amazon](https://www.amazon.com/ArtCreativity-Squeezable-Smartphone-Decoration-Red-Blue-Yellow/dp/B07DC9L2LD?ie=UTF8&tag=giftable02-20)
 
-### [10\. Sensory Fidget Toy](https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/B00TF7ZZM2)
+### [10\. Sensory Fidget Toy](https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/B00TF7ZZM2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/B00TF7ZZM2)
+[](https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/B00TF7ZZM2?ie=UTF8&tag=giftable02-20)
 
 Let's have some fun while relieving stress with this sensory fidget. It's supple and easy to mould.
 
@@ -195,11 +195,11 @@ It comes in a little tube with 24 Wikki stix, making it easy to bring along for 
 
 ✔️ Convenient and portable design
 
-[Buy from Amazon](https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/B00TF7ZZM2)
+[Buy from Amazon](https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/https://www.amazon.com/WikkiStix-Non-Toxic-Reusable-Sculpting-American/dp/B00TF7ZZM2?ie=UTF8&tag=giftable02-20)
 
-### [11\. Squishy Cat Set](https://www.amazon.com/Nutty-Toys-Squishy-Free-Sticker/dp/B077BJC36S/)
+### [11\. Squishy Cat Set](https://www.amazon.com/Nutty-Toys-Squishy-Free-Sticker/dp/B077BJC36S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nutty-Toys-Squishy-Free-Sticker/dp/B077BJC36S/)
+[](https://www.amazon.com/Nutty-Toys-Squishy-Free-Sticker/dp/B077BJC36S/?ie=UTF8&tag=giftable02-20)
 
 These two kittens are a tonne of fun to play with and will amuse youngsters of either gender. Say farewell to boredom, worry, and nail biting with these top-notch mochi animal toys, and treat yourself to some much-needed downtime.
 
@@ -213,11 +213,11 @@ You can squeeze it and it gives. Even in the most tense conditions, you may rest
 
 ✔️ Ideal for all ages
 
-[Buy from Amazon](https://www.amazon.com/Nutty-Toys-Squishy-Free-Sticker/dp/B077BJC36S/)
+[Buy from Amazon](https://www.amazon.com/Nutty-Toys-Squishy-Free-Sticker/dp/B077BJC36S/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Sensory Fidget Toys Set](https://www.amazon.com/Anti-Anxiety-Carnival-Treasure-Classroom-Christmas/dp/B08FBWWJLQ/)
+### [12\. Sensory Fidget Toys Set](https://www.amazon.com/Anti-Anxiety-Carnival-Treasure-Classroom-Christmas/dp/B08FBWWJLQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Anti-Anxiety-Carnival-Treasure-Classroom-Christmas/dp/B08FBWWJLQ/)
+[](https://www.amazon.com/Anti-Anxiety-Carnival-Treasure-Classroom-Christmas/dp/B08FBWWJLQ/?ie=UTF8&tag=giftable02-20)
 
 Playing, squeezing, stretching, and flipping these fidgeting toys can help alleviate tension and anxiety. Every toy has a way of relieving tension, alleviating boredom, or just passing the time.
 
@@ -231,11 +231,11 @@ Schools, companies, and classrooms may all benefit from having access to these f
 
 ✔️ Calming tactile exploration
 
-[Buy from Amazon](https://www.amazon.com/Anti-Anxiety-Carnival-Treasure-Classroom-Christmas/dp/B08FBWWJLQ/)
+[Buy from Amazon](https://www.amazon.com/Anti-Anxiety-Carnival-Treasure-Classroom-Christmas/dp/B08FBWWJLQ/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Super Bright LED Mini Flashlights](https://www.amazon.com/LETMY-Tactical-Flashlight-Flashlights-Waterproof/dp/B075Z19G85/?th=1)
+### [13\. Super Bright LED Mini Flashlights](https://www.amazon.com/LETMY-Tactical-Flashlight-Flashlights-Waterproof/dp/B075Z19G85/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LETMY-Tactical-Flashlight-Flashlights-Waterproof/dp/B075Z19G85/?th=1)
+[](https://www.amazon.com/LETMY-Tactical-Flashlight-Flashlights-Waterproof/dp/B075Z19G85/?th=1?ie=UTF8&tag=giftable02-20)
 
 This tiny LED flashlight has a beam that can reach distances of up to 600 feet. The focus of this tactical torch can be adjusted, and it has the ability to zoom in and out, making it the ideal tiny torch for camping, fishing, and other outdoor activities.
 
@@ -249,11 +249,11 @@ The metal clip on this palm-sized tactical torch makes it easy to bring it along
 
 ✔️ Adjustable focus and zoom
 
-[Buy from Amazon](https://www.amazon.com/LETMY-Tactical-Flashlight-Flashlights-Waterproof/dp/B075Z19G85/?th=1)
+[Buy from Amazon](https://www.amazon.com/LETMY-Tactical-Flashlight-Flashlights-Waterproof/dp/B075Z19G85/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [14\. Cereal killer spoons](https://www.amazon.com/Christmas-boyfriend-Personalized-teenager-engraved/dp/B0825N65X4)
+### [14\. Cereal killer spoons](https://www.amazon.com/Christmas-boyfriend-Personalized-teenager-engraved/dp/B0825N65X4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-boyfriend-Personalized-teenager-engraved/dp/B0825N65X4)
+[](https://www.amazon.com/Christmas-boyfriend-Personalized-teenager-engraved/dp/B0825N65X4?ie=UTF8&tag=giftable02-20)
 
 The words "Cereal Killer" are permanently etched onto this high-quality stainless steel spoon utilising an industrial-grade engraving machine.
 
@@ -267,11 +267,11 @@ It's perfect for the morning meal and may double as a conversation piece at your
 
 ✔️ Quirky and forever-lasting engraving
 
-[Buy from Amazon](https://www.amazon.com/Christmas-boyfriend-Personalized-teenager-engraved/dp/B0825N65X4)
+[Buy from Amazon](https://www.amazon.com/Christmas-boyfriend-Personalized-teenager-engraved/dp/B0825N65X4?ie=UTF8&tag=giftable02-20)
 
-### [15\. Tye-Die fidget spinner toys](https://www.amazon.com/Fidget-Spinner-Dimple-Popper-Sensory/dp/B09F4YL472/)
+### [15\. Tye-Die fidget spinner toys](https://www.amazon.com/Fidget-Spinner-Dimple-Popper-Sensory/dp/B09F4YL472/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fidget-Spinner-Dimple-Popper-Sensory/dp/B09F4YL472/)
+[](https://www.amazon.com/Fidget-Spinner-Dimple-Popper-Sensory/dp/B09F4YL472/?ie=UTF8&tag=giftable02-20)
 
 These Tye-Die fidget spinner toys are constructed from premium materials and adhere to the highest standards of quality to ensure they last through frequent spinning, fidgeting, and popping.
 
@@ -285,7 +285,7 @@ You can squeeze it and it gives. Even in the most tense situations, popping your
 
 ✔️ Soft and squishy touch
 
-[Buy from Amazon](https://www.amazon.com/Fidget-Spinner-Dimple-Popper-Sensory/dp/B09F4YL472/)
+[Buy from Amazon](https://www.amazon.com/Fidget-Spinner-Dimple-Popper-Sensory/dp/B09F4YL472/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Wood Slingshot](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/935441331/wood-slingshot-kids-christmas-kids)
 
@@ -413,9 +413,9 @@ They may be personalised with any name or nickname, making things like keys and 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/835743898/personalized-gift-gift-for-her-gift-for)
 
-### [23\. Playfoam Pals Wild Friends pod](https://www.amazon.com/Educational-Insights-Playfoam-Friends-2-Pack/dp/B0794VG5ZS?th=1)
+### [23\. Playfoam Pals Wild Friends pod](https://www.amazon.com/Educational-Insights-Playfoam-Friends-2-Pack/dp/B0794VG5ZS?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Educational-Insights-Playfoam-Friends-2-Pack/dp/B0794VG5ZS?th=1)
+[](https://www.amazon.com/Educational-Insights-Playfoam-Friends-2-Pack/dp/B0794VG5ZS?th=1?ie=UTF8&tag=giftable02-20)
 
 The first ever playfoam that conceals a hidden collector figure! Each Playfoam Pals Wild Friends pod includes a surprise companion in addition to your choice of either classic or dazzling Playfoam.
 
@@ -429,11 +429,11 @@ Explore the Playfoam universe and round up all 12 of Series 1's Wild Friends. Ho
 
 ✔️ 12 Wild Friends to collect
 
-[Buy from Amazon](https://www.amazon.com/Educational-Insights-Playfoam-Friends-2-Pack/dp/B0794VG5ZS?th=1)
+[Buy from Amazon](https://www.amazon.com/Educational-Insights-Playfoam-Friends-2-Pack/dp/B0794VG5ZS?th=1?ie=UTF8&tag=giftable02-20)
 
-### [24\. Teen Talk in a Jar Cards](https://www.amazon.com/Teen-Talk-Jar%C2%AE-free-spirit-publishing-publishing-free-spirit/dp/1575428989)
+### [24\. Teen Talk in a Jar Cards](https://www.amazon.com/Teen-Talk-Jar%C2%AE-free-spirit-publishing-publishing-free-spirit/dp/1575428989?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Teen-Talk-Jar%C2%AE-free-spirit-publishing-publishing-free-spirit/dp/1575428989)
+[](https://www.amazon.com/Teen-Talk-Jar%C2%AE-free-spirit-publishing-publishing-free-spirit/dp/1575428989?ie=UTF8&tag=giftable02-20)
 
 Everything that teenagers desire to talk about may be found in Teen Talk In a Jar. Your teens will benefit greatly from this method of communicating their thoughts and feelings to others. When they get this, they will feel deeply moved and overjoyed. Don't think twice about throwing it in someone's stocking.
 
@@ -445,11 +445,11 @@ Everything that teenagers desire to talk about may be found in Teen Talk In a Ja
 
 ✔️ Safe platform to express feelings
 
-[Buy from Amazon](https://www.amazon.com/Teen-Talk-Jar%C2%AE-free-spirit-publishing-publishing-free-spirit/dp/1575428989)
+[Buy from Amazon](https://www.amazon.com/Teen-Talk-Jar%C2%AE-free-spirit-publishing-publishing-free-spirit/dp/1575428989?ie=UTF8&tag=giftable02-20)
 
-### [25\. Light Up Gloves](https://www.amazon.com/Jofan-Light-Gloves-Gifts-Favors/dp/B07XR795W9/?th=1)
+### [25\. Light Up Gloves](https://www.amazon.com/Jofan-Light-Gloves-Gifts-Favors/dp/B07XR795W9/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jofan-Light-Gloves-Gifts-Favors/dp/B07XR795W9/?th=1)
+[](https://www.amazon.com/Jofan-Light-Gloves-Gifts-Favors/dp/B07XR795W9/?th=1?ie=UTF8&tag=giftable02-20)
 
 These gloves are intended to be quickly activated. The gloves may flash rapidly, slowly, stay on in RGB, flash solely in one colour (red, green, or blue), or flash in all three colours simultaneously.
 
@@ -463,11 +463,11 @@ Make yourself the centre of attention at the party by donning a striking new hue
 
 ✔️ Multiple flashing modes
 
-[Buy from Amazon](https://www.amazon.com/Jofan-Light-Gloves-Gifts-Favors/dp/B07XR795W9/?th=1)
+[Buy from Amazon](https://www.amazon.com/Jofan-Light-Gloves-Gifts-Favors/dp/B07XR795W9/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Natural Organic Lip Balm Set](https://www.amazon.com/ArtNaturals-Natural-Lip-Balm-Beeswax/dp/B01I0I0DY6)
+### [26\. Natural Organic Lip Balm Set](https://www.amazon.com/ArtNaturals-Natural-Lip-Balm-Beeswax/dp/B01I0I0DY6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ArtNaturals-Natural-Lip-Balm-Beeswax/dp/B01I0I0DY6)
+[](https://www.amazon.com/ArtNaturals-Natural-Lip-Balm-Beeswax/dp/B01I0I0DY6?ie=UTF8&tag=giftable02-20)
 
 Island Coconut, Passion Pitaya, Mango Papaya, Hibiscus Blossom, Grapefruit Tonic, and Eucalyptus Mint are just some of the six balms included in this gift package.
 
@@ -481,11 +481,11 @@ Natural beeswax and moisturising oils including jojoba, coconut, and sunflower s
 
 ✔️ Enriched with natural oils
 
-[Buy from Amazon](https://www.amazon.com/ArtNaturals-Natural-Lip-Balm-Beeswax/dp/B01I0I0DY6)
+[Buy from Amazon](https://www.amazon.com/ArtNaturals-Natural-Lip-Balm-Beeswax/dp/B01I0I0DY6?ie=UTF8&tag=giftable02-20)
 
-### [27\. Playfoam Build-a-Snowman Toy](https://www.amazon.com/Educational-Insights-Playfoam-Snowman-Stocking/dp/B088JNTK3H)
+### [27\. Playfoam Build-a-Snowman Toy](https://www.amazon.com/Educational-Insights-Playfoam-Snowman-Stocking/dp/B088JNTK3H?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Educational-Insights-Playfoam-Snowman-Stocking/dp/B088JNTK3H)
+[](https://www.amazon.com/Educational-Insights-Playfoam-Snowman-Stocking/dp/B088JNTK3H?ie=UTF8&tag=giftable02-20)
 
 Use white glitter Playfoam and other wintery accents to create a frozen pal that will never thaw. There's a hat, scarf, carrot nose, two arms, two eyes, and three buttons made from white glitter Playfoam.
 
@@ -499,11 +499,11 @@ It's available in your choice of red, green, or blue. The play foam may be easil
 
 ✔️ Mess-free and reusable fun
 
-[Buy from Amazon](https://www.amazon.com/Educational-Insights-Playfoam-Snowman-Stocking/dp/B088JNTK3H)
+[Buy from Amazon](https://www.amazon.com/Educational-Insights-Playfoam-Snowman-Stocking/dp/B088JNTK3H?ie=UTF8&tag=giftable02-20)
 
-### [28\. Heel Protectors](https://www.amazon.com/Silicone-Fasciitis-Achilles-Tendinitis-Breathable/dp/B08CHPG7S5)
+### [28\. Heel Protectors](https://www.amazon.com/Silicone-Fasciitis-Achilles-Tendinitis-Breathable/dp/B08CHPG7S5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silicone-Fasciitis-Achilles-Tendinitis-Breathable/dp/B08CHPG7S5)
+[](https://www.amazon.com/Silicone-Fasciitis-Achilles-Tendinitis-Breathable/dp/B08CHPG7S5?ie=UTF8&tag=giftable02-20)
 
 Plantar fasciitis, cracked heels, tendinitis, and other causes of heel pain can be treated without resorting to invasive medical procedures or seeing many specialists.
 
@@ -517,11 +517,11 @@ If you suffer from heel discomfort, this five-pack of silicone heel gel is your 
 
 ✔️ Highly breathable design
 
-[Buy from Amazon](https://www.amazon.com/Silicone-Fasciitis-Achilles-Tendinitis-Breathable/dp/B08CHPG7S5)
+[Buy from Amazon](https://www.amazon.com/Silicone-Fasciitis-Achilles-Tendinitis-Breathable/dp/B08CHPG7S5?ie=UTF8&tag=giftable02-20)
 
-### [29\. Facial Cleansing Brush](https://www.amazon.com/Facial-Cleansing-Olay-Regenerist-Exfoliator/dp/B01DTYN4N8)
+### [29\. Facial Cleansing Brush](https://www.amazon.com/Facial-Cleansing-Olay-Regenerist-Exfoliator/dp/B01DTYN4N8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Facial-Cleansing-Olay-Regenerist-Exfoliator/dp/B01DTYN4N8)
+[](https://www.amazon.com/Facial-Cleansing-Olay-Regenerist-Exfoliator/dp/B01DTYN4N8?ie=UTF8&tag=giftable02-20)
 
 This exfoliating face brush was developed by a dermatologist and will enhance the effectiveness of your facial cleanser.
 
@@ -535,11 +535,11 @@ This face washing brush will help you get the most out of your moisturiser by in
 
 ✔️ Suitable for all skin types
 
-[Buy from Amazon](https://www.amazon.com/Facial-Cleansing-Olay-Regenerist-Exfoliator/dp/B01DTYN4N8)
+[Buy from Amazon](https://www.amazon.com/Facial-Cleansing-Olay-Regenerist-Exfoliator/dp/B01DTYN4N8?ie=UTF8&tag=giftable02-20)
 
-### [30\. Shoe deodorizer balls](https://www.amazon.com/Sof-Sole-Sneaker-Locker-Deodorizer/dp/B00EUA5R9U)
+### [30\. Shoe deodorizer balls](https://www.amazon.com/Sof-Sole-Sneaker-Locker-Deodorizer/dp/B00EUA5R9U?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sof-Sole-Sneaker-Locker-Deodorizer/dp/B00EUA5R9U)
+[](https://www.amazon.com/Sof-Sole-Sneaker-Locker-Deodorizer/dp/B00EUA5R9U?ie=UTF8&tag=giftable02-20)
 
 Deodorising shoe balls are useful for eliminating unpleasant odours from footwear, sports bags, and lockers.
 
@@ -553,11 +553,11 @@ Its compact, spherical shape allows it to penetrate and neutralise odours even i
 
 ✔️ Fits all shoe sizes, including kids
 
-[Buy from Amazon](https://www.amazon.com/Sof-Sole-Sneaker-Locker-Deodorizer/dp/B00EUA5R9U)
+[Buy from Amazon](https://www.amazon.com/Sof-Sole-Sneaker-Locker-Deodorizer/dp/B00EUA5R9U?ie=UTF8&tag=giftable02-20)
 
-### [31\. Puzzle Game](https://www.amazon.com/Educational-Insights-3026-Kanoodle-Genius/dp/B00I0D3FUQ)
+### [31\. Puzzle Game](https://www.amazon.com/Educational-Insights-3026-Kanoodle-Genius/dp/B00I0D3FUQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Educational-Insights-3026-Kanoodle-Genius/dp/B00I0D3FUQ)
+[](https://www.amazon.com/Educational-Insights-3026-Kanoodle-Genius/dp/B00I0D3FUQ?ie=UTF8&tag=giftable02-20)
 
 Give your children the tools they need to thrive in school and in life with this puzzle game that will keep them studying all year long.
 
@@ -571,7 +571,7 @@ The Kanoodle Genius puzzle set features 7 parts, 202 expert-level puzzles, an 84
 
 ✔️ Engaging brain teaser game
 
-[Buy from Amazon](https://www.amazon.com/Educational-Insights-3026-Kanoodle-Genius/dp/B00I0D3FUQ)
+[Buy from Amazon](https://www.amazon.com/Educational-Insights-3026-Kanoodle-Genius/dp/B00I0D3FUQ?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Christmas Wish Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1107808931/santa-omg-i-know-him-christmas-wish)
 
@@ -627,9 +627,9 @@ These tubes of hot chocolate are just the right size to tuck under the tree this
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/758442291/stocking-stuffer-gifts-for-teens-hot)
 
-### [35\. Burt’s Bees Lip Balm](https://www.amazon.com/Burts-Bees-Natural-Moisturizing-Multipack/dp/B01MRH7MR4/)
+### [35\. Burt’s Bees Lip Balm](https://www.amazon.com/Burts-Bees-Natural-Moisturizing-Multipack/dp/B01MRH7MR4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Natural-Moisturizing-Multipack/dp/B01MRH7MR4/)
+[](https://www.amazon.com/Burts-Bees-Natural-Moisturizing-Multipack/dp/B01MRH7MR4/?ie=UTF8&tag=giftable02-20)
 
 Burt's Bees offers four naturally nourishing flavours of their moisturising lip balm: original beeswax, strawberry, coconut & pear, and vanilla bean.
 
@@ -643,7 +643,7 @@ Beeswax and fruit extracts are included in every tube of Burt's Bees Lip Balm to
 
 ✔️ Four delightful options
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Natural-Moisturizing-Multipack/dp/B01MRH7MR4/)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Natural-Moisturizing-Multipack/dp/B01MRH7MR4/?ie=UTF8&tag=giftable02-20)
 
 ## Final words
 

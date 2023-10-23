@@ -379,9 +379,9 @@ This memorial journal is crafted with vegan leather, providing a compassionate c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/969926733/husband-memorial-journal-letters-to)
 
-### [21\. Personalized Wood Picture Frame](https://www.amazon.com/KENON-Personalized-Picture-Frame-Husband/dp/B07RBQC7T2/?ie=UTF8&tag=avadalove-20)
+### [21\. Personalized Wood Picture Frame](https://www.amazon.com/KENON-Personalized-Picture-Frame-Husband/dp/B07RBQC7T2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/KENON-Personalized-Picture-Frame-Husband/dp/B07RBQC7T2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KENON-Personalized-Picture-Frame-Husband/dp/B07RBQC7T2/?ie=UTF8&tag=giftable02-20)
 
 Embrace the memories, honor the love. Give a heartfelt gift of comfort to a dear friend who has lost her beloved husband, with a wooden frame that captures their special bond.
 
@@ -395,7 +395,7 @@ This wooden frame is crafted with compassion as a gift for loss of husband. The 
 
 ✔️ The inclusion of plexiglass ensures the preservation of precious memories
 
-[Buy from Amazon](https://www.amazon.com/KENON-Personalized-Picture-Frame-Husband/dp/B07RBQC7T2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KENON-Personalized-Picture-Frame-Husband/dp/B07RBQC7T2/?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Sympathy Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1022332051/sympathy-gift-loss-of-husband-gift-pass)
 
@@ -451,9 +451,9 @@ This condolence gift for the loss of a husband is a unique and meaningful way to
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/671965174/until-we-meet-again-morse-code-seed-bead)
 
-### [25\. Memorial Remembrance Lantern](https://www.amazon.com/Carson-Walk-Beside-Memorial-Lantern/dp/B07DNS6TVZ/?ie=UTF8&tag=avadalove-20)
+### [25\. Memorial Remembrance Lantern](https://www.amazon.com/Carson-Walk-Beside-Memorial-Lantern/dp/B07DNS6TVZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Carson-Walk-Beside-Memorial-Lantern/dp/B07DNS6TVZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Carson-Walk-Beside-Memorial-Lantern/dp/B07DNS6TVZ/?ie=UTF8&tag=giftable02-20)
 
 Let love shine through the darkness. Offer comfort and solace to your grieving friends with a thoughtful gift that will illuminate their hearts in times of loss.
 
@@ -467,7 +467,7 @@ This memorial lantern is a beautiful tribute to honor the memory of a lost husba
 
 ✔️ Will stand the test of time
 
-[Buy from Amazon](https://www.amazon.com/Carson-Walk-Beside-Memorial-Lantern/dp/B07DNS6TVZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Carson-Walk-Beside-Memorial-Lantern/dp/B07DNS6TVZ/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. Sympathy Ornament](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/565165920/sympathy-ornament-sympathy-gift-in)
 
@@ -523,9 +523,9 @@ This sympathy necklace for the bereavement of a husband is a beautiful and meani
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/ill-be-there-necklace)
 
-### [29\. Grief Day By Day Book](https://www.amazon.com/dp/1641521317?ie=UTF8&tag=avadalove-20)
+### [29\. Grief Day By Day Book](https://www.amazon.com/dp/1641521317?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/1641521317?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/1641521317?ie=UTF8&tag=giftable02-20)
 
 Embrace, heal, and find solace in the midst of grief with a gift that offers daily support and reflections for those who have lost their beloved spouse.
 
@@ -539,7 +539,7 @@ This grief recovery manual is a compassionate and thoughtful sympathy gift desig
 
 ✔️ Offers a channel for self-expression and emotional release.
 
-[Buy from Amazon](https://www.amazon.com/dp/1641521317?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/1641521317?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Pencil Portrait Drawing](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/521970439/custom-portrait-custom-portrait-from)
 
@@ -559,9 +559,9 @@ The bespoke portrait is a personalized and thoughtful way to commemorate a speci
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/521970439/custom-portrait-custom-portrait-from)
 
-### [31\. Healing After Loss Book](https://www.amazon.com/dp/0380773384?ie=UTF8&tag=avadalove-20)
+### [31\. Healing After Loss Book](https://www.amazon.com/dp/0380773384?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/0380773384?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/0380773384?ie=UTF8&tag=giftable02-20)
 
 Light up their path through darkness with a gift that speaks to their heart and brings solace during the hardest times.
 
@@ -575,7 +575,7 @@ This compassionate gift is specially designed for individuals who have lost a lo
 
 ✔️ Can be read in under five minutes
 
-[Buy from Amazon](https://www.amazon.com/dp/0380773384?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/0380773384?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Custom Meditation Box](https://www.uncommongoods.com/product/custom-meditation-box)
 
@@ -595,9 +595,9 @@ This meditation box, created by artist Jayne Riew, is a thoughtful gift designed
 
 [Buy from Uncommongoods](https://www.uncommongoods.com/product/custom-meditation-box)
 
-### [33\. Memorial Wind Chimes](https://www.amazon.com/Celebration-Memorial-Chimes-Memory-Loved/dp/B08D21YMX8/?ie=UTF8&tag=avadalove-20)
+### [33\. Memorial Wind Chimes](https://www.amazon.com/Celebration-Memorial-Chimes-Memory-Loved/dp/B08D21YMX8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Celebration-Memorial-Chimes-Memory-Loved/dp/B08D21YMX8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Celebration-Memorial-Chimes-Memory-Loved/dp/B08D21YMX8/?ie=UTF8&tag=giftable02-20)
 
 Find solace in the gentle melody of sympathy wind chimes, a heartfelt gift that brings comfort to grieving hearts and can be cherished both indoors and outdoors.
 
@@ -611,11 +611,11 @@ These sympathy wind chimes are designed to provide solace and peace to those who
 
 ✔️ Serve as a lasting gift that can be cherished for years to come
 
-[Buy from Amazon](https://www.amazon.com/Celebration-Memorial-Chimes-Memory-Loved/dp/B08D21YMX8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Celebration-Memorial-Chimes-Memory-Loved/dp/B08D21YMX8/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Memorial Keychain](https://www.amazon.com/Memorial-Jewelry-Keychain-Sympathy-Remembrance/dp/B087CHMZM7?ie=UTF8&tag=avadalove-20)
+### [34\. Memorial Keychain](https://www.amazon.com/Memorial-Jewelry-Keychain-Sympathy-Remembrance/dp/B087CHMZM7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Memorial-Jewelry-Keychain-Sympathy-Remembrance/dp/B087CHMZM7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Memorial-Jewelry-Keychain-Sympathy-Remembrance/dp/B087CHMZM7?ie=UTF8&tag=giftable02-20)
 
 Remembering the love that will forever remain in our hearts. Offer solace and support to those grieving the loss of their beloved husband with a thoughtful Memorial Keychain.
 
@@ -629,11 +629,11 @@ This Memorial Keychain is a heartfelt gift designed for anyone dealing with the 
 
 ✔️ Resistant to rust, tarnish, and color alterations
 
-[Buy from Amazon](https://www.amazon.com/Memorial-Jewelry-Keychain-Sympathy-Remembrance/dp/B087CHMZM7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Memorial-Jewelry-Keychain-Sympathy-Remembrance/dp/B087CHMZM7?ie=UTF8&tag=giftable02-20)
 
-### [35\. Memorial Picture Hanging Board](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T6XSX2L/?ie=UTF8&tag=avadalove-20)
+### [35\. Memorial Picture Hanging Board](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T6XSX2L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T6XSX2L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T6XSX2L/?ie=UTF8&tag=giftable02-20)
 
 When words may not be enough, this gift for the loss of a husband speaks volumes of love and support.
 
@@ -647,11 +647,11 @@ This special gift for the loss of a husband includes a handcrafted string hearts
 
 ✔️ Allows the recipient to keep their beloved husband's presence close at hand
 
-[Buy from Amazon](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T6XSX2L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T6XSX2L/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Memorial Bereavement Gifts](https://www.amazon.com/Sympathy-Memorial-Bereavement-Condolence-Remembrance/dp/B09B7L7VFP/?ie=UTF8&tag=avadalove-20)
+### [36\. Memorial Bereavement Gifts](https://www.amazon.com/Sympathy-Memorial-Bereavement-Condolence-Remembrance/dp/B09B7L7VFP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sympathy-Memorial-Bereavement-Condolence-Remembrance/dp/B09B7L7VFP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sympathy-Memorial-Bereavement-Condolence-Remembrance/dp/B09B7L7VFP/?ie=UTF8&tag=giftable02-20)
 
 Show your love and offer comfort with this special gift for loss of husband.
 
@@ -667,11 +667,11 @@ It serves as a beautiful remembrance piece and can be displayed on a counter or 
 
 ✔️ Can bring solace and comfort to the recipient
 
-[Buy from Amazon](https://www.amazon.com/Sympathy-Memorial-Bereavement-Condolence-Remembrance/dp/B09B7L7VFP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sympathy-Memorial-Bereavement-Condolence-Remembrance/dp/B09B7L7VFP/?ie=UTF8&tag=giftable02-20)
 
-### [37\. Sympathy Wind Chimes](https://www.amazon.com/Sympathy-Bounmer-Memorial-Bereavement-Condolence/dp/B09CY4TJYL?ie=UTF8&tag=avadalove-20)
+### [37\. Sympathy Wind Chimes](https://www.amazon.com/Sympathy-Bounmer-Memorial-Bereavement-Condolence/dp/B09CY4TJYL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sympathy-Bounmer-Memorial-Bereavement-Condolence/dp/B09CY4TJYL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sympathy-Bounmer-Memorial-Bereavement-Condolence/dp/B09CY4TJYL?ie=UTF8&tag=giftable02-20)
 
 Let your love resonate through the wind with a compassionate gift that brings solace during difficult times.
 
@@ -685,11 +685,11 @@ The chimes feature the phrase, "When tomorrow starts without me, don't think we 
 
 ✔️ Calms the mind, reduces tension, and uplifts the spirits
 
-[Buy from Amazon](https://www.amazon.com/Sympathy-Bounmer-Memorial-Bereavement-Condolence/dp/B09CY4TJYL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sympathy-Bounmer-Memorial-Bereavement-Condolence/dp/B09CY4TJYL?ie=UTF8&tag=giftable02-20)
 
-### [38\. Remembrance Cuff Bangle](https://www.amazon.com/Joycuff-Personalized-Memorial-Bracelet-Sympathy/dp/B088HDK8ND/?ie=UTF8&tag=avadalove-20)
+### [38\. Remembrance Cuff Bangle](https://www.amazon.com/Joycuff-Personalized-Memorial-Bracelet-Sympathy/dp/B088HDK8ND/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Joycuff-Personalized-Memorial-Bracelet-Sympathy/dp/B088HDK8ND/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Joycuff-Personalized-Memorial-Bracelet-Sympathy/dp/B088HDK8ND/?ie=UTF8&tag=giftable02-20)
 
 Joycuffs are more than just bracelets; they are symbols of love and support for those who have recently lost their husband.
 
@@ -703,11 +703,11 @@ These simple, adorable, and elegant mantra bracelets are crafted with precision 
 
 ✔️ Elegant and classy in appearance, making it a thoughtful and meaningful keepsake gift
 
-[Buy from Amazon](https://www.amazon.com/Joycuff-Personalized-Memorial-Bracelet-Sympathy/dp/B088HDK8ND/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Joycuff-Personalized-Memorial-Bracelet-Sympathy/dp/B088HDK8ND/?ie=UTF8&tag=giftable02-20)
 
-### [39\. Always in Your Heart Cross](https://www.amazon.com/Always-Your-Heart-Sympathy-Sentiment/dp/B07GZ5DFSG/?ie=UTF8&tag=avadalove-20)
+### [39\. Always in Your Heart Cross](https://www.amazon.com/Always-Your-Heart-Sympathy-Sentiment/dp/B07GZ5DFSG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Always-Your-Heart-Sympathy-Sentiment/dp/B07GZ5DFSG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Always-Your-Heart-Sympathy-Sentiment/dp/B07GZ5DFSG/?ie=UTF8&tag=giftable02-20)
 
 A heartfelt token to embrace and uplift those who are grieving, this exquisitely handcrafted glass mosaic cross carries a profound message of remembrance and solace.
 
@@ -721,11 +721,11 @@ This beautifully crafted glass mosaic cross is handcrafted with care in the Unit
 
 ✔️ Offers a tangible symbol of love and support during their difficult time
 
-[Buy from Amazon](https://www.amazon.com/Always-Your-Heart-Sympathy-Sentiment/dp/B07GZ5DFSG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Always-Your-Heart-Sympathy-Sentiment/dp/B07GZ5DFSG/?ie=UTF8&tag=giftable02-20)
 
-### [40\. Stepping Stone](https://www.amazon.com/New-Creative-Evergreen-Polystone-Memorial/dp/B003Z9HR68?ie=UTF8&tag=avadalove-20)
+### [40\. Stepping Stone](https://www.amazon.com/New-Creative-Evergreen-Polystone-Memorial/dp/B003Z9HR68?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/New-Creative-Evergreen-Polystone-Memorial/dp/B003Z9HR68?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/New-Creative-Evergreen-Polystone-Memorial/dp/B003Z9HR68?ie=UTF8&tag=giftable02-20)
 
 Remembering love that lasts forever. Offer solace and comfort to your grieving friends with a heartfelt gift that honors their lost loved one.
 
@@ -739,11 +739,11 @@ Made of durable polystone, this memorial stepping stone features delicate pink a
 
 ✔️ Adds a touch of warmth and beauty to the surroundings
 
-[Buy from Amazon](https://www.amazon.com/New-Creative-Evergreen-Polystone-Memorial/dp/B003Z9HR68?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/New-Creative-Evergreen-Polystone-Memorial/dp/B003Z9HR68?ie=UTF8&tag=giftable02-20)
 
-### [41\. Ceramic Soy Wax Candle](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+### [41\. Ceramic Soy Wax Candle](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
 Illuminate the path to healing with this meaningful gift. This 8oz ceramic candle holder is more than just a decorative piece; it's a symbol of love and remembrance.
 
@@ -757,11 +757,11 @@ Safely wrapped in a printed box, it houses a soothing soy wax candle that carrie
 
 ✔️ Sooths the mind and eases tension during the mourning process
 
-[Buy from Amazon](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
-### [42\. Lives in Heaven Bracelet](https://www.amazon.com/Memorial-Jewelry-Sympathy-Heaven-Bracelet/dp/B07SWJK1GV/?ie=UTF8&tag=avadalove-20)
+### [42\. Lives in Heaven Bracelet](https://www.amazon.com/Memorial-Jewelry-Sympathy-Heaven-Bracelet/dp/B07SWJK1GV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Memorial-Jewelry-Sympathy-Heaven-Bracelet/dp/B07SWJK1GV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Memorial-Jewelry-Sympathy-Heaven-Bracelet/dp/B07SWJK1GV/?ie=UTF8&tag=giftable02-20)
 
 Crafted with the utmost care, this Memorial Bracelet is a poignant piece of remembrance jewelry.
 
@@ -775,7 +775,7 @@ It serves as a permanent reminder of a cherished husband who is deeply missed. T
 
 ✔️ A meaningful and touching gift for anyone grieving the loss of a husband
 
-[Buy from Amazon](https://www.amazon.com/Memorial-Jewelry-Sympathy-Heaven-Bracelet/dp/B07SWJK1GV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Memorial-Jewelry-Sympathy-Heaven-Bracelet/dp/B07SWJK1GV/?ie=UTF8&tag=giftable02-20)
 
 ### [43\. Memorial Angel Wing Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/777719106/personalized-sympathy-bereavement-gift)
 
@@ -977,9 +977,9 @@ Made of premium quality leather, this wallet gives a lasting tribute to your los
 
 [Buy from Loveable](https://loveable.us/products/youre-always-by-my-side-personalized-engraved-leather-wallet-memorial-sympathy-gifts-309ihpnplw1013?variant=44795505541352?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-loss-of-husband-to-show-your-sympathy)
 
-### [54\. Memorial Wooden Art With Picture](https://www.amazon.com/dp/B0CJ4S2LLH?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [54\. Memorial Wooden Art With Picture](https://www.amazon.com/dp/B0CJ4S2LLH?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CJ4S2LLH?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CJ4S2LLH?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Celebrate the life of your lost husband with this Memorial Wooden Art with Picture. This item intertwines memory and artistry in a striking and emotional manner.
 
@@ -995,7 +995,7 @@ Crafted with attention to detail, the wooden art includes a special space to ins
 
 ✔️ Personal picture insertion
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CJ4S2LLH?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CJ4S2LLH?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ## Bottom Line
 

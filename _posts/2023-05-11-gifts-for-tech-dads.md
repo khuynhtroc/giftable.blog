@@ -35,9 +35,9 @@ The Badass Dad Gift for Dad Phone Holder, which has a strong and safe place for 
 
 [Buy from Loveable](https://loveable.ai/products/badass-dad-personalized-kids-name-custom-nickname-dock-station-jewelry-phone-holder-birthday-gift-fathers-day-gift-for-dad-step-dad-bonus-dad-papa-poppy-305icntlds634?variant=44519895400680?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-tech-dads-that-hell-never-think-of)
 
-### [2\. Thin Bluetooth Tracker](https://www.amazon.com/Tile-1-Pack-Bluetooth-Water-Resistant-Compatible/dp/B09B2NYJ3T/?ie=UTF8&tag=avadalove-20)
+### [2\. Thin Bluetooth Tracker](https://www.amazon.com/Tile-1-Pack-Bluetooth-Water-Resistant-Compatible/dp/B09B2NYJ3T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tile-1-Pack-Bluetooth-Water-Resistant-Compatible/dp/B09B2NYJ3T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tile-1-Pack-Bluetooth-Water-Resistant-Compatible/dp/B09B2NYJ3T/?ie=UTF8&tag=giftable02-20)
 
 Find Nearby is an easy-to-use Bluetooth pairing tool for your Smart Home device that allows you to easily pair your device with other smart home devices in your home.
 
@@ -51,7 +51,7 @@ If your Tile is out of range, use the Tile app to view your Tile’s most recent
 
 ✔️ Sleek and compact design for easy portability
 
-[Buy from Amazon](https://www.amazon.com/Tile-1-Pack-Bluetooth-Water-Resistant-Compatible/dp/B09B2NYJ3T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tile-1-Pack-Bluetooth-Water-Resistant-Compatible/dp/B09B2NYJ3T/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Circuit Board Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/698835143/circuit-board-keychain-blue-electrical)
 
@@ -71,9 +71,9 @@ This unique keychain not only captures his love for technology but also adds a p
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/698835143/circuit-board-keychain-blue-electrical)
 
-### [4\. Magnetic Work Light](https://www.amazon.com/Cliplight-Pivot-Work-Light-Flashlight/dp/B00HX526CU?ie=UTF8&tag=avadalove-20)
+### [4\. Magnetic Work Light](https://www.amazon.com/Cliplight-Pivot-Work-Light-Flashlight/dp/B00HX526CU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cliplight-Pivot-Work-Light-Flashlight/dp/B00HX526CU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cliplight-Pivot-Work-Light-Flashlight/dp/B00HX526CU?ie=UTF8&tag=giftable02-20)
 
 Illuminate your tech dad's workspace with the Magnetic Work Light, providing benefits that go beyond a regular desk light.
 
@@ -87,11 +87,11 @@ Its powerful magnets allow him to attach it to various surfaces, leaving his han
 
 ✔️ Flexible neck for versatile positioning
 
-[Buy from Amazon](https://www.amazon.com/Cliplight-Pivot-Work-Light-Flashlight/dp/B00HX526CU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cliplight-Pivot-Work-Light-Flashlight/dp/B00HX526CU?ie=UTF8&tag=giftable02-20)
 
-### [5\. Wine Gift Set](https://www.amazon.com/Ivation-Stainless-Electric-Preserver-Stoppers/dp/B0782QFDDJ?ie=UTF8&tag=avadalove-20)
+### [5\. Wine Gift Set](https://www.amazon.com/Ivation-Stainless-Electric-Preserver-Stoppers/dp/B0782QFDDJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ivation-Stainless-Electric-Preserver-Stoppers/dp/B0782QFDDJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ivation-Stainless-Electric-Preserver-Stoppers/dp/B0782QFDDJ?ie=UTF8&tag=giftable02-20)
 
 Treat your tech dad to a sophisticated and luxurious experience with the Wine Gift Set.
 
@@ -107,11 +107,11 @@ This set includes a high-quality wine opener, aerator, and stopper, ensuring tha
 
 ✔️ Makes for a memorable and thoughtful gift
 
-[Buy from Amazon](https://www.amazon.com/Ivation-Stainless-Electric-Preserver-Stoppers/dp/B0782QFDDJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ivation-Stainless-Electric-Preserver-Stoppers/dp/B0782QFDDJ?ie=UTF8&tag=giftable02-20)
 
-### [6\. Lightweight GPS Golf Watch](https://www.amazon.com/Garmin-Approach-S10-Lightweight-010-02028-02/dp/B07C2QHTTY/?ie=UTF8&tag=avadalove-20)
+### [6\. Lightweight GPS Golf Watch](https://www.amazon.com/Garmin-Approach-S10-Lightweight-010-02028-02/dp/B07C2QHTTY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Garmin-Approach-S10-Lightweight-010-02028-02/dp/B07C2QHTTY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Garmin-Approach-S10-Lightweight-010-02028-02/dp/B07C2QHTTY/?ie=UTF8&tag=giftable02-20)
 
 Elevate your tech dad's golf game with the Lightweight GPS Golf Watch. This sleek and feature-packed watch provides accurate distance measurements, hazard information, and score tracking.
 
@@ -127,7 +127,7 @@ With its lightweight design and comfortable fit, it ensures a hassle-free and en
 
 ✔️ Makes for a memorable and thoughtful gift for golf enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Garmin-Approach-S10-Lightweight-010-02028-02/dp/B07C2QHTTY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Garmin-Approach-S10-Lightweight-010-02028-02/dp/B07C2QHTTY/?ie=UTF8&tag=giftable02-20)
 
 ### [7\. Special To My Amazing Dad Men’s Luxury Watch](https://loveable.ai/products/to-my-amazing-dad-ill-always-be-your-little-buddy-youll-always-be-my-hero-mens-luxury-watch-jewelry-best-birthday-anniversary-gift-for-daddy-fathers-day-gift-from-son-daughter-212icnnpwa351?variant=44164261904616?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-tech-dads-that-hell-never-think-of)
 
@@ -167,9 +167,9 @@ This handy organizer features multiple compartments and elastic loops, providing
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1119063359/tech-support-gift-it-guy-gift-santas)
 
-### [9\. Sound Machine](https://www.amazon.com/Hatch-Restore-Machine-Personal-Routine/dp/B087M94WWW?ie=UTF8&tag=avadalove-20)
+### [9\. Sound Machine](https://www.amazon.com/Hatch-Restore-Machine-Personal-Routine/dp/B087M94WWW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hatch-Restore-Machine-Personal-Routine/dp/B087M94WWW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hatch-Restore-Machine-Personal-Routine/dp/B087M94WWW?ie=UTF8&tag=giftable02-20)
 
 Gently wake to a custom Sunrise Alarm Clock that supports healthy cortisol levels. Customize your sleep-wake routine to help you fall asleep, stay asleep, and wake up feeling refreshed.
 
@@ -183,11 +183,11 @@ Put your mind at ease. Download calming music and sounds to help you prepare you
 
 ✔️ Diverse range of sounds for a personalized experience
 
-[Buy from Amazon](https://www.amazon.com/Hatch-Restore-Machine-Personal-Routine/dp/B087M94WWW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hatch-Restore-Machine-Personal-Routine/dp/B087M94WWW?ie=UTF8&tag=giftable02-20)
 
-### [10\. 3Doodler Start and Essentials](https://www.amazon.com/3Doodler-Start-Essentials-Activity-Educational/dp/B086JQQHPK?ie=UTF8&tag=avadalove-20)
+### [10\. 3Doodler Start and Essentials](https://www.amazon.com/3Doodler-Start-Essentials-Activity-Educational/dp/B086JQQHPK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/3Doodler-Start-Essentials-Activity-Educational/dp/B086JQQHPK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/3Doodler-Start-Essentials-Activity-Educational/dp/B086JQQHPK?ie=UTF8&tag=giftable02-20)
 
 Ignite your tech dad's creativity with the 3Doodler Start+ Essentials. This innovative 3D printing pen allows him to bring his imagination to life by drawing in three dimensions.
 
@@ -203,11 +203,11 @@ With its kid-friendly design and eco-friendly plastic filaments, it provides a s
 
 ✔️ Makes for a memorable and thoughtful gift that promotes creativity and innovation
 
-[Buy from Amazon](https://www.amazon.com/3Doodler-Start-Essentials-Activity-Educational/dp/B086JQQHPK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/3Doodler-Start-Essentials-Activity-Educational/dp/B086JQQHPK?ie=UTF8&tag=giftable02-20)
 
-### [11\. Coffee Mug Warmer](https://www.amazon.com/COSORI-Electric-Beverage-Stainless-Backlit/dp/B07G9J4745?ie=UTF8&tag=avadalove-20)
+### [11\. Coffee Mug Warmer](https://www.amazon.com/COSORI-Electric-Beverage-Stainless-Backlit/dp/B07G9J4745?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/COSORI-Electric-Beverage-Stainless-Backlit/dp/B07G9J4745?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/COSORI-Electric-Beverage-Stainless-Backlit/dp/B07G9J4745?ie=UTF8&tag=giftable02-20)
 
 This mug retains heat more efficiently than others, making it the best match for the coffee warmer.
 
@@ -221,11 +221,11 @@ The automatic coffee maker shuts itself off after 8 hours, and the lid flips dow
 
 ✔️ Showcases their unique style and interests in gadgets for convenience
 
-[Buy from Amazon](https://www.amazon.com/COSORI-Electric-Beverage-Stainless-Backlit/dp/B07G9J4745?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/COSORI-Electric-Beverage-Stainless-Backlit/dp/B07G9J4745?ie=UTF8&tag=giftable02-20)
 
-### [12\. 2-Slice Toaster Perfect For Bread](https://www.amazon.com/Nostalgia-RTOS200-Retro-2-Slice-Toaster/dp/B00ZTSHE6Q?ie=UTF8&tag=avadalove-20)
+### [12\. 2-Slice Toaster Perfect For Bread](https://www.amazon.com/Nostalgia-RTOS200-Retro-2-Slice-Toaster/dp/B00ZTSHE6Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nostalgia-RTOS200-Retro-2-Slice-Toaster/dp/B00ZTSHE6Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nostalgia-RTOS200-Retro-2-Slice-Toaster/dp/B00ZTSHE6Q?ie=UTF8&tag=giftable02-20)
 
 This extra-wide toaster gives you the option of making two large slots, which makes it ideal for toasting bagel halves and thick slices of bread, English muffins, and more.
 
@@ -239,11 +239,11 @@ This browning level allows you to choose your desired doneness and can be select
 
 ✔️ Showcases their unique style and interests in culinary gadgets
 
-[Buy from Amazon](https://www.amazon.com/Nostalgia-RTOS200-Retro-2-Slice-Toaster/dp/B00ZTSHE6Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nostalgia-RTOS200-Retro-2-Slice-Toaster/dp/B00ZTSHE6Q?ie=UTF8&tag=giftable02-20)
 
-### [13\. Polaroid Desktop Digital Clock](https://www.amazon.com/dp/B076VNFCZS?ie=UTF8&tag=avadalove-20)
+### [13\. Polaroid Desktop Digital Clock](https://www.amazon.com/dp/B076VNFCZS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B076VNFCZS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B076VNFCZS?ie=UTF8&tag=giftable02-20)
 
 Polaroid's Desktop digital clock is a trendy and compact piece perfect for your night stand or desk.
 
@@ -257,11 +257,11 @@ It has many functionalities including dual time display, 12 and 24 hours, accura
 
 ✔️ Multiple display modes for versatility
 
-[Buy from Amazon](https://www.amazon.com/dp/B076VNFCZS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B076VNFCZS?ie=UTF8&tag=giftable02-20)
 
-### [14\. Patented Instant Coffee](https://www.amazon.com/dp/B07FJ6J24R?ie=UTF8&tag=avadalove-20)
+### [14\. Patented Instant Coffee](https://www.amazon.com/dp/B07FJ6J24R?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07FJ6J24R?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07FJ6J24R?ie=UTF8&tag=giftable02-20)
 
 With this HyperChiller, you'll chill your Coffee in less than 60 seconds. It's an easy-to-use tool that will make mornings and evenings much more pleasant!
 
@@ -275,11 +275,11 @@ This is a simple and elegant way to chill out your favorite beverages. Improved 
 
 ✔️ Showcases their unique style and interests in coffee connoisseurship
 
-[Buy from Amazon](https://www.amazon.com/dp/B07FJ6J24R?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07FJ6J24R?ie=UTF8&tag=giftable02-20)
 
-### [15\. Men’s Short Sleeve](https://www.amazon.com/Hanes-Graphic-Tee-Humor-Thinking-Medium/dp/B01EKB6DL4/?ie=UTF8&tag=avadalove-20)
+### [15\. Men’s Short Sleeve](https://www.amazon.com/Hanes-Graphic-Tee-Humor-Thinking-Medium/dp/B01EKB6DL4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hanes-Graphic-Tee-Humor-Thinking-Medium/dp/B01EKB6DL4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hanes-Graphic-Tee-Humor-Thinking-Medium/dp/B01EKB6DL4/?ie=UTF8&tag=giftable02-20)
 
 Clothing is perhaps the most personal gift you can give. It's personal, because it's the most personal type of gift you can give.
 
@@ -293,11 +293,11 @@ These T-Shirts are not only for the kids and college students, they can also be 
 
 ✔️ Makes for a memorable and thoughtful gift that combines fashion and convenience
 
-[Buy from Amazon](https://www.amazon.com/Hanes-Graphic-Tee-Humor-Thinking-Medium/dp/B01EKB6DL4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hanes-Graphic-Tee-Humor-Thinking-Medium/dp/B01EKB6DL4/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Bluetooth Tracker](https://www.amazon.com/Tile-RE-19001-Mate-1-Pack/dp/B07W9BBCTB?ie=UTF8&tag=avadalove-20)
+### [16\. Bluetooth Tracker](https://www.amazon.com/Tile-RE-19001-Mate-1-Pack/dp/B07W9BBCTB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tile-RE-19001-Mate-1-Pack/dp/B07W9BBCTB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tile-RE-19001-Mate-1-Pack/dp/B07W9BBCTB?ie=UTF8&tag=giftable02-20)
 
 Find Keys, Bags, and More allows you to attach Mate to everyday things like keys, bags, and other stuff you need to keep track of regularly.
 
@@ -311,11 +311,11 @@ It makes it easy to quickly search for keys, bags, and other things you need to 
 
 ✔️ Compact and lightweight for portability
 
-[Buy from Amazon](https://www.amazon.com/Tile-RE-19001-Mate-1-Pack/dp/B07W9BBCTB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tile-RE-19001-Mate-1-Pack/dp/B07W9BBCTB?ie=UTF8&tag=giftable02-20)
 
-### [17\. Mug Warmer](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=avadalove-20)
+### [17\. Mug Warmer](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=giftable02-20)
 
 A mug warmer with a long cord for easy toting and an on/off switch with an indicator light is the best mug warmer for any situation or use.
 
@@ -329,7 +329,7 @@ It's ideal for use in all your favorite hot beverages such as coffee, tea, hot c
 
 ✔️ Ensures your dad enjoys hot beverages for longer periods
 
-[Buy from Amazon](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Apple Charging Station](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/620117756/apple-charging-station-organizer-iphone)
 
@@ -703,9 +703,9 @@ Vinyl wall decals are a trend in home decor. They're easy to apply and provide a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/998078037/technology-wall-decal-social-media-decal)
 
-### [38\. Daddy My Protector Gift For Tech Dads Wooden Plaque](https://www.amazon.com/dp/B0C73DSHJ9?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [38\. Daddy My Protector Gift For Tech Dads Wooden Plaque](https://www.amazon.com/dp/B0C73DSHJ9?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0C73DSHJ9?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0C73DSHJ9?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Seeking the perfect gift to symbolize the deep connection between father and child? Look no further than the captivating "Daddy My Protector Gift For Tech Dads Wooden Plaque"!
 
@@ -719,7 +719,7 @@ It's the ideal size for showcasing in any room, measuring 10 inches in height an
 
 ✔️ Great for Father's Day or any occasion
 
-[Buy from Amazon](https://www.amazon.com/dp/B0C73DSHJ9?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0C73DSHJ9?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [39\. To My Dad So Much Of Me Gifts Tech Dads Watch](https://loveable.ai/products/to-my-dad-so-much-of-me-is-made-from-what-i-learned-from-you-personalized-stainless-steel-engraved-chronograph-watch-gift-for-dad-306ihpnpwa346?variant=44549710971112?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-tech-dads-that-hell-never-think-of)
 

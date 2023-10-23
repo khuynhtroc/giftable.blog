@@ -383,9 +383,9 @@ Show your love for your child with this laser-engraved picture frame. This photo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/111997437/5x7-name-frame-personalized-picture)
 
-### [24\. Malden International Designs](https://www.amazon.com/Malden-International-Designs-Opening-Letterboard/dp/B08W1Q3CY9/?ie=UTF8&tag=avadalove-20)
+### [24\. Malden International Designs](https://www.amazon.com/Malden-International-Designs-Opening-Letterboard/dp/B08W1Q3CY9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Malden-International-Designs-Opening-Letterboard/dp/B08W1Q3CY9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Malden-International-Designs-Opening-Letterboard/dp/B08W1Q3CY9/?ie=UTF8&tag=giftable02-20)
 
 A personalized photo frame for portraits, art prints, and everyday snaps. Create a personalized message on the gray alphabet from 144 white letters and characters. Turn the photos on your memory card or smartphone into a beautiful work of art.
 
@@ -397,7 +397,7 @@ A personalized photo frame for portraits, art prints, and everyday snaps. Create
 
 ✔️ Decorate around the house or office
 
-[Buy from Amazon](https://www.amazon.com/Malden-International-Designs-Opening-Letterboard/dp/B08W1Q3CY9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Malden-International-Designs-Opening-Letterboard/dp/B08W1Q3CY9/?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Couples Personalized Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/242138638/couples-personalized-4x6-frame-romantic)
 
@@ -479,9 +479,9 @@ Create your personalized photo frames on rustic oak, use your photos from social
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/609863266/personalized-picture-frame-picture-frame)
 
-### [30\. Personalized Add Your Custom Text Hanging](https://www.amazon.com/Personalized-Tabletop-Picture-Customizable-Horizontal/dp/B01BCWY7TY/?ie=UTF8&tag=avadalove-20)
+### [30\. Personalized Add Your Custom Text Hanging](https://www.amazon.com/Personalized-Tabletop-Picture-Customizable-Horizontal/dp/B01BCWY7TY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Tabletop-Picture-Customizable-Horizontal/dp/B01BCWY7TY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Tabletop-Picture-Customizable-Horizontal/dp/B01BCWY7TY/?ie=UTF8&tag=giftable02-20)
 
 Alder wood paintings are professionally engraved in the US by talented artisans. This wooden picture frame is made in such a way as to create a wonderful, lasting memory of the past and a vintage gift for many years to come. Designed for gift giving, giving for many different occasions and events.
 
@@ -493,11 +493,11 @@ Alder wood paintings are professionally engraved in the US by talented artisans.
 
 ✔️ Ideal gift for any father
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Tabletop-Picture-Customizable-Horizontal/dp/B01BCWY7TY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Tabletop-Picture-Customizable-Horizontal/dp/B01BCWY7TY/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Personalized Photo Heart Shape Rock](https://www.amazon.com/Moonlove-Personalized-Customized-Birthday-Valentines/dp/B06XBYBGSD/?ie=UTF8&tag=avadalove-20)
+### [31\. Personalized Photo Heart Shape Rock](https://www.amazon.com/Moonlove-Personalized-Customized-Birthday-Valentines/dp/B06XBYBGSD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Moonlove-Personalized-Customized-Birthday-Valentines/dp/B06XBYBGSD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Moonlove-Personalized-Customized-Birthday-Valentines/dp/B06XBYBGSD/?ie=UTF8&tag=giftable02-20)
 
 Custom heart photo frame gifts for your lovely kids or any family member. Each stone photo frame has a different and unique texture and pattern around the frame, as it is 100% handmade by the maker.
 
@@ -509,11 +509,11 @@ Custom heart photo frame gifts for your lovely kids or any family member. Each s
 
 ✔️ Material: Melaleuca stone
 
-[Buy from Amazon](https://www.amazon.com/Moonlove-Personalized-Customized-Birthday-Valentines/dp/B06XBYBGSD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Moonlove-Personalized-Customized-Birthday-Valentines/dp/B06XBYBGSD/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Customizable Two Picture Frame](https://www.amazon.com/Picture-Frame-Genuine-Letter-Board/dp/B07N8DRRSG/?ie=UTF8&tag=avadalove-20)
+### [32\. Customizable Two Picture Frame](https://www.amazon.com/Picture-Frame-Genuine-Letter-Board/dp/B07N8DRRSG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Picture-Frame-Genuine-Letter-Board/dp/B07N8DRRSG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Picture-Frame-Genuine-Letter-Board/dp/B07N8DRRSG/?ie=UTF8&tag=giftable02-20)
 
 Personalize this photo frame to make a sentimental Mother's Day Gift, your best friend, an outing gift, and more. Choose a unique message, date, or quote to caption your favorite photos.
 
@@ -525,7 +525,7 @@ Personalize this photo frame to make a sentimental Mother's Day Gift, your best 
 
 ✔️ Carefully designed gift box packaging
 
-[Buy from Amazon](https://www.amazon.com/Picture-Frame-Genuine-Letter-Board/dp/B07N8DRRSG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Picture-Frame-Genuine-Letter-Board/dp/B07N8DRRSG/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Personalized Picture Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/612602223/mother-day-gift-for-grandma-nana)
 
@@ -543,9 +543,9 @@ Each handmade item is unique; it is made of high-quality wood. It can be a meani
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/612602223/mother-day-gift-for-grandma-nana)
 
-### [34\. Wood Picture Frame with White Heart](https://www.amazon.com/Afuly-Distressed-Picture-Wooden-Christmas/dp/B07BDMC26K/?ie=UTF8&tag=avadalove-20)
+### [34\. Wood Picture Frame with White Heart](https://www.amazon.com/Afuly-Distressed-Picture-Wooden-Christmas/dp/B07BDMC26K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Afuly-Distressed-Picture-Wooden-Christmas/dp/B07BDMC26K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Afuly-Distressed-Picture-Wooden-Christmas/dp/B07BDMC26K/?ie=UTF8&tag=giftable02-20)
 
 This 5x7 farm photo frame is made of eco-friendly MDF and real glass; high definition and more durable can display more clearly souvenir photos, portraits, art prints, and paper your certification. Cute and uniquely designed personalized photo frames are a great gift for any occasion.
 
@@ -557,7 +557,7 @@ This 5x7 farm photo frame is made of eco-friendly MDF and real glass; high defin
 
 ✔️ Easy to combine with farm and country styles
 
-[Buy from Amazon](https://www.amazon.com/Afuly-Distressed-Picture-Wooden-Christmas/dp/B07BDMC26K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Afuly-Distressed-Picture-Wooden-Christmas/dp/B07BDMC26K/?ie=UTF8&tag=giftable02-20)
 
 ## Final thought
 

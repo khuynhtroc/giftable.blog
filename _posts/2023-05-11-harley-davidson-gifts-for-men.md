@@ -413,9 +413,9 @@ This personalized metal sign would make an excellent surprise gift for the man w
 
 [Buy from Esty](https://www.etsy.com/listing/187937749/personalized-motorcycle-sign)
 
-### [23\. Motorcycle Model 3D Sensor Night Light](https://www.amazon.com/Motorcycle-Sensor-Atmosphere-Bedroom-Decoration/dp/B07D2769ZH?ie=UTF8&tag=avadalove-20)
+### [23\. Motorcycle Model 3D Sensor Night Light](https://www.amazon.com/Motorcycle-Sensor-Atmosphere-Bedroom-Decoration/dp/B07D2769ZH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Motorcycle-Sensor-Atmosphere-Bedroom-Decoration/dp/B07D2769ZH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Motorcycle-Sensor-Atmosphere-Bedroom-Decoration/dp/B07D2769ZH?ie=UTF8&tag=giftable02-20)
 
 Magic 3D LED bulbs play tricks on your eyes, but in reality, it is a light guide glass plate, which makes it a fantastic Arley-Davidson gift for men to get. In particular, it appears to be a real 3D night light in the dark or when taking a snapshot; the visual delight will be intense!
 
@@ -429,11 +429,11 @@ Your children or pals will like this unique gift, and it will also make an excel
 
 ✔️ Auto-sensor turns on/off based on ambient light
 
-[Buy from Amazon](https://www.amazon.com/Motorcycle-Sensor-Atmosphere-Bedroom-Decoration/dp/B07D2769ZH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Motorcycle-Sensor-Atmosphere-Bedroom-Decoration/dp/B07D2769ZH?ie=UTF8&tag=giftable02-20)
 
-### [24\. Carbon Fiber Vinyl Inlay Keychain](https://www.amazon.com/Design-Toscano-Grease-Motorcycle-Polyresin/dp/B00CW2QAGC?ie=UTF8&tag=avadalove-20)
+### [24\. Carbon Fiber Vinyl Inlay Keychain](https://www.amazon.com/Design-Toscano-Grease-Motorcycle-Polyresin/dp/B00CW2QAGC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Design-Toscano-Grease-Motorcycle-Polyresin/dp/B00CW2QAGC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Design-Toscano-Grease-Motorcycle-Polyresin/dp/B00CW2QAGC?ie=UTF8&tag=giftable02-20)
 
 The Harley-Davidson Carbon Fiber Vinyl Inlay Keychain is a must-have accessory for every man who admires the Harley-Davidson brand. It would be wonderful if the man you love could receive this Key Ring Clip Tag Fob Holder as a gift.
 
@@ -447,11 +447,11 @@ Fully constructed of metal with a 3M Simulated Carbon Fiber Vinyl Inlay, this of
 
 ✔️ Compact 4-inch size, ideal for keys or backpacks
 
-[Buy from Amazon](https://www.amazon.com/Design-Toscano-Grease-Motorcycle-Polyresin/dp/B00CW2QAGC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Design-Toscano-Grease-Motorcycle-Polyresin/dp/B00CW2QAGC?ie=UTF8&tag=giftable02-20)
 
-### [25\. Harley-Davidson Tall Boy Travel Latte Mug](https://www.amazon.com/Harley-Davidson-Travel-Latte-Skull-3TBT4906/dp/B017C0OKJM/?ie=UTF8&tag=avadalove-20)
+### [25\. Harley-Davidson Tall Boy Travel Latte Mug](https://www.amazon.com/Harley-Davidson-Travel-Latte-Skull-3TBT4906/dp/B017C0OKJM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Travel-Latte-Skull-3TBT4906/dp/B017C0OKJM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Travel-Latte-Skull-3TBT4906/dp/B017C0OKJM/?ie=UTF8&tag=giftable02-20)
 
 It comes in a Gift Box Set that includes a Harley-Davidson Tall Boy Travel Latte Mug that is designed with the H-D Skull and will wow any man who receives it!
 
@@ -465,11 +465,11 @@ With the size of 21 oz., the Skull Tall Boy Travel Latte can keeps your hot beve
 
 ✔️ Durable construction, perfect for daily use
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Travel-Latte-Skull-3TBT4906/dp/B017C0OKJM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Travel-Latte-Skull-3TBT4906/dp/B017C0OKJM/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Trucker Cap Black](https://www.amazon.com/Harley-Davidson-Embroidered-Shield-Trucker-BCC31212/dp/B01GKHJARU?ie=UTF8&tag=avadalove-20)
+### [26\. Trucker Cap Black](https://www.amazon.com/Harley-Davidson-Embroidered-Shield-Trucker-BCC31212/dp/B01GKHJARU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Embroidered-Shield-Trucker-BCC31212/dp/B01GKHJARU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Embroidered-Shield-Trucker-BCC31212/dp/B01GKHJARU?ie=UTF8&tag=giftable02-20)
 
 Motorcycle cap with curved brim and colorblocked mesh in black from Harley-Davidson is a **[great present idea for men who love motorcycles](/motorcycle-gifts-for-husband/)** and motorcycles in general. A robust 100 percent cotton front and 100 percent polyester mesh back are used to create this Harley-Davidson cap, which has a Hook & Loop fastening for an adjustable fit. Wisconsin Curved Bill Black with contrasting khaki stitching and mesh with Harley-Davidson dealer name embroidered on orange stripe Curved Bill Black with contrasting khaki stitching and mesh
 
@@ -481,11 +481,11 @@ Motorcycle cap with curved brim and colorblocked mesh in black from Harley-David
 
 ✔️ Adjustable snap-back closure for a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Embroidered-Shield-Trucker-BCC31212/dp/B01GKHJARU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Embroidered-Shield-Trucker-BCC31212/dp/B01GKHJARU?ie=UTF8&tag=giftable02-20)
 
-### [27\. Men’s Graphic Short Sleeve](https://www.amazon.com/Harley-Davidson-Military-Mens-Graphic-T-Shirt/dp/B07C8FGNBJ/?ie=UTF8&tag=avadalove-20)
+### [27\. Men’s Graphic Short Sleeve](https://www.amazon.com/Harley-Davidson-Military-Mens-Graphic-T-Shirt/dp/B07C8FGNBJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Military-Mens-Graphic-T-Shirt/dp/B07C8FGNBJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Military-Mens-Graphic-T-Shirt/dp/B07C8FGNBJ/?ie=UTF8&tag=giftable02-20)
 
 Harley-Davidson Military is designed with Men's Graphic Short Sleeve Crew Neck T-Shirt - Overseas Tour show War Bike on the front and Harley-Davidson Military on the back.
 
@@ -499,11 +499,11 @@ This Men's short-sleeve crew neck tee is a stylish and significant shirt that is
 
 ✔️ Comfortable short sleeve style, perfect for summer
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Military-Mens-Graphic-T-Shirt/dp/B07C8FGNBJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Military-Mens-Graphic-T-Shirt/dp/B07C8FGNBJ/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Harley-Davidson Long-Sleeve Graphic](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-T-Shirt/dp/B076QGTD6C?ie=UTF8&tag=avadalove-20)
+### [28\. Harley-Davidson Long-Sleeve Graphic](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-T-Shirt/dp/B076QGTD6C?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-T-Shirt/dp/B076QGTD6C?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-T-Shirt/dp/B076QGTD6C?ie=UTF8&tag=giftable02-20)
 
 The Harley-Davidson Military - Men's Long-Sleeve Graphic T-Shirt - Ramstein AB is the ideal gift for any man in your life who appreciates the Harley-Davidson brand.
 
@@ -517,11 +517,11 @@ This Men's long-sleeve graphic t-shirt is constructed of 100 percent Cotton, whi
 
 ✔️ High-quality graphics, sure to turn heads
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-T-Shirt/dp/B076QGTD6C?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-T-Shirt/dp/B076QGTD6C?ie=UTF8&tag=giftable02-20)
 
-### [29\. Men’s Wrenford Sneaker](https://www.amazon.com/HARLEY-DAVIDSON-FOOTWEAR-Mens-Wrenford-Sneaker/dp/B07H7KPM4Z/?ie=UTF8&tag=avadalove-20)
+### [29\. Men’s Wrenford Sneaker](https://www.amazon.com/HARLEY-DAVIDSON-FOOTWEAR-Mens-Wrenford-Sneaker/dp/B07H7KPM4Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HARLEY-DAVIDSON-FOOTWEAR-Mens-Wrenford-Sneaker/dp/B07H7KPM4Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HARLEY-DAVIDSON-FOOTWEAR-Mens-Wrenford-Sneaker/dp/B07H7KPM4Z/?ie=UTF8&tag=giftable02-20)
 
 The HARLEY-DAVIDSON FOOTWEAR Men's Wrenford Sneaker is the ideal gift for any man in your life who you care about and appreciate.
 
@@ -535,11 +535,11 @@ This sneaker is composed entirely of fabric or textile with a canvas upper, whic
 
 ✔️ Durable construction ensures long-lasting performance
 
-[Buy from Amazon](https://www.amazon.com/HARLEY-DAVIDSON-FOOTWEAR-Mens-Wrenford-Sneaker/dp/B07H7KPM4Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HARLEY-DAVIDSON-FOOTWEAR-Mens-Wrenford-Sneaker/dp/B07H7KPM4Z/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Cacukap Vintage Motorcycle Bottle Opener](https://www.amazon.com/Vintage-Motorcycle-Bottle-Opener-Unique/dp/B07MJ28VYV/?ie=UTF8&tag=avadalove-20)
+### [30\. Cacukap Vintage Motorcycle Bottle Opener](https://www.amazon.com/Vintage-Motorcycle-Bottle-Opener-Unique/dp/B07MJ28VYV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Motorcycle-Bottle-Opener-Unique/dp/B07MJ28VYV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Motorcycle-Bottle-Opener-Unique/dp/B07MJ28VYV/?ie=UTF8&tag=giftable02-20)
 
 Beer gifts for dad, husband, and boyfriends are made even better with this vintage motorcycle bottle opener. A bottle opener for beer and soda bottles in a home bar, kitchen, club or pub can also be used as a keepsake and as a bottle opener for wine bottles.
 
@@ -553,11 +553,11 @@ Its nostalgic and one-of-a-kind design is based on an old-fashioned motorcycle p
 
 ✔️ Perfect gift for motorcycle enthusiasts and collectors
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Motorcycle-Bottle-Opener-Unique/dp/B07MJ28VYV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Motorcycle-Bottle-Opener-Unique/dp/B07MJ28VYV/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Trademark Curved Brim Washed Baseball Cap Black](https://www.amazon.com/Harley-Davidson-Nostalgic-Shield-Baseball-BC31380/dp/B00IJJQ4VI/?ie=UTF8&tag=avadalove-20)
+### [31\. Trademark Curved Brim Washed Baseball Cap Black](https://www.amazon.com/Harley-Davidson-Nostalgic-Shield-Baseball-BC31380/dp/B00IJJQ4VI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Nostalgic-Shield-Baseball-BC31380/dp/B00IJJQ4VI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Nostalgic-Shield-Baseball-BC31380/dp/B00IJJQ4VI/?ie=UTF8&tag=giftable02-20)
 
 Those who adore the Harley-Davidson brand will adore this Harley-Davidson Men's Embroidered Trademark Curved Brim Washed Baseball Cap in Black!
 
@@ -571,11 +571,11 @@ Close this cap with a hook and loop closure. 100% cotton construction for long-l
 
 ✔️ Premium quality materials ensure long-lasting durability
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Nostalgic-Shield-Baseball-BC31380/dp/B00IJJQ4VI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Nostalgic-Shield-Baseball-BC31380/dp/B00IJJQ4VI/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Men’s Long-Sleeve Graphic T-Shirt](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-Overseas/dp/B07K8WWQD7/?ie=UTF8&tag=avadalove-20)
+### [32\. Men’s Long-Sleeve Graphic T-Shirt](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-Overseas/dp/B07K8WWQD7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-Overseas/dp/B07K8WWQD7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-Overseas/dp/B07K8WWQD7/?ie=UTF8&tag=giftable02-20)
 
 Men's Long-Sleeve Graphic T-Shirt with Harley-Davidson Military graphics would make an excellent present for anyone who loves Harley-Davidson Military.
 
@@ -589,11 +589,11 @@ Made of 100 percent cotton, this Harley-Davisdon Big V-Twin tee will keep you co
 
 ✔️ Soft and comfortable fabric for all-day wear
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-Overseas/dp/B07K8WWQD7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Military-Long-Sleeve-Graphic-Overseas/dp/B07K8WWQD7/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Harley-Davidson Embossed B&S Stainless Steel Travel Cup](https://www.amazon.com/Harley-Davidson-Embossed-Stainless-Travel-3SSB4900/dp/B07751P2VC/?ie=UTF8&tag=avadalove-20)
+### [33\. Harley-Davidson Embossed B&S Stainless Steel Travel Cup](https://www.amazon.com/Harley-Davidson-Embossed-Stainless-Travel-3SSB4900/dp/B07751P2VC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Embossed-Stainless-Travel-3SSB4900/dp/B07751P2VC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Embossed-Stainless-Travel-3SSB4900/dp/B07751P2VC/?ie=UTF8&tag=giftable02-20)
 
 If you are looking for a cup item for men who enjoy Harley-Davidson motorcycles, this Harley-Davidson Embossed Stainless Steel Travel Cup would be a great choice.
 
@@ -607,11 +607,11 @@ It is embossed with the Harley-Davidson logo. Its sleek, straight-lined design a
 
 ✔️ Secure lid for spill-free, worry-free carrying
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Embossed-Stainless-Travel-3SSB4900/dp/B07751P2VC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Embossed-Stainless-Travel-3SSB4900/dp/B07751P2VC/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Harley-Davidson Gift Cards](https://www.amazon.com/Harley-Davidson-Gift-Cards-Email-Delivery/dp/B07XVLLL9H/?ie=UTF8&tag=avadalove-20)
+### [34\. Harley-Davidson Gift Cards](https://www.amazon.com/Harley-Davidson-Gift-Cards-Email-Delivery/dp/B07XVLLL9H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Gift-Cards-Email-Delivery/dp/B07XVLLL9H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Gift-Cards-Email-Delivery/dp/B07XVLLL9H/?ie=UTF8&tag=giftable02-20)
 
 The Harley Davidson Gift Cards are sure to please any man who receives one of these.
 
@@ -625,11 +625,11 @@ Purchases of Genuine Harley-Davidson items and services are eligible for this of
 
 ✔️ Allows recipients to choose their favorite products
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Gift-Cards-Email-Delivery/dp/B07XVLLL9H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Gift-Cards-Email-Delivery/dp/B07XVLLL9H/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Men’s Nathan Vulcanized Sneaker](https://www.amazon.com/Harley-Davidson-Nathan-Vulcanized-Black-Orange/dp/B013HGK8ZU?ie=UTF8&tag=avadalove-20)
+### [35\. Men’s Nathan Vulcanized Sneaker](https://www.amazon.com/Harley-Davidson-Nathan-Vulcanized-Black-Orange/dp/B013HGK8ZU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harley-Davidson-Nathan-Vulcanized-Black-Orange/dp/B013HGK8ZU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harley-Davidson-Nathan-Vulcanized-Black-Orange/dp/B013HGK8ZU?ie=UTF8&tag=giftable02-20)
 
 The Harley Davidson Vulcanized Sneaker will be the first choice you should consider when shopping for a present for guys.
 
@@ -643,7 +643,7 @@ A durable rubber outsole protects the leather upper of this shoe, which is craft
 
 ✔️ Stylish black and orange design for a bold look
 
-[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Nathan-Vulcanized-Black-Orange/dp/B013HGK8ZU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harley-Davidson-Nathan-Vulcanized-Black-Orange/dp/B013HGK8ZU?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

@@ -51,9 +51,9 @@ Nothing is worse than spending money on the ideal art print only to see it warp 
 
 [Buy from Loveable](https://loveable.ai/products/i-love-you-in-every-universe-personalized-upload-photo-postercanvas-best-gift-for-old-couples-for-himher-for-parents-best-valentines-gift-anniversary-302icnvsca126?variant=44276273447144?utm_source=avada&ranking=&utm_source=&utm_campaign=best-last-minute-valentines-gifts-that-will-bring-suprise-to-your-love)
 
-### [3\. Mini Succulent Echeveria Fully Rooted Live Indoor Plant](https://www.amazon.com/dp/B07M886R3B?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Mini Succulent Echeveria Fully Rooted Live Indoor Plant](https://www.amazon.com/dp/B07M886R3B?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07M886R3B?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07M886R3B?th=1?ie=UTF8&tag=giftable02-20)
 
 Looking for that perfect Valentine's Day gift? Look no further than Best Last Minute Valentin's Mini Succulent Echeveria! It's a fully rooted live indoor plant that will bring joy to your loved one with its vibrant colors and easy-care lifestyle. Its care instructions make it ideal for first-time plant owners. Get your special someone the best last-minute gift - order now!
 
@@ -65,7 +65,7 @@ Looking for that perfect Valentine's Day gift? Look no further than Best Last Mi
 
 ✔️ Brighten up your home
 
-[Buy from Amazon](https://www.amazon.com/dp/B07M886R3B?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07M886R3B?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Valentine’s Day Custom Star Map Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1371701203/last-minute-gift-valentines-day-custom)
 
@@ -83,9 +83,9 @@ Make this Valentine's Day truly special for your loved one with the Best Last Mi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1371701203/last-minute-gift-valentines-day-custom)
 
-### [5\. Globe Decanter Set with 2 Glasses](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT/?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Globe Decanter Set with 2 Glasses](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT/?th=1?ie=UTF8&tag=giftable02-20)
 
 Are you looking for the perfect last-minute gift for your Valentine? Look no further! Best Last Minute Valentin's Globe Decanter Set is the perfect way to say "I love you". This romantic set features a stylish glass decanter with two elegant glasses, making it the perfect gift for your special someone. Whether you're looking to make a toast or just show your love, this set is sure to make your Valentine feel special and loved.
 
@@ -97,7 +97,7 @@ Are you looking for the perfect last-minute gift for your Valentine? Look no fur
 
 ✔️ Increase double the romantic sense
 
-[Buy from Amazon](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Matching Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1352286371/he-stole-my-heart-so-i-stole-his-last)
 
@@ -115,9 +115,9 @@ This His & Hers Matching Shirt is the perfect gift for any couple! It features a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1352286371/he-stole-my-heart-so-i-stole-his-last)
 
-### [7\. Real Preserved Flowers](https://www.amazon.com/dp/B08TL7H2FC?ie=UTF8&tag=avadalove-20)
+### [7\. Real Preserved Flowers](https://www.amazon.com/dp/B08TL7H2FC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B08TL7H2FC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B08TL7H2FC?ie=UTF8&tag=giftable02-20)
 
 Preserved flowers are real flowers that have been treated with a special solution to maintain their freshness and beauty. This process helps to preserve the flowers for a longer period of time, often up to a year or more. Preserved flowers are a great way to enjoy the beauty of fresh flowers without the hassle of having to replace them every few days. They are also a great option for those who are looking for a more eco-friendly alternative to traditional cut flowers.
 
@@ -129,7 +129,7 @@ Preserved flowers are real flowers that have been treated with a special solutio
 
 ✔️ The flowers were in perfect condition and the bouquet was very full
 
-[Buy from Amazon](https://www.amazon.com/dp/B08TL7H2FC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B08TL7H2FC?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Vegan Skincare Discovery Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1097248176/vegan-skincare-discovery-box-artisan)
 
@@ -147,9 +147,9 @@ The Vegan Skincare Discovery Box is a great way to explore vegan skincare produc
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1097248176/vegan-skincare-discovery-box-artisan)
 
-### [9\. Record Player with Built-in Speakers](https://www.amazon.com/dp/B00UMVW4VA?ie=UTF8&tag=avadalove-20)
+### [9\. Record Player with Built-in Speakers](https://www.amazon.com/dp/B00UMVW4VA?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B00UMVW4VA?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B00UMVW4VA?ie=UTF8&tag=giftable02-20)
 
 Bring your music to life with the Record Player with Built-in Speakers! This sleek turntable has everything you need to enjoy your favorite vinyl records and modern audio sources. With built-in Bluetooth speakers, you can stream your smartphone audio with ease. Thanks to the stereo RCA outputs, you can also easily connect external speakers to the device. You can even use the Line input to connect non-Bluetooth devices like a CD player. And for personal listening, simply plug your headphones into the headphone jack. Get ready to experience your music in a whole new way with the Record Player with Built-in Speakers!
 
@@ -161,7 +161,7 @@ Bring your music to life with the Record Player with Built-in Speakers! This sle
 
 ✔️ Perfect gift for any occasions
 
-[Buy from Amazon](https://www.amazon.com/dp/B00UMVW4VA?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B00UMVW4VA?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Custom Photo Desk Calendar 2023 12 Months](https://loveable.ai/products/custom-photo-desk-calendar-2023-12-months-best-gift-for-mom-dad-wife-husband-parents-family-on-2023-new-year-christmas-210ihpnpdc364?variant=44124812509416?utm_source=avada&ranking=&utm_source=&utm_campaign=best-last-minute-valentines-gifts-that-will-bring-suprise-to-your-love)
 
@@ -227,9 +227,9 @@ In your home, soft lighting and acrylic objects with laser engravings might help
 
 [Buy from Loveable](https://loveable.ai/products/reason-i-love-you-heart-shape-led-light-sweet-message-for-her-him-personalized-lamp-valentine-anniversary-gift-for-husband-wife-boyfriend-girlfriend-212icnnpll375?variant=44174895415528?utm_source=avada&ranking=&utm_source=&utm_campaign=best-last-minute-valentines-gifts-that-will-bring-suprise-to-your-love)
 
-### [14\. A Love Journal: 100 Things I Love about You](https://www.amazon.com/100-Things-Love-About-You/dp/1647398207/?ie=UTF8&tag=avadalove-20)
+### [14\. A Love Journal: 100 Things I Love about You](https://www.amazon.com/100-Things-Love-About-You/dp/1647398207/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/100-Things-Love-About-You/dp/1647398207/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/100-Things-Love-About-You/dp/1647398207/?ie=UTF8&tag=giftable02-20)
 
 Every partner deserves to know how cherished they are. Thanks to engaging topics that are presented in a delightful diary style, 100 Things I Love About You makes it simple to express love and gratitude.
 
@@ -241,11 +241,11 @@ Every partner deserves to know how cherished they are. Thanks to engaging topics
 
 ✔️ Having compelling prompts
 
-[Buy from Amazon](https://www.amazon.com/100-Things-Love-About-You/dp/1647398207/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/100-Things-Love-About-You/dp/1647398207/?ie=UTF8&tag=giftable02-20)
 
-### [15\. LovelyJewelry Leather Wrap Bracelets Girls](https://www.amazon.com/LovelyJewelry-Leather-Bracelets-Infinity-Wristband/dp/B01AL8N07A/?ie=UTF8&tag=avadalove-20)
+### [15\. LovelyJewelry Leather Wrap Bracelets Girls](https://www.amazon.com/LovelyJewelry-Leather-Bracelets-Infinity-Wristband/dp/B01AL8N07A/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LovelyJewelry-Leather-Bracelets-Infinity-Wristband/dp/B01AL8N07A/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LovelyJewelry-Leather-Bracelets-Infinity-Wristband/dp/B01AL8N07A/?ie=UTF8&tag=giftable02-20)
 
 With this custom necklace for Valentine's Day, you may express your love to your man. You may keep his heart by wearing the necklace. For your man, the ideal combination creates a one-of-a-kind, enjoyable, yet distinctive gift.
 
@@ -257,7 +257,7 @@ With this custom necklace for Valentine's Day, you may express your love to your
 
 ✔️ Made of high-quality genuine leather
 
-[Buy from Amazon](https://www.amazon.com/LovelyJewelry-Leather-Bracelets-Infinity-Wristband/dp/B01AL8N07A/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LovelyJewelry-Leather-Bracelets-Infinity-Wristband/dp/B01AL8N07A/?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Self Care Package](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1372797171/last-minute-gift-ideas-gift-box-for-mom)
 
@@ -353,9 +353,9 @@ This present idea for couples celebrating their love on Valentine's Day is equal
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/229481007/personalized-wedding-gift-for-couple)
 
-### [22\. Lip Gloss Set](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/?ie=UTF8&tag=avadalove-20)
+### [22\. Lip Gloss Set](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/?ie=UTF8&tag=giftable02-20)
 
 A practical gift that will help you have a great impression on your loved one. Are you facing challenges in choosing a gift like that? This item will be the best unique ideal gift for women's Valentine's Day.
 
@@ -367,7 +367,7 @@ A practical gift that will help you have a great impression on your loved one. A
 
 ✔️ Spread your love and how much you are
 
-[Buy from Amazon](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Funny White All Over Print Pillow](https://loveable.ai/products/i-promise-to-always-be-by-your-side-funny-white-all-over-print-pillow-throw-best-funny-gifts-for-couple-him-her-couple-on-valentine-anniversaries-birthday-212ihpbnpi610?variant=44157140893928?utm_source=avada&ranking=&utm_source=&utm_campaign=best-last-minute-valentines-gifts-that-will-bring-suprise-to-your-love)
 
@@ -641,9 +641,9 @@ This mug is the ideal little way to unwind on the day of the week when you can't
 
 [Buy from Loveable](https://loveable.ai/products/you-are-my-other-half-personalized-mug-best-208ihpthmu065?variant=43692888752360?utm_source=avada&ranking=&utm_source=&utm_campaign=best-last-minute-valentines-gifts-that-will-bring-suprise-to-your-love)
 
-### [40\. Barnett’s Christmas Chocolate Gift Baskets](https://www.amazon.com/Barnetts-Biscotti-Christmas-Thanksgiving-Valentines/dp/B006J7TAHM/?th=1?ie=UTF8&tag=avadalove-20)
+### [40\. Barnett’s Christmas Chocolate Gift Baskets](https://www.amazon.com/Barnetts-Biscotti-Christmas-Thanksgiving-Valentines/dp/B006J7TAHM/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Barnetts-Biscotti-Christmas-Thanksgiving-Valentines/dp/B006J7TAHM/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Barnetts-Biscotti-Christmas-Thanksgiving-Valentines/dp/B006J7TAHM/?th=1?ie=UTF8&tag=giftable02-20)
 
 The delicious gift baskets from Barnett's Chocolate are perfect for everyone on your list. This box mixes 24 chocolate-covered biscuits with a delectable selection of sweet and savory snacks. These cookies, a traditional treat, are wonderful holiday presents! A perfect **[valentine's day chocolate gifts](https://avada.io/loveable/valentines-day-chocolate-gifts/)** for your loved one.
 
@@ -655,7 +655,7 @@ The delicious gift baskets from Barnett's Chocolate are perfect for everyone on 
 
 ✔️ Suitable for any occasion
 
-[Buy from Amazon](https://www.amazon.com/Barnetts-Biscotti-Christmas-Thanksgiving-Valentines/dp/B006J7TAHM/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Barnetts-Biscotti-Christmas-Thanksgiving-Valentines/dp/B006J7TAHM/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [41\. Personalized Cutting Board 6 Styles](https://loveable.ai/products/personalized-cutting-board-6-styles-custom-cutting-board-wood-engraved-wooden-cutting-board-with-handle-date-couples-wedding-anniversary-housewarming-gift-monogrammed-gift-212ihplnwb595?variant=44152613044456?utm_source=avada&ranking=&utm_source=&utm_campaign=best-last-minute-valentines-gifts-that-will-bring-suprise-to-your-love)
 

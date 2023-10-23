@@ -71,9 +71,9 @@ The sweatshirt is available in various sizes, ensuring a comfortable fit for eve
 
 [Buy from Loveable](https://loveable.ai/products/personalized-name-add-your-name-ugly-christmas-sweatshirt-all-over-print-sweatshirt-best-christmas-gift-for-couple-210icnbnsw093-copy?variant=44043487477992?utm_source=avada&ranking=&utm_source=&utm_campaign=funny-christmas-gifts-that-you-never-thought-about)
 
-### [4\. Gift Card](https://www.amazon.com/Amazon-com-Gift-Card-Santa-Smile/dp/B0725JM87R?ie=UTF8&tag=avadalove-20)
+### [4\. Gift Card](https://www.amazon.com/Amazon-com-Gift-Card-Santa-Smile/dp/B0725JM87R?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Gift-Card-Santa-Smile/dp/B0725JM87R?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Gift-Card-Santa-Smile/dp/B0725JM87R?ie=UTF8&tag=giftable02-20)
 
 Give the gift of laughter and endless possibilities with the "Gift Card" stocking stuffer. It's the perfect funny surprise for the tech lover in your life, guaranteed to bring a smile to their face.
 
@@ -87,7 +87,7 @@ This hilarious stocking stuffer features an amusing Amazon.com card that will li
 
 ✔️ Stylish and Festive Box
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Santa-Smile/dp/B0725JM87R?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Santa-Smile/dp/B0725JM87R?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Custom Christmas Delivery Face Bag](https://loveable.ai/products/custom-christmas-delivery-face-photo-family-christmas-bag-christmas-gift-best-gifts-for-your-children-family-211ihplncs514?variant=44082235310312?utm_source=avada&ranking=&utm_source=&utm_campaign=funny-christmas-gifts-that-you-never-thought-about)
 
@@ -485,9 +485,9 @@ Take those for your beloved one, he/she will be thrilled.
 
 [Buy from Loveable](https://loveable.ai/products/wooden-puzzle-birthday-gift-wedding-gift-anniversary-gift-wedding-gift-custom-puzzle-jigsaw-puzzle-picture-puzzle-photo-puzzle-best-gift-for-familly-couple-parents-kids-212ihpvspz589?variant=44143222522088?utm_source=avada&ranking=&utm_source=&utm_campaign=funny-christmas-gifts-that-you-never-thought-about)
 
-### [27\. Drunk Christmas Funny Wine Tumbler Set](https://www.amazon.com/Christmas-Tumbler-Stainless-Friends-Wedding/dp/B07XDJCCG4/?ie=UTF8&tag=avadalove-20)
+### [27\. Drunk Christmas Funny Wine Tumbler Set](https://www.amazon.com/Christmas-Tumbler-Stainless-Friends-Wedding/dp/B07XDJCCG4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Christmas-Tumbler-Stainless-Friends-Wedding/dp/B07XDJCCG4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Christmas-Tumbler-Stainless-Friends-Wedding/dp/B07XDJCCG4/?ie=UTF8&tag=giftable02-20)
 
 Enjoy a festive glass of wine with friends and family this holiday season with our humorous three-piece tumbler set. This humorous holiday package has a joke and four stainless steel tumblers. Ideal for hosting parties!
 
@@ -501,11 +501,11 @@ For the person who can never seem to get the lid off their wine glass, the Drunk
 
 ✔️ Four tumblers included for entertaining
 
-[Buy from Amazon](https://www.amazon.com/Christmas-Tumbler-Stainless-Friends-Wedding/dp/B07XDJCCG4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Christmas-Tumbler-Stainless-Friends-Wedding/dp/B07XDJCCG4/?ie=UTF8&tag=giftable02-20)
 
-### [28\. LEVLO Shitter’s Full Socks](https://www.amazon.com/LEVLO-Shitters-Christmas-Vacation-Inspired/dp/B089CQBD2L/?ie=UTF8&tag=avadalove-20)
+### [28\. LEVLO Shitter’s Full Socks](https://www.amazon.com/LEVLO-Shitters-Christmas-Vacation-Inspired/dp/B089CQBD2L/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEVLO-Shitters-Christmas-Vacation-Inspired/dp/B089CQBD2L/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEVLO-Shitters-Christmas-Vacation-Inspired/dp/B089CQBD2L/?ie=UTF8&tag=giftable02-20)
 
 The complete socks from the LEVLO shitter have a smart design that will keep you feeling clean and cosy even on the road.
 
@@ -519,11 +519,11 @@ They are constructed from a non-absorbent, ultra-soft material that dries rapidl
 
 ✔️ Super soft and comfortable for all-day wear
 
-[Buy from Amazon](https://www.amazon.com/LEVLO-Shitters-Christmas-Vacation-Inspired/dp/B089CQBD2L/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEVLO-Shitters-Christmas-Vacation-Inspired/dp/B089CQBD2L/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Funny Men Cooking Grilling Apron](https://www.amazon.com/AIFAMY-Grilling-Christmas-Elephant-Exchange/dp/B081JMSBPF/?ie=UTF8&tag=avadalove-20)
+### [29\. Funny Men Cooking Grilling Apron](https://www.amazon.com/AIFAMY-Grilling-Christmas-Elephant-Exchange/dp/B081JMSBPF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AIFAMY-Grilling-Christmas-Elephant-Exchange/dp/B081JMSBPF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AIFAMY-Grilling-Christmas-Elephant-Exchange/dp/B081JMSBPF/?ie=UTF8&tag=giftable02-20)
 
 You know who to contact when you're starting to feel hungry. Who else would be up for a meaty barbecue? This humorous apron comes in a plethora of designs.
 
@@ -537,11 +537,11 @@ Among the many amusing jokes we have, there are some that centre around guys wea
 
 ✔️ Hilarious jokes and witty phrases
 
-[Buy from Amazon](https://www.amazon.com/AIFAMY-Grilling-Christmas-Elephant-Exchange/dp/B081JMSBPF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AIFAMY-Grilling-Christmas-Elephant-Exchange/dp/B081JMSBPF/?ie=UTF8&tag=giftable02-20)
 
-### [30\. DomeStar Christmas Hat](https://www.amazon.com/DomeStar-Christmas-Funny-Novelty-Santa/dp/B01N524FEO?ie=UTF8&tag=avadalove-20)
+### [30\. DomeStar Christmas Hat](https://www.amazon.com/DomeStar-Christmas-Funny-Novelty-Santa/dp/B01N524FEO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DomeStar-Christmas-Funny-Novelty-Santa/dp/B01N524FEO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DomeStar-Christmas-Funny-Novelty-Santa/dp/B01N524FEO?ie=UTF8&tag=giftable02-20)
 
 Wearing a Funny Hat throughout the holidays is a great way to lighten the mood and get everyone in the spirit. This would be a great gift for the person in your life who is always looking for a good time. This funny hat will make them smile and giggle right up until Christmas.
 
@@ -555,11 +555,11 @@ This year, upgrade your holiday attire with this humorous Christmas hat.
 
 ✔️ Adds a touch of humor to holiday gatherings
 
-[Buy from Amazon](https://www.amazon.com/DomeStar-Christmas-Funny-Novelty-Santa/dp/B01N524FEO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DomeStar-Christmas-Funny-Novelty-Santa/dp/B01N524FEO?ie=UTF8&tag=giftable02-20)
 
-### [31\. Scented Candles](https://www.amazon.com/Friendship-Scented-Christmas-Birthday-Valentines/dp/B09G355XKX?ie=UTF8&tag=avadalove-20)
+### [31\. Scented Candles](https://www.amazon.com/Friendship-Scented-Christmas-Birthday-Valentines/dp/B09G355XKX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Friendship-Scented-Christmas-Birthday-Valentines/dp/B09G355XKX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Friendship-Scented-Christmas-Birthday-Valentines/dp/B09G355XKX?ie=UTF8&tag=giftable02-20)
 
 Your wealthy pals will think the fragrant candle is the funniest present ever. The candles, each with its own unique fragrance, may be turned on at the press of a button, casting light over the table as though via an open window.
 
@@ -573,11 +573,11 @@ The candles may be stored without losing their form by folding into their metal 
 
 ✔️ Folding design for convenient storage
 
-[Buy from Amazon](https://www.amazon.com/Friendship-Scented-Christmas-Birthday-Valentines/dp/B09G355XKX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Friendship-Scented-Christmas-Birthday-Valentines/dp/B09G355XKX?ie=UTF8&tag=giftable02-20)
 
-### [32\. Silicone Tea Infusers](https://www.amazon.com/Elephant-Infuser-Silicone-Infusers-Christmas/dp/B09K4FWRXS/?ie=UTF8&tag=avadalove-20)
+### [32\. Silicone Tea Infusers](https://www.amazon.com/Elephant-Infuser-Silicone-Infusers-Christmas/dp/B09K4FWRXS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Elephant-Infuser-Silicone-Infusers-Christmas/dp/B09K4FWRXS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Elephant-Infuser-Silicone-Infusers-Christmas/dp/B09K4FWRXS/?ie=UTF8&tag=giftable02-20)
 
 A humorous joke gift like this would be perfect for the holiday season. This fake faeces tea infuser is sure to be a conversation starter at your next get-together without sacrificing the aroma or taste of the highest quality tea leaves.
 
@@ -591,11 +591,11 @@ Everyone who sees this will have a good chuckle.
 
 ✔️ Made from high-quality silicone
 
-[Buy from Amazon](https://www.amazon.com/Elephant-Infuser-Silicone-Infusers-Christmas/dp/B09K4FWRXS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Elephant-Infuser-Silicone-Infusers-Christmas/dp/B09K4FWRXS/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Santa’s Stocking Flask](https://www.amazon.com/Santas-Stocking-Flask-Party-Accessories/dp/B013HR7L3Q?ie=UTF8&tag=avadalove-20)
+### [33\. Santa’s Stocking Flask](https://www.amazon.com/Santas-Stocking-Flask-Party-Accessories/dp/B013HR7L3Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Santas-Stocking-Flask-Party-Accessories/dp/B013HR7L3Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Santas-Stocking-Flask-Party-Accessories/dp/B013HR7L3Q?ie=UTF8&tag=giftable02-20)
 
 A stocking flask from Santa is a wonderful holiday present for everyone on your list. Santa's Stocking Party Flask is a festive way to celebrate the holiday season this year. This year, you absolutely must put one in your Christmas stocking.
 
@@ -609,11 +609,11 @@ Just add alcohol and you're set for a night of revelry and celebration! This sta
 
 ✔️ Great gift for friends and family members
 
-[Buy from Amazon](https://www.amazon.com/Santas-Stocking-Flask-Party-Accessories/dp/B013HR7L3Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Santas-Stocking-Flask-Party-Accessories/dp/B013HR7L3Q?ie=UTF8&tag=giftable02-20)
 
-### [34\. Christmas Yeti with Sabta’s Hat Ornament](https://www.amazon.com/Design-Toscano-Christmas-Ornament-Polyresin/dp/B004AB53PW?ie=UTF8&tag=avadalove-20)
+### [34\. Christmas Yeti with Sabta’s Hat Ornament](https://www.amazon.com/Design-Toscano-Christmas-Ornament-Polyresin/dp/B004AB53PW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Design-Toscano-Christmas-Ornament-Polyresin/dp/B004AB53PW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Design-Toscano-Christmas-Ornament-Polyresin/dp/B004AB53PW?ie=UTF8&tag=giftable02-20)
 
 We're quite confident that Santa would find this yeti decked up in a Santa hat and beard hanging from a Christmas tree to be really amusing.
 
@@ -629,11 +629,11 @@ It even has a Santa figurine. Handmade from a combination of plastic and metal, 
 
 ✔️ Can stand on its own or hang on a wall
 
-[Buy from Amazon](https://www.amazon.com/Design-Toscano-Christmas-Ornament-Polyresin/dp/B004AB53PW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Design-Toscano-Christmas-Ornament-Polyresin/dp/B004AB53PW?ie=UTF8&tag=giftable02-20)
 
-### [35\. Hodge Mill Fuck Flake](https://www.amazon.com/Hodge-Mill-Christmas-Ornament-Quarantine/dp/B09DDK92XH?ie=UTF8&tag=avadalove-20)
+### [35\. Hodge Mill Fuck Flake](https://www.amazon.com/Hodge-Mill-Christmas-Ornament-Quarantine/dp/B09DDK92XH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hodge-Mill-Christmas-Ornament-Quarantine/dp/B09DDK92XH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hodge-Mill-Christmas-Ornament-Quarantine/dp/B09DDK92XH?ie=UTF8&tag=giftable02-20)
 
 The Fuck Flake Ornament is an option if you're looking for a unique Christmas or Hanukkah ornament that stands out from the crowd but also complements your classic tree ornaments.
 
@@ -647,11 +647,11 @@ With this ornament, you can brag to your buddies about the finest part of the ho
 
 ✔️ Sparks conversations
 
-[Buy from Amazon](https://www.amazon.com/Hodge-Mill-Christmas-Ornament-Quarantine/dp/B09DDK92XH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hodge-Mill-Christmas-Ornament-Quarantine/dp/B09DDK92XH?ie=UTF8&tag=giftable02-20)
 
-### [36\. Bravo Sport Merry Christmas Toilet Paper](https://www.amazon.com/Bravo-Sport-Christmas-Collectible-Stocking/dp/B07SNSCBF6?ie=UTF8&tag=avadalove-20)
+### [36\. Bravo Sport Merry Christmas Toilet Paper](https://www.amazon.com/Bravo-Sport-Christmas-Collectible-Stocking/dp/B07SNSCBF6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bravo-Sport-Christmas-Collectible-Stocking/dp/B07SNSCBF6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bravo-Sport-Christmas-Collectible-Stocking/dp/B07SNSCBF6?ie=UTF8&tag=giftable02-20)
 
 When everyone in the family opens the Christmas Toilet Paper on Christmas morning, they are sure to have a good laugh.
 
@@ -665,11 +665,11 @@ Brilliant toilet paper, not only because it reads "Merry Christmas," but also be
 
 ✔️ Designed to bring smiles and laughter
 
-[Buy from Amazon](https://www.amazon.com/Bravo-Sport-Christmas-Collectible-Stocking/dp/B07SNSCBF6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bravo-Sport-Christmas-Collectible-Stocking/dp/B07SNSCBF6?ie=UTF8&tag=giftable02-20)
 
-### [37\. Food Throw Blanket](https://www.amazon.com/mermaker-Burritos-Tortilla-Realistic-Blanket-4/dp/B07QX3YJLH/?ie=UTF8&tag=avadalove-20)
+### [37\. Food Throw Blanket](https://www.amazon.com/mermaker-Burritos-Tortilla-Realistic-Blanket-4/dp/B07QX3YJLH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/mermaker-Burritos-Tortilla-Realistic-Blanket-4/dp/B07QX3YJLH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/mermaker-Burritos-Tortilla-Realistic-Blanket-4/dp/B07QX3YJLH/?ie=UTF8&tag=giftable02-20)
 
 Get ready to wrap yourself up in some delicious humor with these Food Throw Blankets.
 
@@ -683,11 +683,11 @@ The Food Throw Blankets are designed to look like mouthwatering dishes, making t
 
 ✔️ Soft and cozy material for maximum comfort
 
-[Buy from Amazon](https://www.amazon.com/mermaker-Burritos-Tortilla-Realistic-Blanket-4/dp/B07QX3YJLH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/mermaker-Burritos-Tortilla-Realistic-Blanket-4/dp/B07QX3YJLH/?ie=UTF8&tag=giftable02-20)
 
-### [38\. Encased Bearded Holiday Santa Costume](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=avadalove-20)
+### [38\. Encased Bearded Holiday Santa Costume](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=giftable02-20)
 
 This funny beard prop is perfect for adults and is sure to get a few laughs. This humorous disguise of facial hair is well constructed. Naughty adults will get a thrill out of this hilarious beard mask, which is perfect for their adult beard costumes.
 
@@ -701,7 +701,7 @@ Includes a beard and hat; suitable for any event. This content is intended for m
 
 ✔️ Made with quality materials for durability
 
-[Buy from Amazon](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

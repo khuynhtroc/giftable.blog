@@ -71,9 +71,9 @@ This Tarot Card Stainless Keychain has you covered. Don't hesitate to buy one!
 
 [Buy from Loveable](https://loveable.ai/products/the-hooker-crocheting-yarns-tarot-card-stainless-keychain-birthday-gift-for-crocheter-for-crocheting-lover-for-bestie-301icnvskc0037?variant=44219535687912?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-sewers-thatll-make-their-heart-happy)
 
-### [4\. Sewing and Crafts Scissors](https://www.amazon.com/Bits-Pieces-Household-Scissors-Quality/dp/B01CUSTB2M?ie=UTF8&tag=avadalove-20)
+### [4\. Sewing and Crafts Scissors](https://www.amazon.com/Bits-Pieces-Household-Scissors-Quality/dp/B01CUSTB2M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bits-Pieces-Household-Scissors-Quality/dp/B01CUSTB2M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bits-Pieces-Household-Scissors-Quality/dp/B01CUSTB2M?ie=UTF8&tag=giftable02-20)
 
 If you're tired of never being able to cut a straight line, then these laser-guided scissors are the perfect solution. With two adjustment screws, you can perfectly align the laser light to where you want it.
 
@@ -87,7 +87,7 @@ Whether you're sewing, wrapping gifts, or working on a craft project, these scis
 
 ✔️ Comfortable grip for extended use
 
-[Buy from Amazon](https://www.amazon.com/Bits-Pieces-Household-Scissors-Quality/dp/B01CUSTB2M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bits-Pieces-Household-Scissors-Quality/dp/B01CUSTB2M?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Charm Baker Jewelry Bracelet Bangle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/544375500/baker-gift-kitchen-mixer-bake-pan)
 
@@ -449,9 +449,9 @@ The set of four Pencils includes the following sewing quotes: SEWING IS MY THERA
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/767381508/sewing-quote-pencils-sewing-lover-gift)
 
-### [25\. Sewing Accessories and Supplies](https://www.amazon.com/Thread-for-sewing-kit-for-adults-sewing-supplies-sewing-accessories/dp/B073YKW2ZZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Sewing Accessories and Supplies](https://www.amazon.com/Thread-for-sewing-kit-for-adults-sewing-supplies-sewing-accessories/dp/B073YKW2ZZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thread-for-sewing-kit-for-adults-sewing-supplies-sewing-accessories/dp/B073YKW2ZZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thread-for-sewing-kit-for-adults-sewing-supplies-sewing-accessories/dp/B073YKW2ZZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 A sewing kit is a small collection of hand-sewing supplies that can be used for mending, repairs, and other sewing projects. Portable sewing kits are great for taking with you on the go, and they typically include a carrying case to keep all of your supplies in one place.
 
@@ -465,11 +465,11 @@ A full set of sewing supplies might include thread in several different colors, 
 
 ✔️ Offers a wide variety of options for different projects
 
-[Buy from Amazon](https://www.amazon.com/Thread-for-sewing-kit-for-adults-sewing-supplies-sewing-accessories/dp/B073YKW2ZZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thread-for-sewing-kit-for-adults-sewing-supplies-sewing-accessories/dp/B073YKW2ZZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Pin Needle Cushion](https://www.amazon.com/CUSHYSTORE-Pincushion-Cushion-Handmade-Quilting/dp/B082HT5LPK?ie=UTF8&tag=avadalove-20)
+### [26\. Pin Needle Cushion](https://www.amazon.com/CUSHYSTORE-Pincushion-Cushion-Handmade-Quilting/dp/B082HT5LPK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CUSHYSTORE-Pincushion-Cushion-Handmade-Quilting/dp/B082HT5LPK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CUSHYSTORE-Pincushion-Cushion-Handmade-Quilting/dp/B082HT5LPK?ie=UTF8&tag=giftable02-20)
 
 This pumpkin shaped pin cushion is the perfect gift for the girl or woman who loves to sew and craft. The cotton fabric is filled with synthetic polyester fiber, making it durable and long lasting. The pin cushion is 3.5" wide and 3.5" tall, with a 1 1/2" deep well that is perfect for holding pins.
 
@@ -483,7 +483,7 @@ The pumpkin shape is unique and will make your sewing and crafting projects more
 
 ✔️ Compact and portable, making it convenient for sewing on the go
 
-[Buy from Amazon](https://www.amazon.com/CUSHYSTORE-Pincushion-Cushion-Handmade-Quilting/dp/B082HT5LPK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CUSHYSTORE-Pincushion-Cushion-Handmade-Quilting/dp/B082HT5LPK?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Personalized Quilting Room Metal Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/987501532/tin-personalized-quilting-room-metal)
 
@@ -503,9 +503,9 @@ The sign is printed with epoxy ink so it will last for years to come. Order toda
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/987501532/tin-personalized-quilting-room-metal)
 
-### [28\. Stainless Steel Wine Glass For Travel](https://www.amazon.com/64HYDRO-Passion-pattern-Insulated-Tumbler/dp/B0992FR1LD/?ie=UTF8&tag=avadalove-20)
+### [28\. Stainless Steel Wine Glass For Travel](https://www.amazon.com/64HYDRO-Passion-pattern-Insulated-Tumbler/dp/B0992FR1LD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/64HYDRO-Passion-pattern-Insulated-Tumbler/dp/B0992FR1LD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/64HYDRO-Passion-pattern-Insulated-Tumbler/dp/B0992FR1LD/?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a travel mug that will keep your drinks hot or cold and is shatterproof, then this is the tumbler for you. The double-wall insulation will eliminate cup sweat and keep your beverages at the perfect temperature.
 
@@ -519,11 +519,11 @@ The secure lid will prevent any spills, making it ideal for taking on the go. Wh
 
 ✔️ Keeps beverages at the desired temperature for longer periods
 
-[Buy from Amazon](https://www.amazon.com/64HYDRO-Passion-pattern-Insulated-Tumbler/dp/B0992FR1LD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/64HYDRO-Passion-pattern-Insulated-Tumbler/dp/B0992FR1LD/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Sewing Bracelet Sewing Quilting](https://www.amazon.com/AKTAP-Bracelet-Quilting-Happiness-Quilters/dp/B089SQHYWQ?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Sewing Bracelet Sewing Quilting](https://www.amazon.com/AKTAP-Bracelet-Quilting-Happiness-Quilters/dp/B089SQHYWQ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AKTAP-Bracelet-Quilting-Happiness-Quilters/dp/B089SQHYWQ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AKTAP-Bracelet-Quilting-Happiness-Quilters/dp/B089SQHYWQ?th=1?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a unique and thoughtful gift for a sewer or quilter in your life, look no further than this hand stamp. With the message "You can't buy happiness but you can buy fabric and that's pretty close", it's sure to bring a smile to your loved one's face.
 
@@ -537,7 +537,7 @@ And because it's adjustable, it's one gift that can be enjoyed for years to come
 
 ✔️ Can be a great conversation starter among fellow crafters
 
-[Buy from Amazon](https://www.amazon.com/AKTAP-Bracelet-Quilting-Happiness-Quilters/dp/B089SQHYWQ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AKTAP-Bracelet-Quilting-Happiness-Quilters/dp/B089SQHYWQ?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Custom Laser Engrave Sewing Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/738851563/custom-engraved-sewing-room-quilting)
 
@@ -557,9 +557,9 @@ Each sign is 9.25 x 7.5", with engraving that is sure to make your sewing room s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/738851563/custom-engraved-sewing-room-quilting)
 
-### [31\. Sewing Maching Earrings](https://www.amazon.com/FUSTMW-Seamstress-Keychain-Believed-Inspirational/dp/B07SGBQS26/?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Sewing Maching Earrings](https://www.amazon.com/FUSTMW-Seamstress-Keychain-Believed-Inspirational/dp/B07SGBQS26/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FUSTMW-Seamstress-Keychain-Believed-Inspirational/dp/B07SGBQS26/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FUSTMW-Seamstress-Keychain-Believed-Inspirational/dp/B07SGBQS26/?th=1?ie=UTF8&tag=giftable02-20)
 
 Finding the right gift for a sewer or quilter can be difficult, but our sewing machine earrings are the perfect solution. Made from high quality zinc alloy, they are both eco-friendly and safe to wear. The pendants measure 0.8 inches and come in a high quality velvet jewelry pouch, ready for gift giving.
 
@@ -573,11 +573,11 @@ Whether you are looking for a birthday present, Christmas gift, or simply a way 
 
 ✔️ Makes a thoughtful gift for those who love sewing
 
-[Buy from Amazon](https://www.amazon.com/FUSTMW-Seamstress-Keychain-Believed-Inspirational/dp/B07SGBQS26/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FUSTMW-Seamstress-Keychain-Believed-Inspirational/dp/B07SGBQS26/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Funny Metal Tin Sign](https://www.amazon.com/Licpact-Funny-Sewing-Lovers-12x8inch/dp/B09XDYKBMQ?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Funny Metal Tin Sign](https://www.amazon.com/Licpact-Funny-Sewing-Lovers-12x8inch/dp/B09XDYKBMQ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Licpact-Funny-Sewing-Lovers-12x8inch/dp/B09XDYKBMQ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Licpact-Funny-Sewing-Lovers-12x8inch/dp/B09XDYKBMQ?th=1?ie=UTF8&tag=giftable02-20)
 
 This Wall Decorative Sewing Sign is a great gift for any sewer in your life. The tin sign is made of aluminum, making it durable and resistant to water damage and fading. The sign comes with four pre-drilled holes in the corners, making it easy to hang on the wall with nails or double-sided tape.
 
@@ -591,11 +591,11 @@ The sleek, minimalist design is perfect for any sewing room, and the bold letter
 
 ✔️ Makes a great gift for friends with a sense of humor
 
-[Buy from Amazon](https://www.amazon.com/Licpact-Funny-Sewing-Lovers-12x8inch/dp/B09XDYKBMQ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Licpact-Funny-Sewing-Lovers-12x8inch/dp/B09XDYKBMQ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Madam Sew Presser Foot Set](https://www.amazon.com/Madam-Sew-Presser-Foot-Set/dp/B075WZ2KQ3/?ie=UTF8&tag=avadalove-20)
+### [33\. Madam Sew Presser Foot Set](https://www.amazon.com/Madam-Sew-Presser-Foot-Set/dp/B075WZ2KQ3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Madam-Sew-Presser-Foot-Set/dp/B075WZ2KQ3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Madam-Sew-Presser-Foot-Set/dp/B075WZ2KQ3/?ie=UTF8&tag=giftable02-20)
 
 If you're looking for gifts for sewers, look no further than the presser foot kit. This 32-piece set includes all the most popular presser feet, making it a must-have for anyone who loves to sew. Compatible with Singer, Brother, Janome, Husqvarna, Viking, and Kenmore sewing machines, the superior design and top-quality construction ensure long-lasting durability.
 
@@ -609,11 +609,11 @@ Bonus low shank adapter included. Whether you're looking for a gift for a beginn
 
 ✔️ Improves sewing efficiency and versatility
 
-[Buy from Amazon](https://www.amazon.com/Madam-Sew-Presser-Foot-Set/dp/B075WZ2KQ3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Madam-Sew-Presser-Foot-Set/dp/B075WZ2KQ3/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Magnet Needle Holder](https://www.amazon.com/dp/B07M6YG5QW?ie=UTF8&tag=avadalove-20)
+### [34\. Magnet Needle Holder](https://www.amazon.com/dp/B07M6YG5QW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07M6YG5QW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07M6YG5QW?ie=UTF8&tag=giftable02-20)
 
 The Magnetic Pin is a versatile gift for sewers, hairstylists, DIY experts, and quilters. The black band is sleek and stylish, and the chrome magnetic face is modern and practical. The wristband is perfect for small to medium sized wrists and snaps into place for easy fitting. The Magnet Pin can also be hooked onto a lipped shelf for storage.
 
@@ -627,7 +627,7 @@ This unique gift is not only for sewers, but also for hairstylists who use hair 
 
 ✔️ Convenient and portable for sewing on the go
 
-[Buy from Amazon](https://www.amazon.com/dp/B07M6YG5QW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07M6YG5QW?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Button Coaster](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/598351487/button-coaster-sewing-room-decor-sewing)
 
@@ -665,9 +665,9 @@ The colorful design is permanently printed on the mug and will not wash off or p
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/890856872/blessed-are-the-quilters-for-they-shall)
 
-### [37\. Sewing Machine Necklace](https://www.amazon.com/BEKECH-Infinity-Necklace-Quilting-Designers/dp/B07PTRLNKZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [37\. Sewing Machine Necklace](https://www.amazon.com/BEKECH-Infinity-Necklace-Quilting-Designers/dp/B07PTRLNKZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BEKECH-Infinity-Necklace-Quilting-Designers/dp/B07PTRLNKZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BEKECH-Infinity-Necklace-Quilting-Designers/dp/B07PTRLNKZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Sewing Machine necklace is a thoughtful and unique gift for any sewer or quilter in your life. The necklace features a delicate sewing machine charm that is sure to be cherished.
 
@@ -681,11 +681,11 @@ Whether you are looking for a special birthday present, a Mother's Day gift, or 
 
 ✔️ Showcases passion for sewing and crafting
 
-[Buy from Amazon](https://www.amazon.com/BEKECH-Infinity-Necklace-Quilting-Designers/dp/B07PTRLNKZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BEKECH-Infinity-Necklace-Quilting-Designers/dp/B07PTRLNKZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [38\. Sewing Keychain](https://www.amazon.com/Sewing-Keychain-Bobbin-Jewelry-Quilters/dp/B08J2PCB5Y?ie=UTF8&tag=avadalove-20)
+### [38\. Sewing Keychain](https://www.amazon.com/Sewing-Keychain-Bobbin-Jewelry-Quilters/dp/B08J2PCB5Y?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sewing-Keychain-Bobbin-Jewelry-Quilters/dp/B08J2PCB5Y?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sewing-Keychain-Bobbin-Jewelry-Quilters/dp/B08J2PCB5Y?ie=UTF8&tag=giftable02-20)
 
 Whether you're looking for a gift for a sewer in your life or you're a sewer yourself, this sewing keychain is a beautiful and meaningful option. The keychain reads "May Your Bobbin Always Be Full" and is made of silver-plated metal.
 
@@ -699,7 +699,7 @@ It's both stylish and practical, and it's sure to be cherished by whoever receiv
 
 ✔️ Represents the recipient's love for sewing
 
-[Buy from Amazon](https://www.amazon.com/Sewing-Keychain-Bobbin-Jewelry-Quilters/dp/B08J2PCB5Y?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sewing-Keychain-Bobbin-Jewelry-Quilters/dp/B08J2PCB5Y?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

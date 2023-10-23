@@ -377,9 +377,9 @@ Your donation will serve as a memento or a reminder that a deceased person or pe
 
 [Buy from Loveable](https://loveable.ai/products/a-piece-of-my-heart-left-personalized-custom-shaped-wooden-ornament-memorial-gift-for-family-dad-mom-grandpa-grandma-remembrance-gift-211ihpnpor554?variant=44133297389800?utm_source=avada&ranking=&utm_source=&utm_campaign=best-in-memory-of-gifts-to-show-your-sympathy)
 
-### [21\. Glass Memorial Candle Holder](https://www.amazon.com/Memorial-Sympathy-Hurricane-Bereavement-Grieving/dp/B08B5173N5?ie=UTF8&tag=avadalove-20)
+### [21\. Glass Memorial Candle Holder](https://www.amazon.com/Memorial-Sympathy-Hurricane-Bereavement-Grieving/dp/B08B5173N5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Memorial-Sympathy-Hurricane-Bereavement-Grieving/dp/B08B5173N5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Memorial-Sympathy-Hurricane-Bereavement-Grieving/dp/B08B5173N5?ie=UTF8&tag=giftable02-20)
 
 This memorial candle holder provides a special way to remember those who are no longer with you but are forever alive in your hearts.
 
@@ -393,11 +393,11 @@ Lighting a candle and the memory of a loved one lives on and burns bright. This 
 
 ✔️ Creates a serene and comforting atmosphere.
 
-[Buy from Amazon](https://www.amazon.com/Memorial-Sympathy-Hurricane-Bereavement-Grieving/dp/B08B5173N5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Memorial-Sympathy-Hurricane-Bereavement-Grieving/dp/B08B5173N5?ie=UTF8&tag=giftable02-20)
 
-### [22\. Memorial Picture Hanging Board](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T721KSB/r?ie=UTF8&tag=avadalove-20)
+### [22\. Memorial Picture Hanging Board](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T721KSB/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T721KSB/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T721KSB/r?ie=UTF8&tag=giftable02-20)
 
 Keep the photos of the loved one who passed away within reach, as if they were accompanied by this gift of a photo hanging board. It is precious and timeless for sure.
 
@@ -411,11 +411,11 @@ The handmade string hearts picture hanging board helps to organize and display p
 
 ✔️ Customizable and unique tribute.
 
-[Buy from Amazon](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T721KSB/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tuobsm-Memorial-Sympathy-Remembrance-Bereavement/dp/B08T721KSB/r?ie=UTF8&tag=giftable02-20)
 
-### [23\. Memory Ceramic Soy Candle](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+### [23\. Memory Ceramic Soy Candle](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
 Smelling a comfortable ador from this scented candle to calm your beloved one’s mind after a long day going through a hard time of the loss.
 
@@ -429,11 +429,11 @@ This 8oz candle holder is packaged securely in a printed box, is made from ceram
 
 ✔️ Creates a soothing ambiance in remembrance.
 
-[Buy from Amazon](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
-### [24\. Fluffy Sympathy Blanket](https://www.amazon.com/Sympathy-Blanket-Funeral-Memorial-Embroidered/dp/B00OKY9P9O/?ie=UTF8&tag=avadalove-20)
+### [24\. Fluffy Sympathy Blanket](https://www.amazon.com/Sympathy-Blanket-Funeral-Memorial-Embroidered/dp/B00OKY9P9O/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sympathy-Blanket-Funeral-Memorial-Embroidered/dp/B00OKY9P9O/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sympathy-Blanket-Funeral-Memorial-Embroidered/dp/B00OKY9P9O/?ie=UTF8&tag=giftable02-20)
 
 Warm your beloved one’s heart with this fluffy blanket, comforting and soothing their pain of missing someone who just passed away.
 
@@ -447,11 +447,11 @@ Along with showing your support and sympathy, this high-quality velvet plush thr
 
 ✔️ Provides a sense of emotional warmth.
 
-[Buy from Amazon](https://www.amazon.com/Sympathy-Blanket-Funeral-Memorial-Embroidered/dp/B00OKY9P9O/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sympathy-Blanket-Funeral-Memorial-Embroidered/dp/B00OKY9P9O/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Memorial Picture Frame](https://www.amazon.com/Memorial-Gifts-Picture-Frame-Grandma/dp/B09DGH88KX/?ie=UTF8&tag=avadalove-20)
+### [25\. Memorial Picture Frame](https://www.amazon.com/Memorial-Gifts-Picture-Frame-Grandma/dp/B09DGH88KX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Memorial-Gifts-Picture-Frame-Grandma/dp/B09DGH88KX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Memorial-Gifts-Picture-Frame-Grandma/dp/B09DGH88KX/?ie=UTF8&tag=giftable02-20)
 
 This memorial picture frame for **[the loss of a mother](/memorial-gift-loss-mother/)** is the perfect way to pay your respects to her.
 
@@ -465,11 +465,11 @@ Keep the photos of the loved one who passed away within reach, as if they were a
 
 ✔️ Adds a personal touch to any space.
 
-[Buy from Amazon](https://www.amazon.com/Memorial-Gifts-Picture-Frame-Grandma/dp/B09DGH88KX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Memorial-Gifts-Picture-Frame-Grandma/dp/B09DGH88KX/?ie=UTF8&tag=giftable02-20)
 
-### [26\. OAKMYARA Memorial Lantern](https://www.amazon.com/OAKMYARA-Memorial-Bereavement-Remembrance-Sympathy/dp/B09MD396JY?ie=UTF8&tag=avadalove-20)
+### [26\. OAKMYARA Memorial Lantern](https://www.amazon.com/OAKMYARA-Memorial-Bereavement-Remembrance-Sympathy/dp/B09MD396JY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/OAKMYARA-Memorial-Bereavement-Remembrance-Sympathy/dp/B09MD396JY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/OAKMYARA-Memorial-Bereavement-Remembrance-Sympathy/dp/B09MD396JY?ie=UTF8&tag=giftable02-20)
 
 This adorable lantern is a perfect bereavement gift to bring light to the darkness of losing a loved one.
 
@@ -483,7 +483,7 @@ The memorial lantern comes in a sturdy and giftable box, inside which the memori
 
 ✔️ Honors and remembers loved ones gracefully.
 
-[Buy from Amazon](https://www.amazon.com/OAKMYARA-Memorial-Bereavement-Remembrance-Sympathy/dp/B09MD396JY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/OAKMYARA-Memorial-Bereavement-Remembrance-Sympathy/dp/B09MD396JY?ie=UTF8&tag=giftable02-20)
 
 ### [27\. My Soul Knows You Are At Peace Custom Heart Necklace](https://loveable.ai/products/my-soul-knows-you-are-at-peace-custom-photo-heart-silver-necklace-best-memorial-gifts-for-loss-of-familly-303ihphtje292?variant=44335087780072?utm_source=avada&ranking=&utm_source=&utm_campaign=best-in-memory-of-gifts-to-show-your-sympathy)
 
@@ -503,9 +503,9 @@ Crafted from stainless steel, this beautiful necklace holds a 1.1” diameter ke
 
 [Buy from Loveable](https://loveable.ai/products/my-soul-knows-you-are-at-peace-custom-photo-heart-silver-necklace-best-memorial-gifts-for-loss-of-familly-303ihphtje292?variant=44335087780072?utm_source=avada&ranking=&utm_source=&utm_campaign=best-in-memory-of-gifts-to-show-your-sympathy)
 
-### [28\. Acrylic Heart Memorial Gift](https://www.amazon.com/Sympathy-Bereavement-Memorial-Decorations-Remembrance/dp/B09Q5K31XL?ie=UTF8&tag=avadalove-20)
+### [28\. Acrylic Heart Memorial Gift](https://www.amazon.com/Sympathy-Bereavement-Memorial-Decorations-Remembrance/dp/B09Q5K31XL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sympathy-Bereavement-Memorial-Decorations-Remembrance/dp/B09Q5K31XL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sympathy-Bereavement-Memorial-Decorations-Remembrance/dp/B09Q5K31XL?ie=UTF8&tag=giftable02-20)
 
 This heart glass plaque is a reminder that missing people are always in your thoughts, prayers and heart.
 
@@ -519,11 +519,11 @@ The package you will receive comes with 1 piece of acrylic heart sign memorial o
 
 ✔️ Beautiful tribute to a loved one.
 
-[Buy from Amazon](https://www.amazon.com/Sympathy-Bereavement-Memorial-Decorations-Remembrance/dp/B09Q5K31XL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sympathy-Bereavement-Memorial-Decorations-Remembrance/dp/B09Q5K31XL?ie=UTF8&tag=giftable02-20)
 
-### [29\. WUSUANED Memorial Bangle](https://www.amazon.com/Memorial-Bracelet-Always-Sympathy-bracelet/dp/B077417T9B?ie=UTF8&tag=avadalove-20)
+### [29\. WUSUANED Memorial Bangle](https://www.amazon.com/Memorial-Bracelet-Always-Sympathy-bracelet/dp/B077417T9B?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Memorial-Bracelet-Always-Sympathy-bracelet/dp/B077417T9B?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Memorial-Bracelet-Always-Sympathy-bracelet/dp/B077417T9B?ie=UTF8&tag=giftable02-20)
 
 A memorial bracelet would make a thoughtful memorial gift, bereavement gift or sympathy gift. Something to carry or wear in memory of a special mother/father.
 
@@ -537,11 +537,11 @@ Each In memory of mom/dad bracelet individually packaged in a velvet bag, ready 
 
 ✔️ Adds a personal touch to outfits.
 
-[Buy from Amazon](https://www.amazon.com/Memorial-Bracelet-Always-Sympathy-bracelet/dp/B077417T9B?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Memorial-Bracelet-Always-Sympathy-bracelet/dp/B077417T9B?ie=UTF8&tag=giftable02-20)
 
-### [30\. LukieJac Sympathy Plaque](https://www.amazon.com/LukieJac-Sympathy-Bereavement-Memorial-Condolences/dp/B09783RKBP?ie=UTF8&tag=avadalove-20)
+### [30\. LukieJac Sympathy Plaque](https://www.amazon.com/LukieJac-Sympathy-Bereavement-Memorial-Condolences/dp/B09783RKBP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LukieJac-Sympathy-Bereavement-Memorial-Condolences/dp/B09783RKBP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LukieJac-Sympathy-Bereavement-Memorial-Condolences/dp/B09783RKBP?ie=UTF8&tag=giftable02-20)
 
 Giving or sending this memorial plaque with a wooden stand to relatives or friends, easily displayed on the fireplace mantel or nightstand along with a memorial picture frame of a passed loved one.
 
@@ -555,11 +555,11 @@ The memorial sign is printed on a marble background. You can also choose the sam
 
 ✔️ Expresses condolences with grace.
 
-[Buy from Amazon](https://www.amazon.com/LukieJac-Sympathy-Bereavement-Memorial-Condolences/dp/B09783RKBP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LukieJac-Sympathy-Bereavement-Memorial-Condolences/dp/B09783RKBP?ie=UTF8&tag=giftable02-20)
 
-### [31\. Glass Crystal Heart Plaque](https://www.amazon.com/Wishmead-Sympathy-Memorial-Gifts-Bereavement/dp/B08C267ZDL?ie=UTF8&tag=avadalove-20)
+### [31\. Glass Crystal Heart Plaque](https://www.amazon.com/Wishmead-Sympathy-Memorial-Gifts-Bereavement/dp/B08C267ZDL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wishmead-Sympathy-Memorial-Gifts-Bereavement/dp/B08C267ZDL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wishmead-Sympathy-Memorial-Gifts-Bereavement/dp/B08C267ZDL?ie=UTF8&tag=giftable02-20)
 
 Honor a loved one with this beautiful gift, crafted from crystal glass so each piece shines radiantly. It will bring a happy smile to your beloved one.
 
@@ -573,11 +573,11 @@ Bring comfort and support to those dear with this hand-cut crystal heart and las
 
 ✔️ Symbolizes love and cherished memories.
 
-[Buy from Amazon](https://www.amazon.com/Wishmead-Sympathy-Memorial-Gifts-Bereavement/dp/B08C267ZDL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wishmead-Sympathy-Memorial-Gifts-Bereavement/dp/B08C267ZDL?ie=UTF8&tag=giftable02-20)
 
-### [32\. Butterfly Tin Sign](https://www.amazon.com/Super-durable-Everyday-Butterfly-Vintage-Decoration/dp/B08PK7NKC1?ie=UTF8&tag=avadalove-20)
+### [32\. Butterfly Tin Sign](https://www.amazon.com/Super-durable-Everyday-Butterfly-Vintage-Decoration/dp/B08PK7NKC1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Super-durable-Everyday-Butterfly-Vintage-Decoration/dp/B08PK7NKC1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Super-durable-Everyday-Butterfly-Vintage-Decoration/dp/B08PK7NKC1?ie=UTF8&tag=giftable02-20)
 
 This old-fashioned metal tin sign is a pretty vintage decoration to hang on the wall, cherished as a keepsake to remember your beloved missing person!
 
@@ -591,7 +591,7 @@ This tin sign is made of tin/metal iron and that is brand new. Exquisite pattern
 
 ✔️ Ideal for creating a unique ambiance.
 
-[Buy from Amazon](https://www.amazon.com/Super-durable-Everyday-Butterfly-Vintage-Decoration/dp/B08PK7NKC1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Super-durable-Everyday-Butterfly-Vintage-Decoration/dp/B08PK7NKC1?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Send Star Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1150188899/memorial-gift-star-map-sympathy-gift)
 
@@ -647,9 +647,9 @@ You can replace the saying with a second photo or personal message. Please send 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/813564895/memorial-keychain-memorial-gift-photo)
 
-### [36\. Willow Tree Remembrance Angel](https://www.amazon.com/Willow-Tree-hand-painted-sculpted-Remembrance/dp/B003OSSKWK?ie=UTF8&tag=avadalove-20)
+### [36\. Willow Tree Remembrance Angel](https://www.amazon.com/Willow-Tree-hand-painted-sculpted-Remembrance/dp/B003OSSKWK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Willow-Tree-hand-painted-sculpted-Remembrance/dp/B003OSSKWK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Willow-Tree-hand-painted-sculpted-Remembrance/dp/B003OSSKWK?ie=UTF8&tag=giftable02-20)
 
 Calm your beloved one’s mind when lighting the candle on this pretty angel statue decor. It helps them find peace after the pain of losing someone.
 
@@ -663,11 +663,11 @@ This memorial hand-painted figure of a standing angel is engraved in cream dress
 
 ✔️ Thoughtful gift for healing and solace.
 
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-hand-painted-sculpted-Remembrance/dp/B003OSSKWK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Willow-Tree-hand-painted-sculpted-Remembrance/dp/B003OSSKWK?ie=UTF8&tag=giftable02-20)
 
-### [37\. Ganz Angel Pin](https://www.amazon.com/Ganz-Pin-Remembrance-Openings-Heaven/dp/B01JBLVRPK?ie=UTF8&tag=avadalove-20)
+### [37\. Ganz Angel Pin](https://www.amazon.com/Ganz-Pin-Remembrance-Openings-Heaven/dp/B01JBLVRPK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ganz-Pin-Remembrance-Openings-Heaven/dp/B01JBLVRPK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ganz-Pin-Remembrance-Openings-Heaven/dp/B01JBLVRPK?ie=UTF8&tag=giftable02-20)
 
 To remember the lost person that your beloved one has lost for a while, then this angel pin will be a precious and sympathy gift to be carried around.
 
@@ -681,11 +681,11 @@ Attaching it with any purse, bag, pouch, that is perfect. It will be a lovely re
 
 ✔️ Thoughtful gift for comfort and support.
 
-[Buy from Amazon](https://www.amazon.com/Ganz-Pin-Remembrance-Openings-Heaven/dp/B01JBLVRPK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ganz-Pin-Remembrance-Openings-Heaven/dp/B01JBLVRPK?ie=UTF8&tag=giftable02-20)
 
-### [38\. Diaynoce Sympathy Moon Lamp](https://www.amazon.com/Diaynoce-Sympathy-Bereavement-Remembrance-Condolence/dp/B09PL2N42Z?ie=UTF8&tag=avadalove-20)
+### [38\. Diaynoce Sympathy Moon Lamp](https://www.amazon.com/Diaynoce-Sympathy-Bereavement-Remembrance-Condolence/dp/B09PL2N42Z?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Diaynoce-Sympathy-Bereavement-Remembrance-Condolence/dp/B09PL2N42Z?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Diaynoce-Sympathy-Bereavement-Remembrance-Condolence/dp/B09PL2N42Z?ie=UTF8&tag=giftable02-20)
 
 The special quote makes the remembrance gifts even more meaningful and helpful. This is the perfect bereavement gift to bring light to the darkness of losing a loved one.
 
@@ -699,7 +699,7 @@ The simple and transparent shape that suits most all home decor styles and a fit
 
 ✔️ Honors and remembers with warmth.
 
-[Buy from Amazon](https://www.amazon.com/Diaynoce-Sympathy-Bereavement-Remembrance-Condolence/dp/B09PL2N42Z?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Diaynoce-Sympathy-Bereavement-Remembrance-Condolence/dp/B09PL2N42Z?ie=UTF8&tag=giftable02-20)
 
 ### [39\. Custom Pet Memorial Stone](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1114145687/custom-pet-memorial-stone-personalized)
 
@@ -755,9 +755,9 @@ The box itself is very sturdy and comes wrapped in jute and a charm (see photos 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1004505053/thinking-of-you-sorry-for-your-loss)
 
-### [42\. Angel Statue Tealight Holder](https://www.amazon.com/TIFICAACGI-Candleholder-Flickering-Remembrance-Bereavement/dp/B095CNR1YW/?ie=UTF8&tag=avadalove-20)
+### [42\. Angel Statue Tealight Holder](https://www.amazon.com/TIFICAACGI-Candleholder-Flickering-Remembrance-Bereavement/dp/B095CNR1YW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TIFICAACGI-Candleholder-Flickering-Remembrance-Bereavement/dp/B095CNR1YW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TIFICAACGI-Candleholder-Flickering-Remembrance-Bereavement/dp/B095CNR1YW/?ie=UTF8&tag=giftable02-20)
 
 Calm your beloved one’s mind when lighting the candle on this pretty angel holder. It helps your beloved one find peace after the pain of losing someone.
 
@@ -771,11 +771,11 @@ This memorial candle holder comes with a flameless tealight candle (battery incl
 
 ✔️ Represents protection and remembrance.
 
-[Buy from Amazon](https://www.amazon.com/TIFICAACGI-Candleholder-Flickering-Remembrance-Bereavement/dp/B095CNR1YW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TIFICAACGI-Candleholder-Flickering-Remembrance-Bereavement/dp/B095CNR1YW/?ie=UTF8&tag=giftable02-20)
 
-### [43\. Soopau Wind Chimes](https://www.amazon.com/Soopau-Outside-Sympathy-Memorial-Outdoor/dp/B09B2GRLN4/?ie=UTF8&tag=avadalove-20)
+### [43\. Soopau Wind Chimes](https://www.amazon.com/Soopau-Outside-Sympathy-Memorial-Outdoor/dp/B09B2GRLN4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Soopau-Outside-Sympathy-Memorial-Outdoor/dp/B09B2GRLN4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Soopau-Outside-Sympathy-Memorial-Outdoor/dp/B09B2GRLN4/?ie=UTF8&tag=giftable02-20)
 
 The deep tones are mind calming and spirit-uplifting. This wind chime will be a powerful comfort for those people in grief who have lost their loved one.
 
@@ -789,7 +789,7 @@ This medium wind chime is 30 inches long from the hook to the bottom of the wind
 
 ✔️ Thoughtful gift for relaxation and solace.
 
-[Buy from Amazon](https://www.amazon.com/Soopau-Outside-Sympathy-Memorial-Outdoor/dp/B09B2GRLN4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Soopau-Outside-Sympathy-Memorial-Outdoor/dp/B09B2GRLN4/?ie=UTF8&tag=giftable02-20)
 
 ### [44\. Memorial Photo Lantern](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/670959326/those-we-love-photo-lantern-memorial)
 

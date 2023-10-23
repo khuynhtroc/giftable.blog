@@ -59,7 +59,7 @@ It is a sustainable and environmentally responsible option for individuals who w
 
 When you consider interior design, hanging objects always dominate. For example, you may use a decoration like this Home Sweet Home -Personalized Name, Map Poster/Canvas anyplace in your home.
 
-This personalized print, which has a map of your area and your names and dates, is a wonderful **[housewarming present](https://avada.io/loveable/home-decor-gifts/)** for a wedding anniversary, engagement anniversary, birthday, or for any other special occasion. It may be tailored to any area in the world!
+This personalized print, which has a map of your area and your names and dates, is a wonderful **[housewarming present](/home-decor-gifts/)** for a wedding anniversary, engagement anniversary, birthday, or for any other special occasion. It may be tailored to any area in the world!
 
 **Pros:**
 

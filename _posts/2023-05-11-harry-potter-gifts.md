@@ -17,9 +17,9 @@ If your friends are also big fans of this movie, a Harry Potter gift will be an 
 
 However, there are so many websites dedicated to Harry Potter merchandise with more than a thousand magical products ranging from Harry Potter collectibles, action figures, **[games](/gifts-gamers/)**, and much more, that this makes you feel confused. Don't worry; our list of Harry Potter Gifts will bring you the best options in this field.
 
-### [1\. Harry Potter Ceramic Tea Mug](https://www.amazon.com/Morphing-Mugs-Hogwarts-Magical-Marauders/dp/B01ETLZERO?ie=UTF8&tag=avadalove-20)
+### [1\. Harry Potter Ceramic Tea Mug](https://www.amazon.com/Morphing-Mugs-Hogwarts-Magical-Marauders/dp/B01ETLZERO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Morphing-Mugs-Hogwarts-Magical-Marauders/dp/B01ETLZERO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Morphing-Mugs-Hogwarts-Magical-Marauders/dp/B01ETLZERO?ie=UTF8&tag=giftable02-20)
 
 Bring some magic home with the Ceramic Color Changing Coffee Tea Mug. A ceramic mug that lights up when you pour hot beverages, this cup is the perfect size for sipping on, whether you're at home or on the go.
 
@@ -35,11 +35,11 @@ The Harry Potter mug is made of premium top-end ceramic and paper. It is nice wh
 
 ✔️ Convenient to hold with C handle
 
-[Buy from Amazon](https://www.amazon.com/Morphing-Mugs-Hogwarts-Magical-Marauders/dp/B01ETLZERO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Morphing-Mugs-Hogwarts-Magical-Marauders/dp/B01ETLZERO?ie=UTF8&tag=giftable02-20)
 
-### [2\. Personalizable Laser Engraved Music Box](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS/?ie=UTF8&tag=avadalove-20)
+### [2\. Personalizable Laser Engraved Music Box](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS/?ie=UTF8&tag=giftable02-20)
 
 Our Harry Potter Mini with The Music of Hedwig's Theme music box features a personalizable laser engraved plate that lets you engrave the name of a loved one. Especially, it was Harry’s favorite song, and this personalized music box will play Hedwig’s theme whenever the lid is opened.
 
@@ -53,11 +53,11 @@ There are 18 note songs in the box and when you turn the handle, it will play mu
 
 ✔️ Durable box and well engraved to give you a beautiful design
 
-[Buy from Amazon](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS/?ie=UTF8&tag=giftable02-20)
 
-### [3\. Talking Sorting Hat](https://www.amazhttps/www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY/ref=sr_1_2?keywords=Talking%2BSorting%2BHat&qid=1677252378&sr=8-2&th=1on.com/Wizarding-World-Talking-Sorting-Phrases/dp/https://www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY?ie=UTF8&tag=avadalove-20)
+### [3\. Talking Sorting Hat](https://www.amazhttps/www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY/ref=sr_1_2?keywords=Talking%2BSorting%2BHat&qid=1677252378&sr=8-2&th=1on.com/Wizarding-World-Talking-Sorting-Phrases/dp/https://www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazhttps/www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY/ref=sr_1_2?keywords=Talking%2BSorting%2BHat&qid=1677252378&sr=8-2&th=1on.com/Wizarding-World-Talking-Sorting-Phrases/dp/https://www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazhttps/www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY/ref=sr_1_2?keywords=Talking%2BSorting%2BHat&qid=1677252378&sr=8-2&th=1on.com/Wizarding-World-Talking-Sorting-Phrases/dp/https://www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY?ie=UTF8&tag=giftable02-20)
 
 Enter the magical world of Harry Potter with the Wizarding World Harry Potter Talking Sorting Hat, which comes equipped with 15 phrases for pretend play. Let kids sort imaginary friends and foes with ease. Children will love using this talking hat to play games and teach manners.
 
@@ -71,11 +71,11 @@ The hat is made of plastic with a size of 14in H x 15in W and 7'' in height. The
 
 ✔️ Look like a realistic one to give you a perfect outfit
 
-[Buy from Amazon](https://www.amazhttps/www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY/ref=sr_1_2?keywords=Talking%2BSorting%2BHat&qid=1677252378&sr=8-2&th=1on.com/Wizarding-World-Talking-Sorting-Phrases/dp/https://www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazhttps/www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY/ref=sr_1_2?keywords=Talking%2BSorting%2BHat&qid=1677252378&sr=8-2&th=1on.com/Wizarding-World-Talking-Sorting-Phrases/dp/https://www.amazon.com/Wizarding-World-Talking-Sorting-Phrases/dp/B08SVXG1XY?ie=UTF8&tag=giftable02-20)
 
-### [4\. Spellbinding Harry Potter Wand](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ/?ie=UTF8&tag=avadalove-20)
+### [4\. Spellbinding Harry Potter Wand](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ/?ie=UTF8&tag=giftable02-20)
 
 Harry Potter and his friends are famous around the world and will be a hit for your child. This beautifully crafted Harry Potter wand has a weighted base so they can hold it easily and comfortably.
 
@@ -91,11 +91,11 @@ The wand comes with a card that teaches spells from the Harry Potter series and 
 
 ✔️ Not sharp in the wand to not harm your kids
 
-[Buy from Amazon](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Douglas Wizard Snowy Owl](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=avadalove-20)
+### [5\. Douglas Wizard Snowy Owl](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=giftable02-20)
 
 The Douglas Wizard is an award-winning, soft plush toy that will stand up to lots of hugs and hugs of enjoyment. Softly and gently cuddled and loved by children.
 
@@ -109,11 +109,11 @@ The stuffed animal is well made of high-quality fabric with a size of 8 x 4 x 5 
 
 ✔️ Inspire a passion for magical story for kids
 
-[Buy from Amazon](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Perler Harry Potter Fuse Bead Kit](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=avadalove-20)
+### [6\. Perler Harry Potter Fuse Bead Kit](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=giftable02-20)
 
 With 19 Perler Harry Potter theme fuse beads and an easy-to-follow pattern sheet included, this kit makes it easy to create your own spellbinding creations with little help from your adult helper! Kids or play dates will love creating their own unique magical items as they create new friends and enemies among the muggles.
 
@@ -127,11 +127,11 @@ The bead set includes 4000 fuse beads, 1 pegboard, 1 ironing paper, and 1 sheet 
 
 ✔️ Colorful beads would give you not boring games
 
-[Buy from Amazon](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=giftable02-20)
 
-### [7\. Charm Themed Friendship Bracelet](https://www.amazon.com/Fancy-Space-Bracelet-Friendship-Bracelets/dp/B07Z9PDZRF?ie=UTF8&tag=avadalove-20)
+### [7\. Charm Themed Friendship Bracelet](https://www.amazon.com/Fancy-Space-Bracelet-Friendship-Bracelets/dp/B07Z9PDZRF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fancy-Space-Bracelet-Friendship-Bracelets/dp/B07Z9PDZRF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fancy-Space-Bracelet-Friendship-Bracelets/dp/B07Z9PDZRF?ie=UTF8&tag=giftable02-20)
 
 Handcrafted in sterling silver, this friendship bracelet will be obviously a durable and long-lasting keepsake for this friendship. For a magical gift, this charm bracelet is the perfect accessory to add some sparkle and a little magic to someone special.
 
@@ -145,11 +145,11 @@ The bracelet is manufactured from metal and well-finished with silver to give a 
 
 ✔️ Cheer up your kids with the magical bracelet
 
-[Buy from Amazon](https://www.amazon.com/Fancy-Space-Bracelet-Friendship-Bracelets/dp/B07Z9PDZRF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fancy-Space-Bracelet-Friendship-Bracelets/dp/B07Z9PDZRF?ie=UTF8&tag=giftable02-20)
 
-### [8\. Harry Potter Crest Cauldron 3D Sculpted Ceramic Coffee Mug](https://www.amazon.com/Silver-Buffalo-Hogwarts-Cauldron-Ceramic/dp/B01GNT892M/?ie=UTF8&tag=avadalove-20)
+### [8\. Harry Potter Crest Cauldron 3D Sculpted Ceramic Coffee Mug](https://www.amazon.com/Silver-Buffalo-Hogwarts-Cauldron-Ceramic/dp/B01GNT892M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silver-Buffalo-Hogwarts-Cauldron-Ceramic/dp/B01GNT892M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silver-Buffalo-Hogwarts-Cauldron-Ceramic/dp/B01GNT892M/?ie=UTF8&tag=giftable02-20)
 
 It's perfect for enjoying the first sip of the day or savoring the last. Especially, this ceramic mug features the Hogwarts castle, where Harry Potter met his destiny.
 
@@ -163,11 +163,11 @@ Embrace the wizarding charm with this generous 14-ounce size, perfect for enjoyi
 
 ✔️ Crafted from high-quality, heat-retaining ceramic
 
-[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Hogwarts-Cauldron-Ceramic/dp/B01GNT892M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silver-Buffalo-Hogwarts-Cauldron-Ceramic/dp/B01GNT892M/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Harry Potter Illustrated Book](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352?ie=UTF8&tag=avadalove-20)
+### [9\. Harry Potter Illustrated Book](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352?ie=UTF8&tag=giftable02-20)
 
 For fans of the book series, the Harry Potter and the Sorcerer’s Stone: The Illustrated Edition will bring back memories of a time before Harry Potter’s adventures.
 
@@ -181,11 +181,11 @@ You’ll relive the magic of J.K. Rowling’s world with the enchanting illustra
 
 ✔️ Perfect gift for Harry Potter enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352?ie=UTF8&tag=giftable02-20)
 
-### [10\. USB Stick 32 GB Harry Potter](https://www.amazon.com/32-Harry-Potter-USB-Stick/dp/B07JQHHMBB/r?ie=UTF8&tag=avadalove-20)
+### [10\. USB Stick 32 GB Harry Potter](https://www.amazon.com/32-Harry-Potter-USB-Stick/dp/B07JQHHMBB/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/32-Harry-Potter-USB-Stick/dp/B07JQHHMBB/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/32-Harry-Potter-USB-Stick/dp/B07JQHHMBB/r?ie=UTF8&tag=giftable02-20)
 
 A gift that is a dream come true for Harry Potter fans everywhere. The Harry Potter USB stick ensures maximum read and writes speed.
 
@@ -199,11 +199,11 @@ Perfect for those who need extra storage space, or just want to get their hands 
 
 ✔️ Portable and reliable data transfer for magical convenience
 
-[Buy from Amazon](https://www.amazon.com/32-Harry-Potter-USB-Stick/dp/B07JQHHMBB/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/32-Harry-Potter-USB-Stick/dp/B07JQHHMBB/r?ie=UTF8&tag=giftable02-20)
 
-### [11\. Funny Throw Pillow](https://www.amazon.com/Mancheng-zi-Muggles-Wizards-Dormitory-Decorative/dp/B089VPPCVX/?ie=UTF8&tag=avadalove-20)
+### [11\. Funny Throw Pillow](https://www.amazon.com/Mancheng-zi-Muggles-Wizards-Dormitory-Decorative/dp/B089VPPCVX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mancheng-zi-Muggles-Wizards-Dormitory-Decorative/dp/B089VPPCVX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mancheng-zi-Muggles-Wizards-Dormitory-Decorative/dp/B089VPPCVX/?ie=UTF8&tag=giftable02-20)
 
 These pillowcases are also perfect as housewarming gifts, wedding gifts or birthday gifts.
 
@@ -217,11 +217,11 @@ These throw pillowcases are made of durable cotton linen fabric, providing you t
 
 ✔️ Hidden zipper for easy pillow insertion and removal
 
-[Buy from Amazon](https://www.amazon.com/Mancheng-zi-Muggles-Wizards-Dormitory-Decorative/dp/B089VPPCVX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mancheng-zi-Muggles-Wizards-Dormitory-Decorative/dp/B089VPPCVX/?ie=UTF8&tag=giftable02-20)
 
-### [12\. Harry Potter Coloring Book](https://www.amazon.com/Harry-Potter-Coloring-Book-Scholastic/dp/1338029991/?ie=UTF8&tag=avadalove-20)
+### [12\. Harry Potter Coloring Book](https://www.amazon.com/Harry-Potter-Coloring-Book-Scholastic/dp/1338029991/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Coloring-Book-Scholastic/dp/1338029991/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Coloring-Book-Scholastic/dp/1338029991/?ie=UTF8&tag=giftable02-20)
 
 You’re on the right path if you’re thinking of taking a break from reality and indulging in some magic and wizardly mischief with this coloring book from Harry Potter!
 
@@ -235,11 +235,11 @@ The pages are filled with all your favorite characters so you can color in your 
 
 ✔️ Wide variety of characters and scenes to explore creatively
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Coloring-Book-Scholastic/dp/1338029991/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Coloring-Book-Scholastic/dp/1338029991/?ie=UTF8&tag=giftable02-20)
 
-### [13\. The Unofficial Harry Potter Cookbook](https://www.amazon.com/Unofficial-Harry-Potter-Cookbook-Knickerbocker/dp/1440503257/?ie=UTF8&tag=avadalove-20)
+### [13\. The Unofficial Harry Potter Cookbook](https://www.amazon.com/Unofficial-Harry-Potter-Cookbook-Knickerbocker/dp/1440503257/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Unofficial-Harry-Potter-Cookbook-Knickerbocker/dp/1440503257/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Unofficial-Harry-Potter-Cookbook-Knickerbocker/dp/1440503257/?ie=UTF8&tag=giftable02-20)
 
 An excellent resource for the cook at heart, this cookbook will provide everything needed to create your own magical culinary experience.
 
@@ -253,11 +253,11 @@ Featuring over 150 recipes, including items like cauldron cakes, a hearty stew f
 
 ✔️ Easy-to-follow instructions for both novice and expert cooks
 
-[Buy from Amazon](https://www.amazon.com/Unofficial-Harry-Potter-Cookbook-Knickerbocker/dp/1440503257/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Unofficial-Harry-Potter-Cookbook-Knickerbocker/dp/1440503257/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Harry Potter Collectible Quidditch Set](https://www.amazon.com/Harry-Potter-Collectible-Quidditch-Accessory/dp/076245945X?ie=UTF8&tag=avadalove-20)
+### [14\. Harry Potter Collectible Quidditch Set](https://www.amazon.com/Harry-Potter-Collectible-Quidditch-Accessory/dp/076245945X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Collectible-Quidditch-Accessory/dp/076245945X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Collectible-Quidditch-Accessory/dp/076245945X?ie=UTF8&tag=giftable02-20)
 
 In this set, Harry Potter fans will find all the essentials of the sport of Quidditch. This Quidditch set is completely designed and made in the USA.
 
@@ -271,11 +271,11 @@ A perfect gift for any fan of the Harry Potter series, the trunk is designed to 
 
 ✔️ High-quality materials for a realistic playing experience
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Collectible-Quidditch-Accessory/dp/076245945X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Collectible-Quidditch-Accessory/dp/076245945X?ie=UTF8&tag=giftable02-20)
 
-### [15\. The Official Harry Potter Baking Book](https://www.amazon.com/Official-Harry-Potter-Baking-Book/dp/1338285262/?ie=UTF8&tag=avadalove-20)
+### [15\. The Official Harry Potter Baking Book](https://www.amazon.com/Official-Harry-Potter-Baking-Book/dp/1338285262/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Official-Harry-Potter-Baking-Book/dp/1338285262/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Official-Harry-Potter-Baking-Book/dp/1338285262/?ie=UTF8&tag=giftable02-20)
 
 Welcome to Hogwarts! The Official Harry Potter Baking Book contains everything you need to bake delicious treats like Butterbeer, Pumpkin Pie, Sorted Snacks, and more!
 
@@ -289,11 +289,11 @@ From Hagrid to Umbridge, Dumbledore to Flitwick, each chapter provides you with 
 
 ✔️ Easy-to-follow instructions for spellbinding treats
 
-[Buy from Amazon](https://www.amazon.com/Official-Harry-Potter-Baking-Book/dp/1338285262/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Official-Harry-Potter-Baking-Book/dp/1338285262/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Luxury fountain pen set](https://www.amazon.com/fountain-sprinkling-feather-calligraphy-birthday/dp/B08PSTM9LT/?ie=UTF8&tag=avadalove-20)
+### [16\. Luxury fountain pen set](https://www.amazon.com/fountain-sprinkling-feather-calligraphy-birthday/dp/B08PSTM9LT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/fountain-sprinkling-feather-calligraphy-birthday/dp/B08PSTM9LT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/fountain-sprinkling-feather-calligraphy-birthday/dp/B08PSTM9LT/?ie=UTF8&tag=giftable02-20)
 
 Embrace the magic of the wizarding world with every stroke, as the quill-like pen dances effortlessly on paper, sprinkling your thoughts like enchanting spells.
 
@@ -307,11 +307,11 @@ The set includes five different nibs, offering various writing styles to suit yo
 
 ✔️ Three different sizes, offering comfort and elegance
 
-[Buy from Amazon](https://www.amazon.com/fountain-sprinkling-feather-calligraphy-birthday/dp/B08PSTM9LT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/fountain-sprinkling-feather-calligraphy-birthday/dp/B08PSTM9LT/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Fidget Hand Spinner](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=avadalove-20)
+### [17\. Fidget Hand Spinner](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=giftable02-20)
 
 Our Harry Potter Fidget Hand Spinner is great for all ages! Harry Potter fans will love spinning in this spinner for hours.
 
@@ -325,11 +325,11 @@ Featuring a golden finish, it has been crafted from metal so it will look great 
 
 ✔️ Durable construction, built to withstand endless wizardry tricks
 
-[Buy from Amazon](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Harry Potter Gryffindor Bracelet Set](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK?ie=UTF8&tag=avadalove-20)
+### [18\. Harry Potter Gryffindor Bracelet Set](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK?ie=UTF8&tag=giftable02-20)
 
 Harry Potter Gryffindor Bracelet Set is designed in high-quality materials to give you elegant jewelry.
 
@@ -343,11 +343,11 @@ This Harry Potter Gryffindor bracelet set is made from durable material. It is a
 
 ✔️ Stylish accessory, perfect for showcasing your Hogwarts pride
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK?ie=UTF8&tag=giftable02-20)
 
-### [19\. Harry Potter Stainless Steel Water Bottle Thermos](https://www.amazon.com/Harry-Potter-Stainless-Steel-Bottle/dp/B07BHRM2RG?ie=UTF8&tag=avadalove-20)
+### [19\. Harry Potter Stainless Steel Water Bottle Thermos](https://www.amazon.com/Harry-Potter-Stainless-Steel-Bottle/dp/B07BHRM2RG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Stainless-Steel-Bottle/dp/B07BHRM2RG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Stainless-Steel-Bottle/dp/B07BHRM2RG?ie=UTF8&tag=giftable02-20)
 
 The Harry Potter Stainless Steel Water Bottle Thermos holds up to 550 milliliters of water, making it perfect for any wizard’s lunch or other meal needs.
 
@@ -361,11 +361,11 @@ With easy access to a wide spout, you can fill up and drink anytime you please. 
 
 ✔️ Leak-proof and BPA-free, for worry-free on-the-go use
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Stainless-Steel-Bottle/dp/B07BHRM2RG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Stainless-Steel-Bottle/dp/B07BHRM2RG?ie=UTF8&tag=giftable02-20)
 
-### [20\. Vintage Leather Journal Harry Potter](https://www.amazon.com/Vintage-Leather-Journal-Potter-Antique/dp/B09QZQPZBP/?ie=UTF8&tag=avadalove-20)
+### [20\. Vintage Leather Journal Harry Potter](https://www.amazon.com/Vintage-Leather-Journal-Potter-Antique/dp/B09QZQPZBP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Leather-Journal-Potter-Antique/dp/B09QZQPZBP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Leather-Journal-Potter-Antique/dp/B09QZQPZBP/?ie=UTF8&tag=giftable02-20)
 
 A vintage Harry Potter-style leather journal with a leather ribbon bookmark. Perfect to carry around with you in your bag or backpack.
 
@@ -379,11 +379,11 @@ Use it as a notepad, a journal, a sketchbook, or simply as a writing notebook. T
 
 ✔️ High-quality paper, smooth and ideal for writing adventures
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Leather-Journal-Potter-Antique/dp/B09QZQPZBP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Leather-Journal-Potter-Antique/dp/B09QZQPZBP/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Awesome Facts for Potter Fan](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215/?ie=UTF8&tag=avadalove-20)
+### [21\. Awesome Facts for Potter Fan](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215/?ie=UTF8&tag=giftable02-20)
 
 Great for a gift idea or anytime, the Awesome Facts for Potter Fan book will make an awesome addition to your home or your office.
 
@@ -397,11 +397,11 @@ This book includes hundreds of facts and trivia about Harry Potter. Some you mig
 
 ✔️ Engaging content, perfect for both kids and adults
 
-[Buy from Amazon](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Harry Potter 17oz Stemless Wine Glasses](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6?ie=UTF8&tag=avadalove-20)
+### [22\. Harry Potter 17oz Stemless Wine Glasses](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6?ie=UTF8&tag=giftable02-20)
 
 Set of 4 stylish Harry Potter stemless wine glasses inspired by the Harry Potter films. These stemless wine glasses make a great kitchen gift, ideal for sharing with friends and family.
 
@@ -415,11 +415,11 @@ Each glass features a distinctive Harry Potter symbol and gold finish. Features 
 
 ✔️ Premium glassware, adding a touch of wizardry sophistication
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6?ie=UTF8&tag=giftable02-20)
 
-### [23\. Wizarding World Harry Potter Trivia Game](https://www.amazon.com/Hasbro-Gaming-Trivial-Pursuit-Wizarding/dp/B08D2GPBFP?ie=UTF8&tag=avadalove-20)
+### [23\. Wizarding World Harry Potter Trivia Game](https://www.amazon.com/Hasbro-Gaming-Trivial-Pursuit-Wizarding/dp/B08D2GPBFP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hasbro-Gaming-Trivial-Pursuit-Wizarding/dp/B08D2GPBFP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hasbro-Gaming-Trivial-Pursuit-Wizarding/dp/B08D2GPBFP?ie=UTF8&tag=giftable02-20)
 
 Fun for the whole family, this game is ideal for taking to a children's party or simply to pass the time at home.
 
@@ -433,11 +433,11 @@ The Wizarding World Harry Potter Trivia Game gives players the chance to show th
 
 ✔️ Engaging and fun for family and friends, memorable game nights
 
-[Buy from Amazon](https://www.amazon.com/Hasbro-Gaming-Trivial-Pursuit-Wizarding/dp/B08D2GPBFP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hasbro-Gaming-Trivial-Pursuit-Wizarding/dp/B08D2GPBFP?ie=UTF8&tag=giftable02-20)
 
-### [24\. Organic Wooden Spoons](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=avadalove-20)
+### [24\. Organic Wooden Spoons](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=giftable02-20)
 
 Harry Potter Organic Wooden Spoons - A wonderful way to add some magical goodness to your kitchen.
 
@@ -451,11 +451,11 @@ These spoons are made from organic materials, the best quality bamboo spoons tha
 
 ✔️ Ergonomic design for comfortable and precise handling
 
-[Buy from Amazon](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=giftable02-20)
 
-### [25\. Harry Potter Cauldron Soup Mug with Spoon](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=avadalove-20)
+### [25\. Harry Potter Cauldron Soup Mug with Spoon](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=giftable02-20)
 
 The Harry Potter Ceramic Cauldron Soup Mug with Spoon is a unique mug that combines the spirit of Harry Potter and the world of cauldrons to create a charming and practical accessory for any fan of the Wizarding World.
 
@@ -469,11 +469,11 @@ This item features a comfortable handle, a wide rim around the top edge of the M
 
 ✔️ Perfect for fans and collectors, adding a touch of magic
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=giftable02-20)
 
-### [26\. Harry Potter Wizard Chess Set](https://www.amazon.com/Harry-Potter-Wizard-Chess-Set/dp/B00WADKDES?ie=UTF8&tag=avadalove-20)
+### [26\. Harry Potter Wizard Chess Set](https://www.amazon.com/Harry-Potter-Wizard-Chess-Set/dp/B00WADKDES?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Wizard-Chess-Set/dp/B00WADKDES?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Wizard-Chess-Set/dp/B00WADKDES?ie=UTF8&tag=giftable02-20)
 
 The Official Harry Potter Chess Set comes complete with a chess board and all the pieces to play your favorite game. Officially licensed by Warner Bros.
 
@@ -487,11 +487,11 @@ This set is crafted to look like Hogwarts Castle and the surrounding grounds. It
 
 ✔️ Durable pieces for endless games of enchanted strategy
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Wizard-Chess-Set/dp/B00WADKDES?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Wizard-Chess-Set/dp/B00WADKDES?ie=UTF8&tag=giftable02-20)
 
-### [27\. Comfy Throw Blanket with Sleeves](https://www.amazon.com/Harry-Potter-Blanket-Sleeves-Hufflepuff/dp/B07J215K2P/?ie=UTF8&tag=avadalove-20)
+### [27\. Comfy Throw Blanket with Sleeves](https://www.amazon.com/Harry-Potter-Blanket-Sleeves-Hufflepuff/dp/B07J215K2P/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Blanket-Sleeves-Hufflepuff/dp/B07J215K2P/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Blanket-Sleeves-Hufflepuff/dp/B07J215K2P/?ie=UTF8&tag=giftable02-20)
 
 Welcome to the North West Comfy Throw. It is designed to be the perfect soft blanket and comfy throw.
 
@@ -505,11 +505,11 @@ Made with 100% Polyester fiber, it is comfortable to sleep on. It comes with sle
 
 ✔️ Wearable design, allowing freedom while staying warm
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Blanket-Sleeves-Hufflepuff/dp/B07J215K2P/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Blanket-Sleeves-Hufflepuff/dp/B07J215K2P/?ie=UTF8&tag=giftable02-20)
 
-### [28\. The Noble Collection Harry Potter Wand](https://www.amazon.com/Noble-Collection-Harry-Potter-Wand/dp/B000BVYQ9O?ie=UTF8&tag=avadalove-20)
+### [28\. The Noble Collection Harry Potter Wand](https://www.amazon.com/Noble-Collection-Harry-Potter-Wand/dp/B000BVYQ9O?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Noble-Collection-Harry-Potter-Wand/dp/B000BVYQ9O?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Noble-Collection-Harry-Potter-Wand/dp/B000BVYQ9O?ie=UTF8&tag=giftable02-20)
 
 The Noble Collection Hogwarts Wand, a replica of the wand used by the Harry Potter character in the films, is crafted with the highest quality materials to provide you with hours of enjoyment.
 
@@ -523,11 +523,11 @@ Its long wooden shaft is adorned with golden detailing to complete this authenti
 
 ✔️ Comes in a collector's box, perfect for display
 
-[Buy from Amazon](https://www.amazon.com/Noble-Collection-Harry-Potter-Wand/dp/B000BVYQ9O?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Noble-Collection-Harry-Potter-Wand/dp/B000BVYQ9O?ie=UTF8&tag=giftable02-20)
 
-### [29\. Harry Potter Trivia Board Game](https://www.amazon.com/USAopoly-Trivial-Ultimate-Officially-Licensed/dp/B06Y3KLD21?ie=UTF8&tag=avadalove-20)
+### [29\. Harry Potter Trivia Board Game](https://www.amazon.com/USAopoly-Trivial-Ultimate-Officially-Licensed/dp/B06Y3KLD21?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/USAopoly-Trivial-Ultimate-Officially-Licensed/dp/B06Y3KLD21?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/USAopoly-Trivial-Ultimate-Officially-Licensed/dp/B06Y3KLD21?ie=UTF8&tag=giftable02-20)
 
 Our new Harry Potter Trivia Board game allows players to test their knowledge of all things magical in the Wizarding World.
 
@@ -541,11 +541,11 @@ With over 1,800 questions spanning 8 different movies, the Hogwarts Trivia Board
 
 ✔️ Engaging and fun, perfect for fans of all ages
 
-[Buy from Amazon](https://www.amazon.com/USAopoly-Trivial-Ultimate-Officially-Licensed/dp/B06Y3KLD21?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/USAopoly-Trivial-Ultimate-Officially-Licensed/dp/B06Y3KLD21?ie=UTF8&tag=giftable02-20)
 
-### [30\. Wizard Wand Makeup Brushes](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=avadalove-20)
+### [30\. Wizard Wand Makeup Brushes](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=giftable02-20)
 
 For a professional makeup look, you will definitely love these portable Wizard Wand brushes!
 
@@ -559,11 +559,11 @@ These easy-to-use brushes are easy to use and comfortable on your hands. They ar
 
 ✔️ Durable and soft bristles, ensuring smooth makeup application
 
-[Buy from Amazon](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=giftable02-20)
 
-### [31\. Official Harry Potter Bullet Journal](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN/?ie=UTF8&tag=avadalove-20)
+### [31\. Official Harry Potter Bullet Journal](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN/?ie=UTF8&tag=giftable02-20)
 
 Official Harry Potter Bullet Journal. This notebook contains 240 pages and is made from sturdy and durable paper with a unique, non-glossy finish for a smooth writing surface.
 
@@ -577,11 +577,11 @@ This notebook is a great notebook for JK Rowling fans because it is officially l
 
 ✔️ Versatile layout for notes, planning, and artistic expressions
 
-[Buy from Amazon](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Harry Potter Paperback Box Set](https://www.amazon.com/Harry-Potter-Paperback-Box-Books/dp/0545162076?ie=UTF8&tag=avadalove-20)
+### [32\. Harry Potter Paperback Box Set](https://www.amazon.com/Harry-Potter-Paperback-Box-Books/dp/0545162076?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Paperback-Box-Books/dp/0545162076?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Paperback-Box-Books/dp/0545162076?ie=UTF8&tag=giftable02-20)
 
 Unlock the magic of Harry Potter with this enchanting paperback box set, a treasure trove of adventure and imagination.
 
@@ -595,11 +595,11 @@ The ultimate Harry Potter box set includes all seven books in hardcover, perfect
 
 ✔️ Beautifully designed box, perfect for collectors
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Paperback-Box-Books/dp/0545162076?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Paperback-Box-Books/dp/0545162076?ie=UTF8&tag=giftable02-20)
 
-### [33\. Harry Potter socks](https://www.amazon.com/Hyp-Potter-Hedwig-Hogwarts-Juniors/dp/B07FXXVQGN?ie=UTF8&tag=avadalove-20)
+### [33\. Harry Potter socks](https://www.amazon.com/Hyp-Potter-Hedwig-Hogwarts-Juniors/dp/B07FXXVQGN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hyp-Potter-Hedwig-Hogwarts-Juniors/dp/B07FXXVQGN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hyp-Potter-Hedwig-Hogwarts-Juniors/dp/B07FXXVQGN?ie=UTF8&tag=giftable02-20)
 
 The Harry Potter socks are for those people who want to be a real wizard. They're perfect for Harry Potter fans because they're cool and comfortable.
 
@@ -613,11 +613,11 @@ Made from polyester, spandex, and nylon, these socks will keep you cool in the s
 
 ✔️ Durable material, ensuring long-lasting magical coziness
 
-[Buy from Amazon](https://www.amazon.com/Hyp-Potter-Hedwig-Hogwarts-Juniors/dp/B07FXXVQGN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hyp-Potter-Hedwig-Hogwarts-Juniors/dp/B07FXXVQGN?ie=UTF8&tag=giftable02-20)
 
-### [34\. Harry Potter Broomstick Pen](https://www.amazon.com/HARRY-POTTER-Broomstick-Pen-Brown/dp/B08GL6HMS7?ie=UTF8&tag=avadalove-20)
+### [34\. Harry Potter Broomstick Pen](https://www.amazon.com/HARRY-POTTER-Broomstick-Pen-Brown/dp/B08GL6HMS7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HARRY-POTTER-Broomstick-Pen-Brown/dp/B08GL6HMS7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HARRY-POTTER-Broomstick-Pen-Brown/dp/B08GL6HMS7?ie=UTF8&tag=giftable02-20)
 
 Make the most of your day with the Broomstick Pen. The official Harry Potter product is inspired by the brooms used by the magical characters in the series.
 
@@ -631,7 +631,7 @@ This pen is the perfect way to capture those magical moments that are only exper
 
 ✔️ Smooth writing experience, adding magic to every stroke
 
-[Buy from Amazon](https://www.amazon.com/HARRY-POTTER-Broomstick-Pen-Brown/dp/B08GL6HMS7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HARRY-POTTER-Broomstick-Pen-Brown/dp/B08GL6HMS7?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

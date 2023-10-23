@@ -273,9 +273,9 @@ This elegant necklace has the word “jesus” engraved on it. It emphasizes the
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/505061464/jesus-necklace-faith-necklace-christian)
 
-### [15\. Travel Mug](https://www.amazon.com/Turquoise-Pastors-Stainless-Insulated-Travel/dp/B00MS52K6M?ie=UTF8&tag=avadalove-20)
+### [15\. Travel Mug](https://www.amazon.com/Turquoise-Pastors-Stainless-Insulated-Travel/dp/B00MS52K6M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Turquoise-Pastors-Stainless-Insulated-Travel/dp/B00MS52K6M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Turquoise-Pastors-Stainless-Insulated-Travel/dp/B00MS52K6M?ie=UTF8&tag=giftable02-20)
 
 A Turquoise pastor flask makes a wonderful present to give your wife on a special occasion. It is both pretty and practical that she can use every single day.
 
@@ -289,11 +289,11 @@ This tumbler is made with so much love and care. The liner and lid are made of s
 
 ✔️ Convenient travel size with a spill-proof lid for on-the-go use
 
-[Buy from Amazon](https://www.amazon.com/Turquoise-Pastors-Stainless-Insulated-Travel/dp/B00MS52K6M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Turquoise-Pastors-Stainless-Insulated-Travel/dp/B00MS52K6M?ie=UTF8&tag=giftable02-20)
 
-### [16\. Faithwork Pastor Frame](https://www.amazon.com/Faithworks-Pastors-Framed-Tabletop-14-Inches/dp/B00IGWB4IQ/?ie=UTF8&tag=avadalove-20)
+### [16\. Faithwork Pastor Frame](https://www.amazon.com/Faithworks-Pastors-Framed-Tabletop-14-Inches/dp/B00IGWB4IQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Faithworks-Pastors-Framed-Tabletop-14-Inches/dp/B00IGWB4IQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Faithworks-Pastors-Framed-Tabletop-14-Inches/dp/B00IGWB4IQ/?ie=UTF8&tag=giftable02-20)
 
 A print honoring your wife’s devotion will be the most meaningful and touching gift she has given ever! Make her fall in love with you again with this faithworks pastor frame.
 
@@ -307,11 +307,11 @@ A frame print features a detailed embossing and a dimensional cross with rhinest
 
 ✔️ Tabletop design allows for easy placement on any surface
 
-[Buy from Amazon](https://www.amazon.com/Faithworks-Pastors-Framed-Tabletop-14-Inches/dp/B00IGWB4IQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Faithworks-Pastors-Framed-Tabletop-14-Inches/dp/B00IGWB4IQ/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Pastor Cosmetic Bag](https://www.amazon.com/PXTIDY-Survival-Religious-Ministers-Appreciation/dp/B093GFK8ZF?ie=UTF8&tag=avadalove-20)
+### [17\. Pastor Cosmetic Bag](https://www.amazon.com/PXTIDY-Survival-Religious-Ministers-Appreciation/dp/B093GFK8ZF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PXTIDY-Survival-Religious-Ministers-Appreciation/dp/B093GFK8ZF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PXTIDY-Survival-Religious-Ministers-Appreciation/dp/B093GFK8ZF?ie=UTF8&tag=giftable02-20)
 
 Empty cosmetic bag with print "Pastor's Wife Survival Kit", The best gift for the pastor's wife. It can also be given to Christian family around you. Then forward it to the pastor’s wife, she'll be thrilled with it.
 
@@ -325,11 +325,11 @@ Made of high-quality canvas, eco-friendly material,durable, beautiful, convenien
 
 ✔️ Great gift for ministers' appreciation, with a thoughtful message
 
-[Buy from Amazon](https://www.amazon.com/PXTIDY-Survival-Religious-Ministers-Appreciation/dp/B093GFK8ZF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PXTIDY-Survival-Religious-Ministers-Appreciation/dp/B093GFK8ZF?ie=UTF8&tag=giftable02-20)
 
-### [18\. Scripture Wall Art](https://www.amazon.com/CB-Gift-Heartfelt-Collection-Pastor-Appreciation/dp/B07P7MMXFZ?ie=UTF8&tag=avadalove-20)
+### [18\. Scripture Wall Art](https://www.amazon.com/CB-Gift-Heartfelt-Collection-Pastor-Appreciation/dp/B07P7MMXFZ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CB-Gift-Heartfelt-Collection-Pastor-Appreciation/dp/B07P7MMXFZ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CB-Gift-Heartfelt-Collection-Pastor-Appreciation/dp/B07P7MMXFZ?ie=UTF8&tag=giftable02-20)
 
 A heartfelt name wall art is a wonderful present for your pastor wife. She will burst into tears because of happiness to see this printing work.
 
@@ -343,11 +343,11 @@ Frame and shadow box matting highlight the dimensional metallic gold cross, and 
 
 ✔️ Easy to hang and display, suitable for any room
 
-[Buy from Amazon](https://www.amazon.com/CB-Gift-Heartfelt-Collection-Pastor-Appreciation/dp/B07P7MMXFZ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CB-Gift-Heartfelt-Collection-Pastor-Appreciation/dp/B07P7MMXFZ?ie=UTF8&tag=giftable02-20)
 
-### [19\. Religious Cosmetic Bag](https://www.amazon.com/BLUPARK-Religious-Cosmetic-Strongest-Organizer/dp/B0921CS33Y/?ie=UTF8&tag=avadalove-20)
+### [19\. Religious Cosmetic Bag](https://www.amazon.com/BLUPARK-Religious-Cosmetic-Strongest-Organizer/dp/B0921CS33Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BLUPARK-Religious-Cosmetic-Strongest-Organizer/dp/B0921CS33Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BLUPARK-Religious-Cosmetic-Strongest-Organizer/dp/B0921CS33Y/?ie=UTF8&tag=giftable02-20)
 
 Being a pastor but your wife is also a woman right? So consider this makeup bag to give your wife on the special occasion. She’ll love it because of your thoughtfulness.
 
@@ -361,11 +361,11 @@ On the bag, of course it features words about pastors: "God Found Some of The St
 
 ✔️ Strong zipper closure to secure your items inside
 
-[Buy from Amazon](https://www.amazon.com/BLUPARK-Religious-Cosmetic-Strongest-Organizer/dp/B0921CS33Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BLUPARK-Religious-Cosmetic-Strongest-Organizer/dp/B0921CS33Y/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Manual Fringe](https://www.amazon.com/Manual-60-Inch-Throw-Fringe-Amazing/dp/B003RNGFCE/?ie=UTF8&tag=avadalove-20)
+### [20\. Manual Fringe](https://www.amazon.com/Manual-60-Inch-Throw-Fringe-Amazing/dp/B003RNGFCE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Manual-60-Inch-Throw-Fringe-Amazing/dp/B003RNGFCE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Manual-60-Inch-Throw-Fringe-Amazing/dp/B003RNGFCE/?ie=UTF8&tag=giftable02-20)
 
 An amazing grace, this manual fringe is a delicate gift to celebrate pastor holiday or your wife’s special occasions.
 
@@ -379,11 +379,11 @@ On the fringe, it has the printing quote about the pastor which is printed by hi
 
 ✔️ Adds a stylish and cozy touch to any home decor
 
-[Buy from Amazon](https://www.amazon.com/Manual-60-Inch-Throw-Fringe-Amazing/dp/B003RNGFCE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Manual-60-Inch-Throw-Fringe-Amazing/dp/B003RNGFCE/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Pastor Wife Keychain](https://www.amazon.com/BAUNA-Appreciation-Encouragement-Keychain-Ministers/dp/B0819SB1NR?ie=UTF8&tag=avadalove-20)
+### [21\. Pastor Wife Keychain](https://www.amazon.com/BAUNA-Appreciation-Encouragement-Keychain-Ministers/dp/B0819SB1NR?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BAUNA-Appreciation-Encouragement-Keychain-Ministers/dp/B0819SB1NR?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BAUNA-Appreciation-Encouragement-Keychain-Ministers/dp/B0819SB1NR?ie=UTF8&tag=giftable02-20)
 
 A Bauna keychain with pastor’s charms will be a great present for your wife to express your support for her position as a pastor in a church.
 
@@ -397,11 +397,11 @@ Pastor Wife appreciation keychain is made of stainless steel, which is lead free
 
 ✔️ Compact size makes it convenient to carry and use
 
-[Buy from Amazon](https://www.amazon.com/BAUNA-Appreciation-Encouragement-Keychain-Ministers/dp/B0819SB1NR?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BAUNA-Appreciation-Encouragement-Keychain-Ministers/dp/B0819SB1NR?ie=UTF8&tag=giftable02-20)
 
-### [22\. Burlwood Music Box](https://www.amazon.com/Proverbs-Distressed-Italian-Jewelry-Amazing/dp/B01GD4FYDO?ie=UTF8&tag=avadalove-20)
+### [22\. Burlwood Music Box](https://www.amazon.com/Proverbs-Distressed-Italian-Jewelry-Amazing/dp/B01GD4FYDO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Proverbs-Distressed-Italian-Jewelry-Amazing/dp/B01GD4FYDO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Proverbs-Distressed-Italian-Jewelry-Amazing/dp/B01GD4FYDO?ie=UTF8&tag=giftable02-20)
 
 Give your wife this Cottage garden wooden music box as a gift on special occasions. It will be a keepsake to cherish for years to come.
 
@@ -415,11 +415,11 @@ Beautiful Italian inspired design with a rich burlwood finish and silver color i
 
 ✔️ Makes a heartfelt gift for loved ones on special occasions
 
-[Buy from Amazon](https://www.amazon.com/Proverbs-Distressed-Italian-Jewelry-Amazing/dp/B01GD4FYDO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Proverbs-Distressed-Italian-Jewelry-Amazing/dp/B01GD4FYDO?ie=UTF8&tag=giftable02-20)
 
-### [23\. Sculpture Hand-painted Figure](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B00133KRK6?ie=UTF8&tag=avadalove-20)
+### [23\. Sculpture Hand-painted Figure](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B00133KRK6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B00133KRK6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B00133KRK6?ie=UTF8&tag=giftable02-20)
 
 A Willow Tree Angel decoration is a beautiful hand-painted figure. Giving her this pretty sculpture to your pastor wife, she will appreciate it a lot!
 
@@ -433,7 +433,7 @@ The 5.5”h hand-painted figure features a standing angel in cream dress with wi
 
 ✔️ Perfect for gifting on special occasions or as a keepsake
 
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B00133KRK6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B00133KRK6?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Nacho Average Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/994515689/nacho-average-wife-nacho-average-pastors)
 

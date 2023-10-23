@@ -387,9 +387,9 @@ Imagine your boyfriend receives it and opens the box; five layers will come apar
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/842666060/explosion-gift-box-5-layers-diy-photo)
 
-### [21\. Photo Album Scrapbook](https://www.amazon.com/T-HAOHUA-Anniversary-Photo-Album-Scrapbook/dp/B014T2ZZ5O/r?ie=UTF8&tag=avadalove-20)
+### [21\. Photo Album Scrapbook](https://www.amazon.com/T-HAOHUA-Anniversary-Photo-Album-Scrapbook/dp/B014T2ZZ5O/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/T-HAOHUA-Anniversary-Photo-Album-Scrapbook/dp/B014T2ZZ5O/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/T-HAOHUA-Anniversary-Photo-Album-Scrapbook/dp/B014T2ZZ5O/r?ie=UTF8&tag=giftable02-20)
 
 For every moment you have with your boyfriend, let's print it out and keep it in this photo album. Consequently, you will have the best birthday gift, showing how much you care about your love as you store every memory with him.
 
@@ -403,11 +403,11 @@ Made of premium-quality cardboard, it offers a high durability to last for years
 
 ✔️ An excellent storytelling medium
 
-[Buy from Amazon](https://www.amazon.com/T-HAOHUA-Anniversary-Photo-Album-Scrapbook/dp/B014T2ZZ5O/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/T-HAOHUA-Anniversary-Photo-Album-Scrapbook/dp/B014T2ZZ5O/r?ie=UTF8&tag=giftable02-20)
 
-### [22\. Hair Catcher for Shaving](https://www.amazon.com/beard-bib-shaving-trimmer-catcher-net/dp/B07HGJTHY3/?ie=UTF8&tag=avadalove-20)
+### [22\. Hair Catcher for Shaving](https://www.amazon.com/beard-bib-shaving-trimmer-catcher-net/dp/B07HGJTHY3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/beard-bib-shaving-trimmer-catcher-net/dp/B07HGJTHY3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/beard-bib-shaving-trimmer-catcher-net/dp/B07HGJTHY3/?ie=UTF8&tag=giftable02-20)
 
 If your love is facing the hair sticking on his clothing because of shaving consequences, Hair Catcher for Shaving is an excellent choice.
 
@@ -421,11 +421,11 @@ This product is easy-to-use as you only wrap it on your neck and remove it after
 
 ✔️ Add convenience to your shaving routine
 
-[Buy from Amazon](https://www.amazon.com/beard-bib-shaving-trimmer-catcher-net/dp/B07HGJTHY3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/beard-bib-shaving-trimmer-catcher-net/dp/B07HGJTHY3/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Globe Decanter Set with 2 Glasses](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT?ie=UTF8&tag=avadalove-20)
+### [23\. Globe Decanter Set with 2 Glasses](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT?ie=UTF8&tag=giftable02-20)
 
 Globe Decanter Set with 2 Glasses is all you need for an elegant birthday gift, which helps him relax while sipping whiskey from the glass.
 
@@ -439,11 +439,11 @@ The design with crystal glass combined with a global map creates elegance and no
 
 ✔️ Enhance the taste and aroma
 
-[Buy from Amazon](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decanter-Anniversary-Birthday-Boyfriend-Presents/dp/B092HS8CLT?ie=UTF8&tag=giftable02-20)
 
-### [24\. Pocket Knife with 6 Functions](https://www.amazon.com/Husband-Birthday-Functions-Starter-Boyfriend/dp/B07NVLBK3B?ie=UTF8&tag=avadalove-20)
+### [24\. Pocket Knife with 6 Functions](https://www.amazon.com/Husband-Birthday-Functions-Starter-Boyfriend/dp/B07NVLBK3B?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Husband-Birthday-Functions-Starter-Boyfriend/dp/B07NVLBK3B?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Husband-Birthday-Functions-Starter-Boyfriend/dp/B07NVLBK3B?ie=UTF8&tag=giftable02-20)
 
 Pocket knight is an exciting tool that your boyfriend will love at the first look.
 
@@ -457,11 +457,11 @@ With a modern design integrated with Led light, the utility of this pocket knigh
 
 ✔️ A valuable tool in emergency situations
 
-[Buy from Amazon](https://www.amazon.com/Husband-Birthday-Functions-Starter-Boyfriend/dp/B07NVLBK3B?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Husband-Birthday-Functions-Starter-Boyfriend/dp/B07NVLBK3B?ie=UTF8&tag=giftable02-20)
 
-### [25\. Drive Safe Keychain](https://www.amazon.com/Girlfriend-Keychain-Boyfriend-Anniversary-Vanlentines/dp/B083WM2BZQ/r?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Drive Safe Keychain](https://www.amazon.com/Girlfriend-Keychain-Boyfriend-Anniversary-Vanlentines/dp/B083WM2BZQ/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Girlfriend-Keychain-Boyfriend-Anniversary-Vanlentines/dp/B083WM2BZQ/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Girlfriend-Keychain-Boyfriend-Anniversary-Vanlentines/dp/B083WM2BZQ/r?th=1?ie=UTF8&tag=giftable02-20)
 
 A keychain is never out of date as a birthday gift for a boyfriend, especially if it is a "drive safe".
 
@@ -469,11 +469,11 @@ A keychain is never out of date as a birthday gift for a boyfriend, especially i
 
 This gift is ideal for showing how much you love your boyfriend as you always wish him to be safe.
 
-[Buy from Amazon](https://www.amazon.com/Girlfriend-Keychain-Boyfriend-Anniversary-Vanlentines/dp/B083WM2BZQ/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Girlfriend-Keychain-Boyfriend-Anniversary-Vanlentines/dp/B083WM2BZQ/r?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Funny Gag Toilet Paper Roll](https://www.amazon.com/Husband-Birthday-Gifts-Aliza-Toilet/dp/B07SD38QL4/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Funny Gag Toilet Paper Roll](https://www.amazon.com/Husband-Birthday-Gifts-Aliza-Toilet/dp/B07SD38QL4/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Husband-Birthday-Gifts-Aliza-Toilet/dp/B07SD38QL4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Husband-Birthday-Gifts-Aliza-Toilet/dp/B07SD38QL4/?th=1?ie=UTF8&tag=giftable02-20)
 
 The best way to surprise your boyfriend on his birthday is to do what he never expected; Funny Gag Toilet Paper Roll is a great choice.
 
@@ -487,11 +487,11 @@ This product is excellent as its material is soft and secure for the user's heal
 
 ✔️ A decorative element in your bathroom
 
-[Buy from Amazon](https://www.amazon.com/Husband-Birthday-Gifts-Aliza-Toilet/dp/B07SD38QL4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Husband-Birthday-Gifts-Aliza-Toilet/dp/B07SD38QL4/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Special Birthday Card](https://www.amazon.com/Naughty-Anniversary-Birthday-Greeting-Boyfriend/dp/B07M6225DT?ie=UTF8&tag=avadalove-20)
+### [27\. Special Birthday Card](https://www.amazon.com/Naughty-Anniversary-Birthday-Greeting-Boyfriend/dp/B07M6225DT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Naughty-Anniversary-Birthday-Greeting-Boyfriend/dp/B07M6225DT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Naughty-Anniversary-Birthday-Greeting-Boyfriend/dp/B07M6225DT?ie=UTF8&tag=giftable02-20)
 
 Imagine your boyfriend holding a special dirty birthday card in your hand with the sentence "I love you for your personality, but your d\*ck is a really bonus"; what responses do you think he will have?
 
@@ -505,11 +505,11 @@ Sometimes, you do not need a precious gift because you are the best gift for you
 
 ✔️ Convey your birthday wishes
 
-[Buy from Amazon](https://www.amazon.com/Naughty-Anniversary-Birthday-Greeting-Boyfriend/dp/B07M6225DT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Naughty-Anniversary-Birthday-Greeting-Boyfriend/dp/B07M6225DT?ie=UTF8&tag=giftable02-20)
 
-### [28\. Beard Growth Care Kit](https://www.amazon.com/dp/B078N1DBY9?ie=UTF8&tag=avadalove-20)
+### [28\. Beard Growth Care Kit](https://www.amazon.com/dp/B078N1DBY9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B078N1DBY9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B078N1DBY9?ie=UTF8&tag=giftable02-20)
 
 Every man wants to take care of his beard, so a beard grooming kit is necessary. It will surprise your love as he feels touched when you choose this product.
 
@@ -523,11 +523,11 @@ A kit is made of 100% natural & unique ingredients, which coordinate based on a 
 
 ✔️ Moisturize and condition the beard hair
 
-[Buy from Amazon](https://www.amazon.com/dp/B078N1DBY9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B078N1DBY9?ie=UTF8&tag=giftable02-20)
 
-### [29\. Whiskey Glass](https://www.amazon.com/Birthday-Daughter-Son-Birthday-Boyfriend-Coworkers/dp/B092QKXFTM?ie=UTF8&tag=avadalove-20)
+### [29\. Whiskey Glass](https://www.amazon.com/Birthday-Daughter-Son-Birthday-Boyfriend-Coworkers/dp/B092QKXFTM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birthday-Daughter-Son-Birthday-Boyfriend-Coworkers/dp/B092QKXFTM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birthday-Daughter-Son-Birthday-Boyfriend-Coworkers/dp/B092QKXFTM?ie=UTF8&tag=giftable02-20)
 
 If your boyfriend often has a deep moment with a glass of whiskey, why don't you pick this option? A glass of whiskey as a birthday gift for your boyfriend, why not?
 
@@ -541,7 +541,7 @@ Men's habit is to take sip whiskey whenever they have a deep thought. At this mo
 
 ✔️ Appreciate the visual aspects of the whiskey
 
-[Buy from Amazon](https://www.amazon.com/Birthday-Daughter-Son-Birthday-Boyfriend-Coworkers/dp/B092QKXFTM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birthday-Daughter-Son-Birthday-Boyfriend-Coworkers/dp/B092QKXFTM?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Daily Dose of Love Note Capsules](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/890189107/vitamin-me-daily-dose-of-love-cute-gift)
 

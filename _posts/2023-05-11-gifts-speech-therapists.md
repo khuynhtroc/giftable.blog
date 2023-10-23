@@ -367,9 +367,9 @@ Traditional Wish Bracelets are a thoughtful gift for any occasion, and you can c
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/719545528/speech-therapist-gift-speech-therapist)
 
-### [21\. Language Pathology](https://www.amazon.com/Speech-Therapy-T-Shirt-Language-Pathology/dp/B07JYGQGWP?ie=UTF8&tag=avadalove-20)
+### [21\. Language Pathology](https://www.amazon.com/Speech-Therapy-T-Shirt-Language-Pathology/dp/B07JYGQGWP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Speech-Therapy-T-Shirt-Language-Pathology/dp/B07JYGQGWP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Speech-Therapy-T-Shirt-Language-Pathology/dp/B07JYGQGWP?ie=UTF8&tag=giftable02-20)
 
 These are perfect gifts to make someone's day! Your aunt, uncle, son, daughter, or friend who is a therapist will love these and they'll help them get better at their job.
 
@@ -383,11 +383,11 @@ Available in a range of sizes, it caters to all shapes and sizes, ensuring a com
 
 ✔️ Made with high-quality materials, offering durability and comfort
 
-[Buy from Amazon](https://www.amazon.com/Speech-Therapy-T-Shirt-Language-Pathology/dp/B07JYGQGWP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Speech-Therapy-T-Shirt-Language-Pathology/dp/B07JYGQGWP?ie=UTF8&tag=giftable02-20)
 
-### [22\. The World Keychain](https://www.amazon.com/MYOSPARK-Therapist-Language-Pathologist-Everyone/dp/B07GKMPP9Z?ie=UTF8&tag=avadalove-20)
+### [22\. The World Keychain](https://www.amazon.com/MYOSPARK-Therapist-Language-Pathologist-Everyone/dp/B07GKMPP9Z?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MYOSPARK-Therapist-Language-Pathologist-Everyone/dp/B07GKMPP9Z?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MYOSPARK-Therapist-Language-Pathologist-Everyone/dp/B07GKMPP9Z?ie=UTF8&tag=giftable02-20)
 
 This speech therapist key chain is a great **[gift for social workers](/social-worker-gifts/)** and therapists. This is a great way to express appreciation for special teachers, speech therapists, and occupational therapists.
 
@@ -401,11 +401,11 @@ Its compact size makes it ideal for attaching to keyrings or slipping into bags,
 
 ✔️ Crafted with high-quality stainless steel, ensuring durability
 
-[Buy from Amazon](https://www.amazon.com/MYOSPARK-Therapist-Language-Pathologist-Everyone/dp/B07GKMPP9Z?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MYOSPARK-Therapist-Language-Pathologist-Everyone/dp/B07GKMPP9Z?ie=UTF8&tag=giftable02-20)
 
-### [23\. SLP Coffee Mug](https://www.amazon.com/Pathology-Therapists-Difference-Language-Graduation/dp/B07V1W97F9?ie=UTF8&tag=avadalove-20)
+### [23\. SLP Coffee Mug](https://www.amazon.com/Pathology-Therapists-Difference-Language-Graduation/dp/B07V1W97F9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pathology-Therapists-Difference-Language-Graduation/dp/B07V1W97F9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pathology-Therapists-Difference-Language-Graduation/dp/B07V1W97F9?ie=UTF8&tag=giftable02-20)
 
 This is an ideal gift for anyone who loves to drink. This unique, funny, wine stemless goblets are decorated with care in the USA to the highest standard to provide satisfaction for years to come.
 
@@ -419,11 +419,11 @@ It is decorated with metallic silver ink, and its production has undergone stric
 
 ✔️ Inspiring quote, making it a motivational keepsake
 
-[Buy from Amazon](https://www.amazon.com/Pathology-Therapists-Difference-Language-Graduation/dp/B07V1W97F9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pathology-Therapists-Difference-Language-Graduation/dp/B07V1W97F9?ie=UTF8&tag=giftable02-20)
 
-### [24\. Bad Bananas Speech](https://www.amazon.com/dp/B095C8594G?ie=UTF8&tag=avadalove-20)
+### [24\. Bad Bananas Speech](https://www.amazon.com/dp/B095C8594G?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B095C8594G?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B095C8594G?ie=UTF8&tag=giftable02-20)
 
 This is an ideal gift for anyone who loves to drink. This unique, funny, wine stemless goblets are decorated with care in the USA to the highest standard to provide satisfaction for years to come.
 
@@ -437,11 +437,11 @@ It is an excellent funny gag gift for that hard-to-buy-for SLP family member, fr
 
 ✔️ Eye-catching design, a conversation starter for professionals
 
-[Buy from Amazon](https://www.amazon.com/dp/B095C8594G?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B095C8594G?ie=UTF8&tag=giftable02-20)
 
-### [25\. Pathologist Tumbler](https://www.amazon.com/Language-Pathologist-Tumbler-Engraved-Insulated/dp/B09C2M9BQZ/?ie=UTF8&tag=avadalove-20)
+### [25\. Pathologist Tumbler](https://www.amazon.com/Language-Pathologist-Tumbler-Engraved-Insulated/dp/B09C2M9BQZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Language-Pathologist-Tumbler-Engraved-Insulated/dp/B09C2M9BQZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Language-Pathologist-Tumbler-Engraved-Insulated/dp/B09C2M9BQZ/?ie=UTF8&tag=giftable02-20)
 
 Every tumbler is one-of-a-kind and was crafted just for you. This insulated stainless steel travel mug is the perfect gift for the coffee or tea lover in your life!
 
@@ -455,11 +455,11 @@ Each tumbler is made from a unique material, designed just for you, and personal
 
 ✔️ Durable stainless steel construction, built to last
 
-[Buy from Amazon](https://www.amazon.com/Language-Pathologist-Tumbler-Engraved-Insulated/dp/B09C2M9BQZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Language-Pathologist-Tumbler-Engraved-Insulated/dp/B09C2M9BQZ/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Ruled Notebook](https://www.amazon.com/Speech-Therapy-Love-Notebook-Organizer/dp/1099985331?ie=UTF8&tag=avadalove-20)
+### [26\. Ruled Notebook](https://www.amazon.com/Speech-Therapy-Love-Notebook-Organizer/dp/1099985331?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Speech-Therapy-Love-Notebook-Organizer/dp/1099985331?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Speech-Therapy-Love-Notebook-Organizer/dp/1099985331?ie=UTF8&tag=giftable02-20)
 
 The best diary/daily planner for you will depend on what you need your journal for. This versatile journal is the perfect fit.
 
@@ -473,11 +473,11 @@ If you are looking for a diary or daily planner this versatile journal is the pe
 
 ✔️ Functional layout, ideal for note-taking and planning sessions
 
-[Buy from Amazon](https://www.amazon.com/Speech-Therapy-Love-Notebook-Organizer/dp/1099985331?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Speech-Therapy-Love-Notebook-Organizer/dp/1099985331?ie=UTF8&tag=giftable02-20)
 
-### [27\. Ruled Notebook](https://www.amazon.com/Ruled-Notebook-Journal-Speech-Language-Appreciation/dp/B093CD5ZTZ?ie=UTF8&tag=avadalove-20)
+### [27\. Ruled Notebook](https://www.amazon.com/Ruled-Notebook-Journal-Speech-Language-Appreciation/dp/B093CD5ZTZ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ruled-Notebook-Journal-Speech-Language-Appreciation/dp/B093CD5ZTZ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ruled-Notebook-Journal-Speech-Language-Appreciation/dp/B093CD5ZTZ?ie=UTF8&tag=giftable02-20)
 
 Speech Therapist appreciation is an important part of being a speech therapist! With this notebook, you can remember just how much hard work therapists do on a day-to-day basis.
 
@@ -491,11 +491,11 @@ The Ruled Notebook Journal goes beyond sentimentality, boasting practical featur
 
 ✔️ Compact size, ideal for on-the-go note-taking
 
-[Buy from Amazon](https://www.amazon.com/Ruled-Notebook-Journal-Speech-Language-Appreciation/dp/B093CD5ZTZ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ruled-Notebook-Journal-Speech-Language-Appreciation/dp/B093CD5ZTZ?ie=UTF8&tag=giftable02-20)
 
-### [28\. Pathologist Keychain](https://www.amazon.com/Kivosliviz-Therapist-Language-Pathologist-Keychain/dp/B08LC9P818/?ie=UTF8&tag=avadalove-20)
+### [28\. Pathologist Keychain](https://www.amazon.com/Kivosliviz-Therapist-Language-Pathologist-Keychain/dp/B08LC9P818/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kivosliviz-Therapist-Language-Pathologist-Keychain/dp/B08LC9P818/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kivosliviz-Therapist-Language-Pathologist-Keychain/dp/B08LC9P818/?ie=UTF8&tag=giftable02-20)
 
 This gift says it all! Just say one word at a time. With this engraved speech therapy appreciation gift, they'll never forget how much they appreciate your hard work in helping them speak and understand again.
 
@@ -509,11 +509,11 @@ Its compact size makes it ideal for everyday use, easily fitting on keyrings or 
 
 ✔️ Premium stainless steel, durable and elegant
 
-[Buy from Amazon](https://www.amazon.com/Kivosliviz-Therapist-Language-Pathologist-Keychain/dp/B08LC9P818/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kivosliviz-Therapist-Language-Pathologist-Keychain/dp/B08LC9P818/?ie=UTF8&tag=giftable02-20)
 
-### [29\. 6×8 Wood Sign](https://www.amazon.com/JennyGems-Therapist-Everyone-Deserves-American/dp/B08SRC9H2C/?ie=UTF8&tag=avadalove-20)
+### [29\. 6×8 Wood Sign](https://www.amazon.com/JennyGems-Therapist-Everyone-Deserves-American/dp/B08SRC9H2C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JennyGems-Therapist-Everyone-Deserves-American/dp/B08SRC9H2C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JennyGems-Therapist-Everyone-Deserves-American/dp/B08SRC9H2C/?ie=UTF8&tag=giftable02-20)
 
 This sign with the meaningful saying and heartwarming quote about Speech therapists will make a thoughtful gift for Speech Therapists.
 
@@ -527,11 +527,11 @@ The JennyGems Speech Therapist Sign combines emotional significance with practic
 
 ✔️ Versatile size, suitable for various display options
 
-[Buy from Amazon](https://www.amazon.com/JennyGems-Therapist-Everyone-Deserves-American/dp/B08SRC9H2C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JennyGems-Therapist-Everyone-Deserves-American/dp/B08SRC9H2C/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Pathologist Stickers](https://www.amazon.com/Speech-Language-Pathologist-Stickers-Sticker/dp/B09N71RDXH?ie=UTF8&tag=avadalove-20)
+### [30\. Pathologist Stickers](https://www.amazon.com/Speech-Language-Pathologist-Stickers-Sticker/dp/B09N71RDXH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Speech-Language-Pathologist-Stickers-Sticker/dp/B09N71RDXH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Speech-Language-Pathologist-Stickers-Sticker/dp/B09N71RDXH?ie=UTF8&tag=giftable02-20)
 
 Elevate your appreciation for speech therapists with the Speech Language Pathologist Stickers - a delightful gift that adds a touch of charm and inspiration.
 
@@ -545,7 +545,7 @@ Stickers are very popular when identifying objects or animals with words or idea
 
 ✔️ Sticker size: 2 x 2 inches, perfect for various uses
 
-[Buy from Amazon](https://www.amazon.com/Speech-Language-Pathologist-Stickers-Sticker/dp/B09N71RDXH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Speech-Language-Pathologist-Stickers-Sticker/dp/B09N71RDXH?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Therapist Gift Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/947323144/speech-therapist-gift-gift-for-speech)
 
@@ -565,9 +565,9 @@ With a pendant size of 0.8 inches, it boasts the perfect balance of delicacy and
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/947323144/speech-therapist-gift-gift-for-speech)
 
-### [32\. A Voice Bangle Bracelet](https://www.amazon.com/Therapist-Everybody-Deserves-Bracelet-Pathologist/dp/B089Y2N915/?ie=UTF8&tag=avadalove-20)
+### [32\. A Voice Bangle Bracelet](https://www.amazon.com/Therapist-Everybody-Deserves-Bracelet-Pathologist/dp/B089Y2N915/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Therapist-Everybody-Deserves-Bracelet-Pathologist/dp/B089Y2N915/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Therapist-Everybody-Deserves-Bracelet-Pathologist/dp/B089Y2N915/?ie=UTF8&tag=giftable02-20)
 
 This is a great bracelet for women who work with children and adults who have cognitive and communication challenges. Spirometric data analysis--the future.
 
@@ -581,7 +581,7 @@ This item is a unique gift to show appreciation to a speech therapist, occupatio
 
 ✔️ Thoughtful gift, expressing admiration and gratitude
 
-[Buy from Amazon](https://www.amazon.com/Therapist-Everybody-Deserves-Bracelet-Pathologist/dp/B089Y2N915/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Therapist-Everybody-Deserves-Bracelet-Pathologist/dp/B089Y2N915/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Custom Speech Therapy Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1434318778/custom-speech-therapy-mug-personalized)
 

@@ -747,9 +747,9 @@ Sizing is appropriate for all ages and tasteful for both men and women so don’
 
 [Buy from Loveable](https://shop.loveable.ai/products/a-wish-for-you-on-your-birthday-best-birthday-gifts-idea-for-him-206hnttje311?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-birthday-gifts-for-him-that-are-special)
 
-### [41\. Pocket Knife](https://www.amazon.com/MT423-Christmas-Groomsmen-Personalized-Anniversary/dp/B01EXCASGG?ie=UTF8&tag=avadalove-20)
+### [41\. Pocket Knife](https://www.amazon.com/MT423-Christmas-Groomsmen-Personalized-Anniversary/dp/B01EXCASGG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MT423-Christmas-Groomsmen-Personalized-Anniversary/dp/B01EXCASGG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MT423-Christmas-Groomsmen-Personalized-Anniversary/dp/B01EXCASGG?ie=UTF8&tag=giftable02-20)
 
 This elegant pocket watch is not only a practical timepiece but also a meaningful keepsake that celebrates cherished moments.
 
@@ -763,11 +763,11 @@ Measuring at approximately 1.77 inches in diameter, this pocket watch is crafted
 
 ✔️ Perfect gift for groomsmen and special occasions
 
-[Buy from Amazon](https://www.amazon.com/MT423-Christmas-Groomsmen-Personalized-Anniversary/dp/B01EXCASGG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MT423-Christmas-Groomsmen-Personalized-Anniversary/dp/B01EXCASGG?ie=UTF8&tag=giftable02-20)
 
-### [42\. Boxed Desk Compass](https://www.amazon.com/Stanley-London-Personalized-Graduation-Anniversary/dp/B08NCMY98C/?ie=UTF8&tag=avadalove-20)
+### [42\. Boxed Desk Compass](https://www.amazon.com/Stanley-London-Personalized-Graduation-Anniversary/dp/B08NCMY98C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stanley-London-Personalized-Graduation-Anniversary/dp/B08NCMY98C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stanley-London-Personalized-Graduation-Anniversary/dp/B08NCMY98C/?ie=UTF8&tag=giftable02-20)
 
 Are you searching for a unique and meaningful gift that embodies adventure and exploration? Look no further than the Boxed Desk Compass.
 
@@ -783,7 +783,7 @@ This beautifully crafted compass not only serves as a functional navigation tool
 
 ✔️ Comes with a polished wooden box
 
-[Buy from Amazon](https://www.amazon.com/Stanley-London-Personalized-Graduation-Anniversary/dp/B08NCMY98C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stanley-London-Personalized-Graduation-Anniversary/dp/B08NCMY98C/?ie=UTF8&tag=giftable02-20)
 
 ### [43\. Anchor Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/760095589/personalised-gift-for-men-mugs-for-him)
 
@@ -1039,9 +1039,9 @@ This leather wallet is not only a practical accessory but also a cherished keeps
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1025559267/handwriting-wallet-leather-wallet-for)
 
-### [57\. Docking Station](https://www.amazon.com/Personalized-Docking-Charging-Organizer-Engraved/dp/B072F3LLGJ/?ie=UTF8&tag=avadalove-20)
+### [57\. Docking Station](https://www.amazon.com/Personalized-Docking-Charging-Organizer-Engraved/dp/B072F3LLGJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Docking-Charging-Organizer-Engraved/dp/B072F3LLGJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Docking-Charging-Organizer-Engraved/dp/B072F3LLGJ/?ie=UTF8&tag=giftable02-20)
 
 Keep all your daily items organized in one place. Use this Docking Station for keeping all your daily items organized and easy to find.
 
@@ -1055,11 +1055,11 @@ It was designed to keep your smartphone, your tablet, keys, watch, glasses, wall
 
 ✔️ Eliminates cable clutter
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Docking-Charging-Organizer-Engraved/dp/B072F3LLGJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Docking-Charging-Organizer-Engraved/dp/B072F3LLGJ/?ie=UTF8&tag=giftable02-20)
 
-### [58\. Stocking Stuffer](https://www.amazon.com/Boyfriend-Personalized-Christmas-Stocking-Multitool/dp/B07XQZ6QWS?ie=UTF8&tag=avadalove-20)
+### [58\. Stocking Stuffer](https://www.amazon.com/Boyfriend-Personalized-Christmas-Stocking-Multitool/dp/B07XQZ6QWS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Boyfriend-Personalized-Christmas-Stocking-Multitool/dp/B07XQZ6QWS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Boyfriend-Personalized-Christmas-Stocking-Multitool/dp/B07XQZ6QWS?ie=UTF8&tag=giftable02-20)
 
 If you're going to carry around a multi-tool, you might as well go all-out. This Stocking Stuffer can do it all!
 
@@ -1073,11 +1073,11 @@ With this item, you'll have the necessary tools for everything from digging, cut
 
 ✔️ Personalized and thoughtful element
 
-[Buy from Amazon](https://www.amazon.com/Boyfriend-Personalized-Christmas-Stocking-Multitool/dp/B07XQZ6QWS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Boyfriend-Personalized-Christmas-Stocking-Multitool/dp/B07XQZ6QWS?ie=UTF8&tag=giftable02-20)
 
-### [59\. Tungsten Rings](https://www.amazon.com/LerchPhi-Tungsten-Polished-Bevelled-Personalized/dp/B07ZSYQYZN?ie=UTF8&tag=avadalove-20)
+### [59\. Tungsten Rings](https://www.amazon.com/LerchPhi-Tungsten-Polished-Bevelled-Personalized/dp/B07ZSYQYZN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LerchPhi-Tungsten-Polished-Bevelled-Personalized/dp/B07ZSYQYZN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LerchPhi-Tungsten-Polished-Bevelled-Personalized/dp/B07ZSYQYZN?ie=UTF8&tag=giftable02-20)
 
 Looking for a stylish and durable ring that stands out? The Tungsten Rings is a great choice.
 
@@ -1091,11 +1091,11 @@ Measuring 8mm in width, this ring is comfortable to wear and has a substantial p
 
 ✔️ Comfortable fit and available in various sizes
 
-[Buy from Amazon](https://www.amazon.com/LerchPhi-Tungsten-Polished-Bevelled-Personalized/dp/B07ZSYQYZN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LerchPhi-Tungsten-Polished-Bevelled-Personalized/dp/B07ZSYQYZN?ie=UTF8&tag=giftable02-20)
 
-### [60\. Conair Neck Rest](https://www.amazon.com/Conair-Neck-Vibration-Shiatsu-Massage/dp/B08QP8D5SP?ie=UTF8&tag=avadalove-20)
+### [60\. Conair Neck Rest](https://www.amazon.com/Conair-Neck-Vibration-Shiatsu-Massage/dp/B08QP8D5SP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Conair-Neck-Vibration-Shiatsu-Massage/dp/B08QP8D5SP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Conair-Neck-Vibration-Shiatsu-Massage/dp/B08QP8D5SP?ie=UTF8&tag=giftable02-20)
 
 Relax and rebalance with the Conair Neck Rest with vibration Shiatsu massage.
 
@@ -1109,11 +1109,11 @@ With three Shiatsu nodes that offer different levels of heat massage, the Conair
 
 ✔️ Compact and portable
 
-[Buy from Amazon](https://www.amazon.com/Conair-Neck-Vibration-Shiatsu-Massage/dp/B08QP8D5SP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Conair-Neck-Vibration-Shiatsu-Massage/dp/B08QP8D5SP?ie=UTF8&tag=giftable02-20)
 
-### [61\. Lunch Cooler Bag](https://www.amazon.com/Carhartt-Deluxe-Compartment-Insulated-Cooler/dp/B06XFY5NZW?ie=UTF8&tag=avadalove-20)
+### [61\. Lunch Cooler Bag](https://www.amazon.com/Carhartt-Deluxe-Compartment-Insulated-Cooler/dp/B06XFY5NZW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Carhartt-Deluxe-Compartment-Insulated-Cooler/dp/B06XFY5NZW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Carhartt-Deluxe-Compartment-Insulated-Cooler/dp/B06XFY5NZW?ie=UTF8&tag=giftable02-20)
 
 The Lunch Cooler Bag is the perfect solution. With its rugged construction and ample storage space, this cooler is designed to keep your food and beverages cold for extended periods.
 
@@ -1127,11 +1127,11 @@ It features a spacious main compartment that can hold up to 24 cans, providing p
 
 ✔️ Excellent insulation
 
-[Buy from Amazon](https://www.amazon.com/Carhartt-Deluxe-Compartment-Insulated-Cooler/dp/B06XFY5NZW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Carhartt-Deluxe-Compartment-Insulated-Cooler/dp/B06XFY5NZW?ie=UTF8&tag=giftable02-20)
 
-### [62\. Engraved Cutting Board](https://www.amazon.com/Personalized-Engraved-Anniversary-Housewarming-Corporate/dp/B06XWPB49T?ie=UTF8&tag=avadalove-20)
+### [62\. Engraved Cutting Board](https://www.amazon.com/Personalized-Engraved-Anniversary-Housewarming-Corporate/dp/B06XWPB49T?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Engraved-Anniversary-Housewarming-Corporate/dp/B06XWPB49T?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Engraved-Anniversary-Housewarming-Corporate/dp/B06XWPB49T?ie=UTF8&tag=giftable02-20)
 
 Are you searching for a unique and personalized gift for a special occasion? Look no further than the Engraved Cutting Board.
 
@@ -1145,7 +1145,7 @@ The Personalized Engraved Cutting Board is made of high-quality wood and measure
 
 ✔️ Durable and long-lasting
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Engraved-Anniversary-Housewarming-Corporate/dp/B06XWPB49T?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Engraved-Anniversary-Housewarming-Corporate/dp/B06XWPB49T?ie=UTF8&tag=giftable02-20)
 
 ### [63\. Love You Canvas](https://shop.loveable.ai/products/to-my-husband-i-love-you-forever-and-always-canvas-poster?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-birthday-gifts-for-him-that-are-special)
 
@@ -1167,9 +1167,9 @@ You have 3 options for the frame that is listed down in the menu option. Besides
 
 [Buy from Loveable](https://shop.loveable.ai/products/to-my-husband-i-love-you-forever-and-always-canvas-poster?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-birthday-gifts-for-him-that-are-special)
 
-### [64\. Golf Polo](https://www.amazon.com/Under-Armour-Midnight-Graphite-Medium/dp/B01GH5JNRW/?ie=UTF8&tag=avadalove-20)
+### [64\. Golf Polo](https://www.amazon.com/Under-Armour-Midnight-Graphite-Medium/dp/B01GH5JNRW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Under-Armour-Midnight-Graphite-Medium/dp/B01GH5JNRW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Under-Armour-Midnight-Graphite-Medium/dp/B01GH5JNRW/?ie=UTF8&tag=giftable02-20)
 
 This sleek and functional jacket offers more than meets the eye, providing comfort, performance, and style for your active lifestyle.
 
@@ -1183,11 +1183,11 @@ The jacket is made from high-quality materials and has a modern, slim fit. It fe
 
 ✔️ Sleek and stylish
 
-[Buy from Amazon](https://www.amazon.com/Under-Armour-Midnight-Graphite-Medium/dp/B01GH5JNRW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Under-Armour-Midnight-Graphite-Medium/dp/B01GH5JNRW/?ie=UTF8&tag=giftable02-20)
 
-### [65\. Sundial Compass](https://www.amazon.com/Personalized-Engraving-occasions-Graduation-anniversary/dp/B07KY1V2M5/?ie=UTF8&tag=avadalove-20)
+### [65\. Sundial Compass](https://www.amazon.com/Personalized-Engraving-occasions-Graduation-anniversary/dp/B07KY1V2M5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Engraving-occasions-Graduation-anniversary/dp/B07KY1V2M5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Engraving-occasions-Graduation-anniversary/dp/B07KY1V2M5/?ie=UTF8&tag=giftable02-20)
 
 Introducing Sundial Compass - Handmade brass compass with Sundial clock.
 
@@ -1205,11 +1205,11 @@ The size is 3 inches. It comes with a real leather box. It can be gifted to any 
 
 ✔️ Versatile for daily wear or formal occasions
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Engraving-occasions-Graduation-anniversary/dp/B07KY1V2M5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Engraving-occasions-Graduation-anniversary/dp/B07KY1V2M5/?ie=UTF8&tag=giftable02-20)
 
-### [66\. Casual Cuff Watch](https://www.amazon.com/Fossil-Quartz-Stainless-Leather-Casual/dp/B001SQLI9C/?ie=UTF8&tag=avadalove-20)
+### [66\. Casual Cuff Watch](https://www.amazon.com/Fossil-Quartz-Stainless-Leather-Casual/dp/B001SQLI9C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fossil-Quartz-Stainless-Leather-Casual/dp/B001SQLI9C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fossil-Quartz-Stainless-Leather-Casual/dp/B001SQLI9C/?ie=UTF8&tag=giftable02-20)
 
 The timeless appeal of a classic timepiece is evident in this Casual Cuff Watch, which sports a robust leather strap and clean dial that's both elegant and easy to read.
 
@@ -1223,11 +1223,11 @@ The Fossil Men's Nate Watch features a stainless steel case measuring 50mm in di
 
 ✔️ Chronograph function
 
-[Buy from Amazon](https://www.amazon.com/Fossil-Quartz-Stainless-Leather-Casual/dp/B001SQLI9C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fossil-Quartz-Stainless-Leather-Casual/dp/B001SQLI9C/?ie=UTF8&tag=giftable02-20)
 
-### [67\. Leather Bracelet](https://www.amazon.com/Personalized-Bracelet-Coordinate-Groomsmen-Graduation/dp/B07Q395L21?ie=UTF8&tag=avadalove-20)
+### [67\. Leather Bracelet](https://www.amazon.com/Personalized-Bracelet-Coordinate-Groomsmen-Graduation/dp/B07Q395L21?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Bracelet-Coordinate-Groomsmen-Graduation/dp/B07Q395L21?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Bracelet-Coordinate-Groomsmen-Graduation/dp/B07Q395L21?ie=UTF8&tag=giftable02-20)
 
 The Personalized Leather Bracelet is a stylish and meaningful accessory that allows you to customize it with the coordinates of a special location.
 
@@ -1241,11 +1241,11 @@ The Personalized Coordinate Bracelet features a sleek and minimalist design, mak
 
 ✔️ Versatile and minimalist design
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Bracelet-Coordinate-Groomsmen-Graduation/dp/B07Q395L21?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Bracelet-Coordinate-Groomsmen-Graduation/dp/B07Q395L21?ie=UTF8&tag=giftable02-20)
 
-### [68\. Personalized Heart Lock](https://www.amazon.com/INBLUE-Personalized-Engraving-Boyfriend-Girlfriend/dp/B095LJS1JG?ie=UTF8&tag=avadalove-20)
+### [68\. Personalized Heart Lock](https://www.amazon.com/INBLUE-Personalized-Engraving-Boyfriend-Girlfriend/dp/B095LJS1JG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/INBLUE-Personalized-Engraving-Boyfriend-Girlfriend/dp/B095LJS1JG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/INBLUE-Personalized-Engraving-Boyfriend-Girlfriend/dp/B095LJS1JG?ie=UTF8&tag=giftable02-20)
 
 Introducing a Personalized Heart Lock for a couple. Let your love mark a special place together with your lover.
 
@@ -1259,11 +1259,11 @@ An elegant lock with personal information. The padlock will be engraved with you
 
 ✔️ Stainless steel and resistant to tarnishing
 
-[Buy from Amazon](https://www.amazon.com/INBLUE-Personalized-Engraving-Boyfriend-Girlfriend/dp/B095LJS1JG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/INBLUE-Personalized-Engraving-Boyfriend-Girlfriend/dp/B095LJS1JG?ie=UTF8&tag=giftable02-20)
 
-### [69\. Engraved Spoon](https://www.amazon.com/Coffee-Together-Forever-Stainless-Espresso/dp/B01BDQ3L50?ie=UTF8&tag=avadalove-20)
+### [69\. Engraved Spoon](https://www.amazon.com/Coffee-Together-Forever-Stainless-Espresso/dp/B01BDQ3L50?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coffee-Together-Forever-Stainless-Espresso/dp/B01BDQ3L50?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coffee-Together-Forever-Stainless-Espresso/dp/B01BDQ3L50?ie=UTF8&tag=giftable02-20)
 
 If you're looking for the perfect gift for a coffee lover, get this Stainless-Steel Engraved Spoon.
 
@@ -1277,7 +1277,7 @@ Each spoon comes with a beautiful blue gift box and personalization (up to 8 let
 
 ✔️ Versatile use for other purposes
 
-[Buy from Amazon](https://www.amazon.com/Coffee-Together-Forever-Stainless-Espresso/dp/B01BDQ3L50?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coffee-Together-Forever-Stainless-Espresso/dp/B01BDQ3L50?ie=UTF8&tag=giftable02-20)
 
 ### [70\. Custom Husband Pendant](https://shop.loveable.ai/products/youre-the-best-thing-that-ever-happened-to-me-wedding-gift-for-husband?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-birthday-gifts-for-him-that-are-special)
 

@@ -17,11 +17,6 @@ In this article, we've compiled a selection of exceptional gift baskets for new 
 
 So, if you're ready to celebrate and support new moms on their journey into motherhood, join us as we dive into the world of gift baskets. Let's explore a realm of thoughtfulness and care that will make the transition into motherhood even more beautiful. Get ready to create lasting memories and give new moms the essentials and comforts they deserve. Let's embark on a journey of gift-giving and celebrate the amazing moms who bring love and joy to the world.
 
-**_Related:_**
-
-- Best Postpartum **[Gifts for New Moms After Birth](/gifts-new-moms-after-birth/)**
-- Best **[Birthday Gifts For New Moms](/birthday-gifts-new-moms/)**
-
 ### [1\. Postpartum Care Gift Box](https://www.etsy.com/listing/731547516/mega-lux-postpartum-care-gift-box-new)
 
 [](https://www.etsy.com/listing/731547516/mega-lux-postpartum-care-gift-box-new)
@@ -156,9 +151,9 @@ It's the ideal gift for anyone who deserves some real pampering and will leave h
 
 [Buy from Esty](https://www.etsy.com/listing/1018167373/tired-as-a-mother-new-mom-gift-pregnancy)
 
-### [9\. Mug Set with Onesie and Baby Socks](https://www.amazon.com/Pregnancy-Gifts-First-Time-Moms/dp/B08P164ZN9/?ie=UTF8&tag=avadalove-20)
+### [9\. Mug Set with Onesie and Baby Socks](https://www.amazon.com/Pregnancy-Gifts-First-Time-Moms/dp/B08P164ZN9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pregnancy-Gifts-First-Time-Moms/dp/B08P164ZN9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pregnancy-Gifts-First-Time-Moms/dp/B08P164ZN9/?ie=UTF8&tag=giftable02-20)
 
 There's nothing quite like the anticipation of welcoming a new family member! This thoughtful and compassionate new mom gift will delight the new and expecting parents. It includes a congrats letter, a mom and dad est 2022 14 oz mugs set, a 0-3 month unisex onesie, two pairs of 0-6 month unisex socks, and a 0-3 month unisex onesie.
 
@@ -172,7 +167,7 @@ Great for first-time parents and those expecting their second or third child. Be
 
 ✔️ Versatile and functional with a matching mug set.
 
-[Buy from Amazon](https://www.amazon.com/Pregnancy-Gifts-First-Time-Moms/dp/B08P164ZN9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pregnancy-Gifts-First-Time-Moms/dp/B08P164ZN9/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Postpartum Recovery Gift](https://www.etsy.com/listing/601167876/postpartum-care-package-postpartum-gift)
 
@@ -586,9 +581,9 @@ These sets come in a gift box with crinkle paper and a customizable greeting car
 
 [Buy from Esty](https://www.etsy.com/listing/727027531/new-mom-gift-box-new-mom-care-package)
 
-### [33\. Lavender Scented Bath Spa Gift Set](https://www.amazon.com/Gifts-Women-Lavender-Essential-Christmas/dp/B07CKTJF17/?ie=UTF8&tag=avadalove-20)
+### [33\. Lavender Scented Bath Spa Gift Set](https://www.amazon.com/Gifts-Women-Lavender-Essential-Christmas/dp/B07CKTJF17/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gifts-Women-Lavender-Essential-Christmas/dp/B07CKTJF17/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gifts-Women-Lavender-Essential-Christmas/dp/B07CKTJF17/?ie=UTF8&tag=giftable02-20)
 
 Natural components like Sunflower Seed Oil and Vitamin E in the Body & Earth spa gift basket assist to hydrate and soften rough skin. This multifunctional spa gift basket is made with care and attention to detail while remaining environmentally safe.
 
@@ -602,11 +597,11 @@ It's the ideal size for making everyone feel pampered and cherished. It can be u
 
 ✔️ Promotes relaxation and stress relief through aromatherapy.
 
-[Buy from Amazon](https://www.amazon.com/Gifts-Women-Lavender-Essential-Christmas/dp/B07CKTJF17/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gifts-Women-Lavender-Essential-Christmas/dp/B07CKTJF17/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Shower Steamers Aromatherapy](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-k/dp/B07P8395DZ/?ie=UTF8&tag=avadalove-20)
+### [34\. Shower Steamers Aromatherapy](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-k/dp/B07P8395DZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-k/dp/B07P8395DZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-k/dp/B07P8395DZ/?ie=UTF8&tag=giftable02-20)
 
 It has been well received by thousands of ladies who have melted into our Shower Steamer Aromatherapy Immune Boost Pack. You can give your loved one who is going to be a new mom the actual benefits of aromatherapy with pure essential oils and nature-identical smell.
 
@@ -620,7 +615,7 @@ It has been well received by thousands of ladies who have melted into our Shower
 
 ✔️ Promotes relaxation and well-being.
 
-[Buy from Amazon](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-k/dp/B07P8395DZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cleverfy-Shower-Bombs-Aromatherapy-k/dp/B07P8395DZ/?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Pregnancy Care Package](https://www.etsy.com/listing/230115342/new-mom-gift-basket-pregnancy-gift-mom)
 

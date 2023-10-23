@@ -17,9 +17,9 @@ With great attention to detail, the Lord of the Rings fantasy franchise is one o
 
 There is a lot to discover and understand about the realm of Middle-earth, and these gifts help to further illustrate the themes of hope, heroism, fate, and despair that are at the series' center. This gift suggestion includes items for Tolkienists and Ringers alike, ranging from in-depth analyses of the Elvish language to limited-edition books and games. You must buy your JRR Tolkien-loving pal something exceptional from this list of priceless Lord of the Rings gifts. You'll find something here that your present recipient will treasure this year, whether they enjoy the fellowship, potatoes, or the lingering shadows of darkness.
 
-### [1\. Deluxe Pocket Boxed Set Hardcover](https://www.amazon.com/Hobbit-Lord-Rings-Deluxe-Pocket/dp/0544445783/?ie=UTF8&tag=avadalove-20)
+### [1\. Deluxe Pocket Boxed Set Hardcover](https://www.amazon.com/Hobbit-Lord-Rings-Deluxe-Pocket/dp/0544445783/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hobbit-Lord-Rings-Deluxe-Pocket/dp/0544445783/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hobbit-Lord-Rings-Deluxe-Pocket/dp/0544445783/?ie=UTF8&tag=giftable02-20)
 
 The Hobbit and The Lord of the Rings' three volumes are included in this stunning four-volume, pocket-sized boxed set by Tolkien (The Fellowship of the Ring, The Two Towers, and The Return of the King).
 
@@ -33,7 +33,7 @@ Each book in the set has a leatherette cover with a stamped title and is compact
 
 ✔️ There are not many better options for the best Lord of the Rings gifts
 
-[Buy from Amazon](https://www.amazon.com/Hobbit-Lord-Rings-Deluxe-Pocket/dp/0544445783/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hobbit-Lord-Rings-Deluxe-Pocket/dp/0544445783/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Tall for a Hobbit Shirt](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1282817165/tall-for-a-hobbit-shirt-lotr-saying)
 
@@ -53,9 +53,9 @@ The shirt is made of soft cotton material, making it comfortable to wear. The pr
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1282817165/tall-for-a-hobbit-shirt-lotr-saying)
 
-### [3\. Music Box The Lord of The Rings](https://www.amazon.com/Sooharic-Music-Box-Lord-Rings/dp/B07R9YDYXQ/?ie=UTF8&tag=avadalove-20)
+### [3\. Music Box The Lord of The Rings](https://www.amazon.com/Sooharic-Music-Box-Lord-Rings/dp/B07R9YDYXQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sooharic-Music-Box-Lord-Rings/dp/B07R9YDYXQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sooharic-Music-Box-Lord-Rings/dp/B07R9YDYXQ/?ie=UTF8&tag=giftable02-20)
 
 The Lord of the Rings is one of the most popular and beloved fantasy stories of all time. So it's no surprise that Lord of the Rings gifts are always in demand.
 
@@ -69,11 +69,11 @@ One of the most popular Lord of the Rings gifts is the music box. The music box 
 
 ✔️ It's sure to be cherished for years to come
 
-[Buy from Amazon](https://www.amazon.com/Sooharic-Music-Box-Lord-Rings/dp/B07R9YDYXQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sooharic-Music-Box-Lord-Rings/dp/B07R9YDYXQ/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Tree Of Gondor Stainless Steel Tumbler](https://www.amazon.com/Stainless-Tumbler-Insulated-Leakproof-Beverages/dp/B08WHPSGDS?th=1?ie=UTF8&tag=avadalove-20)
+### [4\. Tree Of Gondor Stainless Steel Tumbler](https://www.amazon.com/Stainless-Tumbler-Insulated-Leakproof-Beverages/dp/B08WHPSGDS?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Stainless-Tumbler-Insulated-Leakproof-Beverages/dp/B08WHPSGDS?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Stainless-Tumbler-Insulated-Leakproof-Beverages/dp/B08WHPSGDS?th=1?ie=UTF8&tag=giftable02-20)
 
 This 20-ounce, double-walled stainless steel tumbler with precision engineering keeps liquids hot or cold. It keeps your drinks cold for 12 hours and hot for up to 6 hours.
 
@@ -87,11 +87,11 @@ It is constructed from premium food grade 304 18/8 stainless steel and has a hig
 
 ✔️ Your commute to work or school
 
-[Buy from Amazon](https://www.amazon.com/Stainless-Tumbler-Insulated-Leakproof-Beverages/dp/B08WHPSGDS?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Stainless-Tumbler-Insulated-Leakproof-Beverages/dp/B08WHPSGDS?th=1?ie=UTF8&tag=giftable02-20)
 
-### [5\. Classic Middle Earth Map Poster](https://www.amazon.com/Classic-Middle-Poster-UnFramed-Vintage/dp/B09X7FB6RS/?ie=UTF8&tag=avadalove-20)
+### [5\. Classic Middle Earth Map Poster](https://www.amazon.com/Classic-Middle-Poster-UnFramed-Vintage/dp/B09X7FB6RS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Classic-Middle-Poster-UnFramed-Vintage/dp/B09X7FB6RS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Classic-Middle-Poster-UnFramed-Vintage/dp/B09X7FB6RS/?ie=UTF8&tag=giftable02-20)
 
 This LotR artwork poster is 14x20 inches (35x50 cm). You'll adore the thin kraft paper material and the vibrant colors. The ideal finishing touch for a Rings fan's bedroom.
 
@@ -105,11 +105,11 @@ This stunning Lord of the Rings decor will enhance the interior design of your h
 
 ✔️ Stylish poster
 
-[Buy from Amazon](https://www.amazon.com/Classic-Middle-Poster-UnFramed-Vintage/dp/B09X7FB6RS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Classic-Middle-Poster-UnFramed-Vintage/dp/B09X7FB6RS/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Engraved Wood Bottle Opener](https://www.amazon.com/MIDDLE-Engraved-Bottle-Inspired-Engraving/dp/B09T5P23JF/?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. Engraved Wood Bottle Opener](https://www.amazon.com/MIDDLE-Engraved-Bottle-Inspired-Engraving/dp/B09T5P23JF/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MIDDLE-Engraved-Bottle-Inspired-Engraving/dp/B09T5P23JF/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MIDDLE-Engraved-Bottle-Inspired-Engraving/dp/B09T5P23JF/?th=1?ie=UTF8&tag=giftable02-20)
 
 These exquisitely engraved, double-sided Lord of The Rings bottle openers fan art from Tolkien's Middle Earth adventures is an ideal present for any lover of well-known books and films.
 
@@ -123,11 +123,11 @@ These very special, sturdy, one-of-a-kind wood and metal bottle openers with ful
 
 ✔️ Epic fantasy memorabilia
 
-[Buy from Amazon](https://www.amazon.com/MIDDLE-Engraved-Bottle-Inspired-Engraving/dp/B09T5P23JF/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MIDDLE-Engraved-Bottle-Inspired-Engraving/dp/B09T5P23JF/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. The Lord of the Rings Illustrated Hardcover](https://www.amazon.com/Lord-Rings-Illustrated-J-R-R-Tolkien/dp/0358653037#customerReviews?ie=UTF8&tag=avadalove-20)
+### [7\. The Lord of the Rings Illustrated Hardcover](https://www.amazon.com/Lord-Rings-Illustrated-J-R-R-Tolkien/dp/0358653037#customerReviews?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lord-Rings-Illustrated-J-R-R-Tolkien/dp/0358653037#customerReviews?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lord-Rings-Illustrated-J-R-R-Tolkien/dp/0358653037#customerReviews?ie=UTF8&tag=giftable02-20)
 
 This one-volume, jacketed hardcover version includes thirty-color pictures, maps, and sketches created by Tolkien while he wrote this epic work. It also includes the entire text, entirely edited and reset, printed in red and black for the first time.
 
@@ -141,11 +141,11 @@ These contain the magnificent facsimiles of the Book of Mazarbul pages that Tolk
 
 ✔️ Wonderful gift for fan
 
-[Buy from Amazon](https://www.amazon.com/Lord-Rings-Illustrated-J-R-R-Tolkien/dp/0358653037#customerReviews?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lord-Rings-Illustrated-J-R-R-Tolkien/dp/0358653037#customerReviews?ie=UTF8&tag=giftable02-20)
 
-### [8\. No Admittance Except on Party Business Stained Sign](https://www.amazon.com/FQDIQI-Admittance-Business-Stained-Inspired/dp/B08BCS3SKB?ie=UTF8&tag=avadalove-20)
+### [8\. No Admittance Except on Party Business Stained Sign](https://www.amazon.com/FQDIQI-Admittance-Business-Stained-Inspired/dp/B08BCS3SKB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FQDIQI-Admittance-Business-Stained-Inspired/dp/B08BCS3SKB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FQDIQI-Admittance-Business-Stained-Inspired/dp/B08BCS3SKB?ie=UTF8&tag=giftable02-20)
 
 "No Admittance Except on Party Business" is a stained glass sign that would make the perfect gift for any Lord of the Rings fan. This sign measures 5 inches x 12 inches and is made of high-quality stained glass.
 
@@ -159,11 +159,11 @@ The sign has a Lord of the Rings theme and reads "No Admittance Except on Party 
 
 ✔️ It would make a great addition to any home decor
 
-[Buy from Amazon](https://www.amazon.com/FQDIQI-Admittance-Business-Stained-Inspired/dp/B08BCS3SKB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FQDIQI-Admittance-Business-Stained-Inspired/dp/B08BCS3SKB?ie=UTF8&tag=giftable02-20)
 
-### [9\. Lord of The Rings Saruman Collectible Duck Figurine](https://www.amazon.com/TUBBZ-Rings-Saruman-Collectible-Figurine/dp/B0914D1VSR?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Lord of The Rings Saruman Collectible Duck Figurine](https://www.amazon.com/TUBBZ-Rings-Saruman-Collectible-Figurine/dp/B0914D1VSR?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TUBBZ-Rings-Saruman-Collectible-Figurine/dp/B0914D1VSR?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TUBBZ-Rings-Saruman-Collectible-Figurine/dp/B0914D1VSR?th=1?ie=UTF8&tag=giftable02-20)
 
 Saruman the white abandons his objective and joins forces with Sauron's dominion after being seduced by the Dark Lord's tools, such as the One Ring. He appears to have become a quacking duck as a result of all his research into dark magic.
 
@@ -177,11 +177,11 @@ A very collectible series of pop culture personalities in duck shape, the Tubbz 
 
 ✔️ Immersive movie merchandise
 
-[Buy from Amazon](https://www.amazon.com/TUBBZ-Rings-Saruman-Collectible-Figurine/dp/B0914D1VSR?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TUBBZ-Rings-Saruman-Collectible-Figurine/dp/B0914D1VSR?th=1?ie=UTF8&tag=giftable02-20)
 
-### [10\. Map of Middle Earth Engraved Pint Glass](https://www.amazon.com/MIDDLE-EARTH-Rings-Inspired-Engraved/dp/B08W7W9HWY/?th=1?ie=UTF8&tag=avadalove-20)
+### [10\. Map of Middle Earth Engraved Pint Glass](https://www.amazon.com/MIDDLE-EARTH-Rings-Inspired-Engraved/dp/B08W7W9HWY/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MIDDLE-EARTH-Rings-Inspired-Engraved/dp/B08W7W9HWY/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MIDDLE-EARTH-Rings-Inspired-Engraved/dp/B08W7W9HWY/?th=1?ie=UTF8&tag=giftable02-20)
 
 These exquisitely engraved Lord of The Rings pint glasses feature fan art from Tolkien's Middle Earth adventures and make the ideal present for any lover of well-known books and films!
 
@@ -195,11 +195,11 @@ The most adored characters from Middle Earth, including Legolas, the One Ring of
 
 ✔️ Magical gift choices
 
-[Buy from Amazon](https://www.amazon.com/MIDDLE-EARTH-Rings-Inspired-Engraved/dp/B08W7W9HWY/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MIDDLE-EARTH-Rings-Inspired-Engraved/dp/B08W7W9HWY/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [11\. The Lord of The Rings Edition Board Game](https://www.amazon.com/Hasbro-Games-Monopoly-Fellowship-Exclusive/dp/B08K1BRGHC/?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. The Lord of The Rings Edition Board Game](https://www.amazon.com/Hasbro-Games-Monopoly-Fellowship-Exclusive/dp/B08K1BRGHC/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hasbro-Games-Monopoly-Fellowship-Exclusive/dp/B08K1BRGHC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hasbro-Games-Monopoly-Fellowship-Exclusive/dp/B08K1BRGHC/?th=1?ie=UTF8&tag=giftable02-20)
 
 A Ring Tracker is moved by the player holding the ring down a path of circles on the gameboard in the direction of Mount Doom. If the ring is misplaced or lost, the tracker returns to the starting position.
 
@@ -213,11 +213,11 @@ For teenagers or family members who enjoy Lord of the Rings items, the Monopoly 
 
 ✔️ Mythical adventures celebrated
 
-[Buy from Amazon](https://www.amazon.com/Hasbro-Games-Monopoly-Fellowship-Exclusive/dp/B08K1BRGHC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hasbro-Games-Monopoly-Fellowship-Exclusive/dp/B08K1BRGHC/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [12\. The One Ring Key Chain](https://www.amazon.com/Lord-Rings-One-Ring-Chain/dp/B00AI8HMQO/?ie=UTF8&tag=avadalove-20)
+### [12\. The One Ring Key Chain](https://www.amazon.com/Lord-Rings-One-Ring-Chain/dp/B00AI8HMQO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lord-Rings-One-Ring-Chain/dp/B00AI8HMQO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lord-Rings-One-Ring-Chain/dp/B00AI8HMQO/?ie=UTF8&tag=giftable02-20)
 
 Any fan of the Lord of the Rings knows that the One Ring Key Chain is a powerful and coveted artifact. For those who want to keep a piece of that magic close at hand, this keychain is the perfect solution.
 
@@ -231,11 +231,11 @@ The Ring is crafted in die-cast metal and features intricate details that are su
 
 ✔️ A must-have for any Lord of the Rings fan
 
-[Buy from Amazon](https://www.amazon.com/Lord-Rings-One-Ring-Chain/dp/B00AI8HMQO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lord-Rings-One-Ring-Chain/dp/B00AI8HMQO/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Collectible Plated Pendant](https://www.amazon.com/L-Zone-Evenstar-Inspired-Collectible-Necklace/dp/B00G1BPIOU?ie=UTF8&tag=avadalove-20)
+### [13\. Collectible Plated Pendant](https://www.amazon.com/L-Zone-Evenstar-Inspired-Collectible-Necklace/dp/B00G1BPIOU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/L-Zone-Evenstar-Inspired-Collectible-Necklace/dp/B00G1BPIOU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/L-Zone-Evenstar-Inspired-Collectible-Necklace/dp/B00G1BPIOU?ie=UTF8&tag=giftable02-20)
 
 The Undying Lands of the West is where Arwen the Elven Princess, well known to her people as Evenstar due to her unrivaled beauty, will depart from Middle-earth. As this doom approaches, she falls in love with Aragorn, a mortal man, and is forced to make the agonizing decision of whether to leave Middle-Earth with her people or give up her immortality to remain with him.
 
@@ -249,11 +249,11 @@ Take a picture of the Evenstar's timeless beauty and this sterling silver piece,
 
 ✔️ Elvish language items
 
-[Buy from Amazon](https://www.amazon.com/L-Zone-Evenstar-Inspired-Collectible-Necklace/dp/B00G1BPIOU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/L-Zone-Evenstar-Inspired-Collectible-Necklace/dp/B00G1BPIOU?ie=UTF8&tag=giftable02-20)
 
-### [14\. Morphing Mugs](https://www.amazon.com/Setters-Fellowship-Activated-Morphing-Mugs/dp/B00X7KQW2U/?ie=UTF8&tag=avadalove-20)
+### [14\. Morphing Mugs](https://www.amazon.com/Setters-Fellowship-Activated-Morphing-Mugs/dp/B00X7KQW2U/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Setters-Fellowship-Activated-Morphing-Mugs/dp/B00X7KQW2U/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Setters-Fellowship-Activated-Morphing-Mugs/dp/B00X7KQW2U/?ie=UTF8&tag=giftable02-20)
 
 Nine friends decided to leave Rivendell's security, and their adventure is one of the most amazing tales ever recounted. Use this unique Morphing Mug, and bring a piece of the Fellowship home.
 
@@ -267,7 +267,7 @@ As hot drinks are added, this 11 oz. Morphing mug changes from black to white! W
 
 ✔️ Personalized style
 
-[Buy from Amazon](https://www.amazon.com/Setters-Fellowship-Activated-Morphing-Mugs/dp/B00X7KQW2U/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Setters-Fellowship-Activated-Morphing-Mugs/dp/B00X7KQW2U/?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Elvish Glasses](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/771584132/one-ring-elvish-glasses-lotr-gift-rings)
 
@@ -467,9 +467,9 @@ Using a specialized printing technology, the doormats are produced with an extra
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1270267036/lord-of-the-rings-outdoor-doormat-speak)
 
-### [26\. Hobbit Movie Cosmetic Bag](https://www.amazon.com/LEVLO-Cosmetic-Hobbit-Makeup-Zipper/dp/B09B368M23/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Hobbit Movie Cosmetic Bag](https://www.amazon.com/LEVLO-Cosmetic-Hobbit-Makeup-Zipper/dp/B09B368M23/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEVLO-Cosmetic-Hobbit-Makeup-Zipper/dp/B09B368M23/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEVLO-Cosmetic-Hobbit-Makeup-Zipper/dp/B09B368M23/?th=1?ie=UTF8&tag=giftable02-20)
 
 The bag is crafted from premium cotton canvas. It is comfortable to wear, excellent at resisting wear, and difficult to fuzz ball. The makeup bag dimensions are 23 x 17 x 9.05 inches. This 3D-printed cosmetic bag is resistant to fading.
 
@@ -483,11 +483,11 @@ The toiletry bag is a useful item that is used as a makeup bag, cosmetic purse, 
 
 ✔️ Mystical elven artifacts
 
-[Buy from Amazon](https://www.amazon.com/LEVLO-Cosmetic-Hobbit-Makeup-Zipper/dp/B09B368M23/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEVLO-Cosmetic-Hobbit-Makeup-Zipper/dp/B09B368M23/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Engraved Wooden Bookmark](https://www.amazon.com/J-R-R-Tolkien-Quote-B07JG8K387-Personalized/dp/B07DL1PKK9?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Engraved Wooden Bookmark](https://www.amazon.com/J-R-R-Tolkien-Quote-B07JG8K387-Personalized/dp/B07DL1PKK9?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/J-R-R-Tolkien-Quote-B07JG8K387-Personalized/dp/B07DL1PKK9?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/J-R-R-Tolkien-Quote-B07JG8K387-Personalized/dp/B07DL1PKK9?th=1?ie=UTF8&tag=giftable02-20)
 
 The bookmark was handcrafted in the United States by skilled woodworkers. Each wood bookmark is crafted to look and feel lovely, starting with the design, construction of the distinctive inlay strips, routing, rounding, and smoothing of the corners.
 
@@ -501,11 +501,11 @@ The timbers have all their natural colors and come from controlled and sustainab
 
 ✔️ Help you add even more personality to your kind present
 
-[Buy from Amazon](https://www.amazon.com/J-R-R-Tolkien-Quote-B07JG8K387-Personalized/dp/B07DL1PKK9?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/J-R-R-Tolkien-Quote-B07JG8K387-Personalized/dp/B07DL1PKK9?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\. The Prancing Pony and The Green Dragon Pub Signs Set](https://www.amazon.com/XYQ-Prancing-Dragon-Handmade-Decorative/dp/B0976YC5BT/?ie=UTF8&tag=avadalove-20)
+### [28\. The Prancing Pony and The Green Dragon Pub Signs Set](https://www.amazon.com/XYQ-Prancing-Dragon-Handmade-Decorative/dp/B0976YC5BT/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/XYQ-Prancing-Dragon-Handmade-Decorative/dp/B0976YC5BT/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/XYQ-Prancing-Dragon-Handmade-Decorative/dp/B0976YC5BT/?ie=UTF8&tag=giftable02-20)
 
 These hand-sculpted and intricately designed "The Prancing Pony" and "The Green Dragon" bar signs are displayed. They are painted and aged using acrylic and oil paints after being cast in polyurethane resin.
 
@@ -519,11 +519,11 @@ This Prancing Pony, which served as inspiration for the movie's symbol, is extre
 
 ✔️ Epic battle collectibles
 
-[Buy from Amazon](https://www.amazon.com/XYQ-Prancing-Dragon-Handmade-Decorative/dp/B0976YC5BT/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/XYQ-Prancing-Dragon-Handmade-Decorative/dp/B0976YC5BT/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Bookends Book End](https://www.amazon.com/KLQJNP-Bookends-Decoration-Decorative-Dividers/dp/B096DMNZL6/?ie=UTF8&tag=avadalove-20)
+### [29\. Bookends Book End](https://www.amazon.com/KLQJNP-Bookends-Decoration-Decorative-Dividers/dp/B096DMNZL6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/KLQJNP-Bookends-Decoration-Decorative-Dividers/dp/B096DMNZL6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KLQJNP-Bookends-Decoration-Decorative-Dividers/dp/B096DMNZL6/?ie=UTF8&tag=giftable02-20)
 
 The Bookend Figurine Decoration is made of high-quality resin materials, so you don't have to worry about it damaging your health. It was handcrafted just for you, and each piece was carefully shaped to fit your needs.
 
@@ -537,11 +537,11 @@ The bottom of the bookend has four anti-skid pads to prevent the book from slipp
 
 ✔️ Middle-earth map artwork
 
-[Buy from Amazon](https://www.amazon.com/KLQJNP-Bookends-Decoration-Decorative-Dividers/dp/B096DMNZL6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KLQJNP-Bookends-Decoration-Decorative-Dividers/dp/B096DMNZL6/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Lord of the Rings Lover Fans Keychain](https://www.amazon.com/Breakfast-Keychain-Boyfriend-Girlfriend-Valentines/dp/B0824RR7Q8/?ie=UTF8&tag=avadalove-20)
+### [30\. Lord of the Rings Lover Fans Keychain](https://www.amazon.com/Breakfast-Keychain-Boyfriend-Girlfriend-Valentines/dp/B0824RR7Q8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Breakfast-Keychain-Boyfriend-Girlfriend-Valentines/dp/B0824RR7Q8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Breakfast-Keychain-Boyfriend-Girlfriend-Valentines/dp/B0824RR7Q8/?ie=UTF8&tag=giftable02-20)
 
 The Lord of the Rings quotation, "I love you like a hobbit loves second breakfast," is inscribed on this keychain gift. It's a sweet Valentine's Day gift for a boyfriend and girlfriend. This is a cute and sweet way to show someone you love them.
 
@@ -555,11 +555,11 @@ Fans of The Lord of the Rings and The Hobbit will adore this gift, and they will
 
 ✔️ Dwarf-inspired craftsmanship
 
-[Buy from Amazon](https://www.amazon.com/Breakfast-Keychain-Boyfriend-Girlfriend-Valentines/dp/B0824RR7Q8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Breakfast-Keychain-Boyfriend-Girlfriend-Valentines/dp/B0824RR7Q8/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Vintage Leather Journal Tree of Life](https://www.amazon.com/Vintage-Leather-Journal-Tree-Life/dp/B09S31932V?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Vintage Leather Journal Tree of Life](https://www.amazon.com/Vintage-Leather-Journal-Tree-Life/dp/B09S31932V?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Leather-Journal-Tree-Life/dp/B09S31932V?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Leather-Journal-Tree-Life/dp/B09S31932V?th=1?ie=UTF8&tag=giftable02-20)
 
 This distinctive unruled leather journal is made from 100 percent genuine buffalo leather and is meant to last. The leather will get better in feel and color as it ages, which is the whole point.
 
@@ -573,11 +573,11 @@ The cover's vintage appearance is achieved through a special oil tanning process
 
 ✔️ Can be used for writing, note-taking, traveling, and other creative endeavors
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Leather-Journal-Tree-Life/dp/B09S31932V?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Leather-Journal-Tree-Life/dp/B09S31932V?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. FoxYaye Lord of the Rings Stickers](https://www.amazon.com/FoxYaye-Lord-Rings-Stickers-Waterproof/dp/B09PKB16XR/r?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. FoxYaye Lord of the Rings Stickers](https://www.amazon.com/FoxYaye-Lord-Rings-Stickers-Waterproof/dp/B09PKB16XR/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FoxYaye-Lord-Rings-Stickers-Waterproof/dp/B09PKB16XR/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FoxYaye-Lord-Rings-Stickers-Waterproof/dp/B09PKB16XR/r?th=1?ie=UTF8&tag=giftable02-20)
 
 The Lord of the Rings and The Hobbit movie series inspired the designs of the stickers, which feature images of people, places, and quotes. These are constructed of vinyl, so water and sun damage won't readily destroy them.
 
@@ -591,7 +591,7 @@ They are long-lasting and perform best on flat, clean surfaces. These are kept a
 
 ✔️ There are fifty designs altogether
 
-[Buy from Amazon](https://www.amazon.com/FoxYaye-Lord-Rings-Stickers-Waterproof/dp/B09PKB16XR/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FoxYaye-Lord-Rings-Stickers-Waterproof/dp/B09PKB16XR/r?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Lord of the Rings PNG SVG](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1224865906/lord-of-the-rings-png-svg-sublimation)
 

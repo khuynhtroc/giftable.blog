@@ -71,9 +71,9 @@ Great way to give your guests something sweet to remember your event by, or if y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=http://etsy.com/listing/1203006192/gift-tags-assorted-primitive-halloween)
 
-### [4\. Halloween DIY Diamond Painting Hanging Pendant](https://www.amazon.com/Halloween-Painting-Ornaments-Decoration-Handicraft/dp/B08KGKDLPY/?ie=UTF8&tag=avadalove-20)
+### [4\. Halloween DIY Diamond Painting Hanging Pendant](https://www.amazon.com/Halloween-Painting-Ornaments-Decoration-Handicraft/dp/B08KGKDLPY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Painting-Ornaments-Decoration-Handicraft/dp/B08KGKDLPY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Painting-Ornaments-Decoration-Handicraft/dp/B08KGKDLPY/?ie=UTF8&tag=giftable02-20)
 
 Get ready for a wonderful Halloween with this Diamond Painting Hanging pendant. This kit is specially designed for children and beginners, featuring a variety of colors and sizes.
 
@@ -87,11 +87,11 @@ The bright lights inside this kit will stimulate your little ones' creativity. O
 
 ✔️ Handcrafted quality adds an artisanal touch
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Painting-Ornaments-Decoration-Handicraft/dp/B08KGKDLPY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Painting-Ornaments-Decoration-Handicraft/dp/B08KGKDLPY/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Double Sided Pet Id Dog Tag](https://www.amazon.com/uDesignUSA-Nightmare-Christmas-Personalized-Skellington/dp/B06XTZJCYL?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Double Sided Pet Id Dog Tag](https://www.amazon.com/uDesignUSA-Nightmare-Christmas-Personalized-Skellington/dp/B06XTZJCYL?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/uDesignUSA-Nightmare-Christmas-Personalized-Skellington/dp/B06XTZJCYL?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/uDesignUSA-Nightmare-Christmas-Personalized-Skellington/dp/B06XTZJCYL?th=1?ie=UTF8&tag=giftable02-20)
 
 It looks like a stylish fashion accessory, but it's also a very practical one. This custom pet tag is made to last by using strong materials, and it's a fantastic way to keep track of your dog while adding a personal touch.
 
@@ -105,7 +105,7 @@ This dog tag has a sleek, double-sided design that makes it ideal for cats and d
 
 ✔️ High-quality keepsake for lasting memories
 
-[Buy from Amazon](https://www.amazon.com/uDesignUSA-Nightmare-Christmas-Personalized-Skellington/dp/B06XTZJCYL?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/uDesignUSA-Nightmare-Christmas-Personalized-Skellington/dp/B06XTZJCYL?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Happy Halloween Gift Tags](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/623761196/happy-halloween-gift-tags-halloween-tags)
 
@@ -231,9 +231,9 @@ These favor tags are printed on heavy card stock. Besides, you can print them on
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/857972698/halloween-gift-tags-halloween)
 
-### [13\. Echo Park Paper Company Trick Or Treat Frames & Tags](https://www.amazon.com/Echo-Park-Paper-Company-TT186024/dp/B07TJK7WTK/ref=pd_vtp_h_pd_vtp_h_sccl_3/146-6250177-5415924?pd_rd_w=iUtS3&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=T23R8HRMTKTT5B2GMX6N&pd_rd_wg=sBS4t&pd_rd_r=206f8353-adad-422f-978a-3faf835fbee2&pd_rd_i=B07TJK7WTK&psc=1?ie=UTF8&tag=avadalove-20)
+### [13\. Echo Park Paper Company Trick Or Treat Frames & Tags](https://www.amazon.com/Echo-Park-Paper-Company-TT186024/dp/B07TJK7WTK/ref=pd_vtp_h_pd_vtp_h_sccl_3/146-6250177-5415924?pd_rd_w=iUtS3&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=T23R8HRMTKTT5B2GMX6N&pd_rd_wg=sBS4t&pd_rd_r=206f8353-adad-422f-978a-3faf835fbee2&pd_rd_i=B07TJK7WTK&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Echo-Park-Paper-Company-TT186024/dp/B07TJK7WTK/ref=pd_vtp_h_pd_vtp_h_sccl_3/146-6250177-5415924?pd_rd_w=iUtS3&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=T23R8HRMTKTT5B2GMX6N&pd_rd_wg=sBS4t&pd_rd_r=206f8353-adad-422f-978a-3faf835fbee2&pd_rd_i=B07TJK7WTK&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Echo-Park-Paper-Company-TT186024/dp/B07TJK7WTK/ref=pd_vtp_h_pd_vtp_h_sccl_3/146-6250177-5415924?pd_rd_w=iUtS3&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=T23R8HRMTKTT5B2GMX6N&pd_rd_wg=sBS4t&pd_rd_r=206f8353-adad-422f-978a-3faf835fbee2&pd_rd_i=B07TJK7WTK&psc=1?ie=UTF8&tag=giftable02-20)
 
 With a beautiful pattern and bold colors, this Halloween Market Tags and Frames pack will get your creative juices flowing.
 
@@ -247,7 +247,7 @@ Add this collection of die-cut shapes to your next project or craft and watch th
 
 ✔️ Assorted designs for versatile creative projects
 
-[Buy from Amazon](https://www.amazon.com/Echo-Park-Paper-Company-TT186024/dp/B07TJK7WTK/ref=pd_vtp_h_pd_vtp_h_sccl_3/146-6250177-5415924?pd_rd_w=iUtS3&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=T23R8HRMTKTT5B2GMX6N&pd_rd_wg=sBS4t&pd_rd_r=206f8353-adad-422f-978a-3faf835fbee2&pd_rd_i=B07TJK7WTK&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Echo-Park-Paper-Company-TT186024/dp/B07TJK7WTK/ref=pd_vtp_h_pd_vtp_h_sccl_3/146-6250177-5415924?pd_rd_w=iUtS3&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=T23R8HRMTKTT5B2GMX6N&pd_rd_wg=sBS4t&pd_rd_r=206f8353-adad-422f-978a-3faf835fbee2&pd_rd_i=B07TJK7WTK&psc=1?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Halloween Favor Tags Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/567269545/halloween-favor-tags-gift-tags-happy)
 
@@ -483,9 +483,9 @@ It can be used for any occasion that needs a little bit of nostalgia, but also n
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/862365176/halloween-trick-or-treat-tag-pop-by-gift)
 
-### [27\. Holiday Present Stickers](https://www.amazon.com/Natural-Christmas-Holiday-Stickers-Different/dp/B07HHHWTNR?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Holiday Present Stickers](https://www.amazon.com/Natural-Christmas-Holiday-Stickers-Different/dp/B07HHHWTNR?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Natural-Christmas-Holiday-Stickers-Different/dp/B07HHHWTNR?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Natural-Christmas-Holiday-Stickers-Different/dp/B07HHHWTNR?th=1?ie=UTF8&tag=giftable02-20)
 
 Perfect for use with gift wrap, craft projects, decorations, and more, these gift tags will create a lovely touch to any present.
 
@@ -499,7 +499,7 @@ These stick very well to flat surfaces and will be tougher to remove from things
 
 ✔️ Elevate your gift-wrapping with unique flair
 
-[Buy from Amazon](https://www.amazon.com/Natural-Christmas-Holiday-Stickers-Different/dp/B07HHHWTNR?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Natural-Christmas-Holiday-Stickers-Different/dp/B07HHHWTNR?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [28\. 4Pcs Personalised Halloween Ceramic Hanging Ornament](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1531675457/4pcs-personalised-halloween-ceramic?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Baby%E2%80%99s+First+Halloween+Basket+Tag&ref=sr_gallery-1-44&pro=1&frs=1&organic_search_click=1)
 
@@ -573,9 +573,9 @@ Perfect for your upcoming Halloween parties and holiday celebrations, these Hall
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/732190505/halloween-favor-tags-halloween-gift-tags)
 
-### [32\. Avery Halloween Skull Art Name Tags](https://www.amazon.com/Avery-Skull-Name-Design-Handwrite/dp/B07HKQ74XT?ie=UTF8&tag=avadalove-20)
+### [32\. Avery Halloween Skull Art Name Tags](https://www.amazon.com/Avery-Skull-Name-Design-Handwrite/dp/B07HKQ74XT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Avery-Skull-Name-Design-Handwrite/dp/B07HKQ74XT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Avery-Skull-Name-Design-Handwrite/dp/B07HKQ74XT?ie=UTF8&tag=giftable02-20)
 
 The Skull Design name tag is a fun and easy way to identify your guests at parties, events, and even work events!
 
@@ -589,7 +589,7 @@ These name tags have a fun skull and scroll design and are printed on extremely 
 
 ✔️ High-quality material ensures durability
 
-[Buy from Amazon](https://www.amazon.com/Avery-Skull-Name-Design-Handwrite/dp/B07HKQ74XT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Avery-Skull-Name-Design-Handwrite/dp/B07HKQ74XT?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Printable Halloween Favor Tags](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/739286275/printable-halloween-favor-tags-happy)
 

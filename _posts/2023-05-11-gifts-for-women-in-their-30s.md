@@ -51,9 +51,9 @@ This vintage present is constructed of resin and metal and will last for a long 
 
 [Buy from Esty](https://www.etsy.com/listing/974952877/horse-brooch-1930s-for-the-collector)
 
-### [3\. Set of 2 Stemless Champagne Glasses](https://www.amazon.com/gp/product/B01E1PT884/?ie=UTF8&tag=avadalove-20)
+### [3\. Set of 2 Stemless Champagne Glasses](https://www.amazon.com/gp/product/B01E1PT884/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B01E1PT884/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B01E1PT884/?ie=UTF8&tag=giftable02-20)
 
 The double-walled insulated design keeps the liquid inside colder for longer while preventing condensation on the outside of the glass. Perfect gift for women who in their 30s.
 
@@ -67,7 +67,7 @@ These mimosa glasses are made of chemistry-grade borosilicate glass, which allow
 
 ✔️ Ideal for the best quality sparkling wine and champagne
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B01E1PT884/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B01E1PT884/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Black and White 1930’s Flower Brooch](https://www.etsy.com/listing/1110995268/black-and-white-1930s-jewelry-art-deco)
 
@@ -285,9 +285,9 @@ Velvet and cotton fabric half hat / turban headband in black. It has a black cot
 
 [Buy from Esty](https://www.etsy.com/listing/824721927/black-velvet-cotton-half-hat-headpiece)
 
-### [16\. Karl Lagerfeld Women’s Printed Square Scarf](https://www.amazon.com/gp/product/B0851NMKTV/?ie=UTF8&tag=avadalove-20)
+### [16\. Karl Lagerfeld Women’s Printed Square Scarf](https://www.amazon.com/gp/product/B0851NMKTV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B0851NMKTV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B0851NMKTV/?ie=UTF8&tag=giftable02-20)
 
 The Karl Lagerfeld Paris Women's Printed Square Scarf is a great gift for women who in their 30s. It is an oversized scarf with a print of the iconic Parisian designer's signature in a classic paisley pattern.
 
@@ -301,11 +301,11 @@ This is ideal: it's light, breathable, and looks great! As a headscarf, it is re
 
 ✔️ Be a chic scarf with a modern twist
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B0851NMKTV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B0851NMKTV/?ie=UTF8&tag=giftable02-20)
 
-### [17\. French Style Market Basket](https://www.amazon.com/gp/product/B007K6FI4U?ie=UTF8&tag=avadalove-20)
+### [17\. French Style Market Basket](https://www.amazon.com/gp/product/B007K6FI4U?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B007K6FI4U?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B007K6FI4U?ie=UTF8&tag=giftable02-20)
 
 This French Style Market Basket with long leather handles is the most exquisitely crafted basket that any woman will adore. It is a great gift for women who are in their 30s.
 
@@ -319,11 +319,11 @@ The basket was well-packed and packaged in an appropriate box that did not disto
 
 ✔️ Come with the deep base to make it stable
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B007K6FI4U?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B007K6FI4U?ie=UTF8&tag=giftable02-20)
 
-### [18\. Travel Makeup Bag](https://www.amazon.com/gp/product/B08DFT3432/?ie=UTF8&tag=avadalove-20)
+### [18\. Travel Makeup Bag](https://www.amazon.com/gp/product/B08DFT3432/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B08DFT3432/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B08DFT3432/?ie=UTF8&tag=giftable02-20)
 
 You’ve got a busy life, so when it comes to finding makeup products for women who are in their 30s, your options are limited. Don’t stress out! With the travel makeup bag, you can keep makeup in the travel bag, so you’re always prepared.
 
@@ -337,7 +337,7 @@ The travel makeup bag is ideal for everyday use or travel, with enough of room f
 
 ✔️ Made from soft and sturdy fabric with a spacious interior
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B08DFT3432/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B08DFT3432/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Vintage Art Deco Engagement Cocktail Ring](https://www.etsy.com/listing/1099709658/vintage-art-deco-160ct-tw-toi-et-moi-old)
 

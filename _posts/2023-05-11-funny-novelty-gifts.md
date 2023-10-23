@@ -17,8 +17,6 @@ What could be better than these humorous presents that are certain to make peopl
 
 There are a ton of unusual and **[creative gift](/creative-birthday-gifts/)** ideas on the internet, which is a really big area. While this guide is a terrific place to start, if you're searching for something perhaps a bit less unique, we advise browsing through our sortable gift recommendations or our handy gift-finding tool.
 
-**Related:** Best **[Funny Birthday Gifts](/funny-birthday-gifts/)** That'll Make Them Laugh
-
 ### [1\. Belly Button Lint brush](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/909006139/gag-gift-belly-button-lint-brush-for-the)
 
 [](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/909006139/gag-gift-belly-button-lint-brush-for-the)
@@ -109,9 +107,9 @@ Soy wax is used to make these candles because it is safe, renewable, and environ
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/635558472/personalized-light-when-name-farts-soy)
 
-### [6\. Dollar Bill Money Shirts](https://www.amazon.com/KYKU-Dollar-T-Shirt-Clothing-X-Large/dp/B07FBM72W8/?ie=UTF8&tag=avadalove-20)
+### [6\. Dollar Bill Money Shirts](https://www.amazon.com/KYKU-Dollar-T-Shirt-Clothing-X-Large/dp/B07FBM72W8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/KYKU-Dollar-T-Shirt-Clothing-X-Large/dp/B07FBM72W8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KYKU-Dollar-T-Shirt-Clothing-X-Large/dp/B07FBM72W8/?ie=UTF8&tag=giftable02-20)
 
 It's excellent attire for strolling city streets, socialising with friends, engaging in leisure and entertainment activities, going on vacation, and attending athletic events.
 
@@ -125,11 +123,11 @@ It's a smooth, comfortable, breathable, strong, and refreshing fabric, and it fi
 
 ✔️ Fits Nicely with American Sizes
 
-[Buy from Amazon](https://www.amazon.com/KYKU-Dollar-T-Shirt-Clothing-X-Large/dp/B07FBM72W8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KYKU-Dollar-T-Shirt-Clothing-X-Large/dp/B07FBM72W8/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Meme Core Game](https://www.amazon.com/What-You-Meme-Core-Game/dp/B09R6FF1LY/?ie=UTF8&tag=avadalove-20)
+### [7\. Meme Core Game](https://www.amazon.com/What-You-Meme-Core-Game/dp/B09R6FF1LY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/What-You-Meme-Core-Game/dp/B09R6FF1LY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/What-You-Meme-Core-Game/dp/B09R6FF1LY/?ie=UTF8&tag=giftable02-20)
 
 Join forces with your loved ones to produce hilarious memes. To do this, use one of the caption cards you were dealt to caption the picture card once every round.
 
@@ -143,7 +141,7 @@ Each round is decided by a different judge. Think about the judge's sense of hum
 
 ✔️ Side-Splitting Memes Guaranteed
 
-[Buy from Amazon](https://www.amazon.com/What-You-Meme-Core-Game/dp/B09R6FF1LY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/What-You-Meme-Core-Game/dp/B09R6FF1LY/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Penis Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/782459159/best-friend-gift-best-gift-best-friend)
 
@@ -217,9 +215,9 @@ It weighs 5 ounces and is packaged in a glass jar with the words "Fucks to Give"
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/873244634/small-jar-of-fucks-gift-jar-5oz)
 
-### [12\. Funny Toilet Paper](https://www.amazon.com/Funny-Novelty-Toilet-Paper-Hilarious/dp/B07GY45T3P?ie=UTF8&tag=avadalove-20)
+### [12\. Funny Toilet Paper](https://www.amazon.com/Funny-Novelty-Toilet-Paper-Hilarious/dp/B07GY45T3P?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Novelty-Toilet-Paper-Hilarious/dp/B07GY45T3P?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Novelty-Toilet-Paper-Hilarious/dp/B07GY45T3P?ie=UTF8&tag=giftable02-20)
 
 There is no more appropriate time to give them than during a retirement party, a housewarming, a yankee exchange, a birthday, an anniversary, a holiday, or any other time of year. There's a clever saying on every page!
 
@@ -233,11 +231,11 @@ The package contains two hundred sheets of two-ply toilet paper. The organisatio
 
 ✔️ Perfect for Various Special Occasions
 
-[Buy from Amazon](https://www.amazon.com/Funny-Novelty-Toilet-Paper-Hilarious/dp/B07GY45T3P?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Novelty-Toilet-Paper-Hilarious/dp/B07GY45T3P?ie=UTF8&tag=giftable02-20)
 
-### [13\. Funny Wine Glasses](https://www.amazon.com/Because-Punching-People-Illegal-Glasses/dp/B08ZSQRW49/?ie=UTF8&tag=avadalove-20)
+### [13\. Funny Wine Glasses](https://www.amazon.com/Because-Punching-People-Illegal-Glasses/dp/B08ZSQRW49/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Because-Punching-People-Illegal-Glasses/dp/B08ZSQRW49/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Because-Punching-People-Illegal-Glasses/dp/B08ZSQRW49/?ie=UTF8&tag=giftable02-20)
 
 Raise a glass to endless laughter and unforgettable moments with these Funny Wine Glasses - the ultimate gift that will make any wine enthusiast burst into giggles! The Funny Wine Glasses are the perfect and most amusing present for wine drinkers.
 
@@ -251,11 +249,11 @@ Each time they enjoy their precious red wine in these glasses, they'll be remind
 
 ✔️ Perfect for Various Recipients
 
-[Buy from Amazon](https://www.amazon.com/Because-Punching-People-Illegal-Glasses/dp/B08ZSQRW49/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Because-Punching-People-Illegal-Glasses/dp/B08ZSQRW49/?ie=UTF8&tag=giftable02-20)
 
-### [14\. Pizza Blanket](https://www.amazon.com/CACY-Blanket-Burrito-Tortilla-Comfortable/dp/B08RRZQ3M7/?th=1?ie=UTF8&tag=avadalove-20)
+### [14\. Pizza Blanket](https://www.amazon.com/CACY-Blanket-Burrito-Tortilla-Comfortable/dp/B08RRZQ3M7/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CACY-Blanket-Burrito-Tortilla-Comfortable/dp/B08RRZQ3M7/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CACY-Blanket-Burrito-Tortilla-Comfortable/dp/B08RRZQ3M7/?th=1?ie=UTF8&tag=giftable02-20)
 
 Hunkering down beneath our pizza blanket on a chilly night and watching TV while indulging in some delicious cuisine is like being wrapped in the warm hug of a dear friend or loved one.
 
@@ -269,11 +267,11 @@ With 285 grammes of fine flannel fabric, this pizza blanket is light, warm, and 
 
 ✔️ Soft, Skin-Friendly, and Healthful
 
-[Buy from Amazon](https://www.amazon.com/CACY-Blanket-Burrito-Tortilla-Comfortable/dp/B08RRZQ3M7/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CACY-Blanket-Burrito-Tortilla-Comfortable/dp/B08RRZQ3M7/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [15\. Dad Joke Button](https://www.amazon.com/Dad-Joke-Button-Fathers-Novelty/dp/B07ZBHBPSD?ie=UTF8&tag=avadalove-20)
+### [15\. Dad Joke Button](https://www.amazon.com/Dad-Joke-Button-Fathers-Novelty/dp/B07ZBHBPSD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dad-Joke-Button-Fathers-Novelty/dp/B07ZBHBPSD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dad-Joke-Button-Fathers-Novelty/dp/B07ZBHBPSD?ie=UTF8&tag=giftable02-20)
 
 When you push the button, you'll hear a fantastically funny dad joke. There are over 50 dad jokes about how great mum is or how much dad loves his favourite son or daughter. It's great for new dads, grizzled oldsters, grandpas, future pops, and everyone else who appreciates a nice dad joke on Father's Day. Speakers are turned up to eleven here. Batteries are included for instantaneous fun.
 
@@ -285,20 +283,20 @@ When you push the button, you'll hear a fantastically funny dad joke. There are 
 
 ✔️ Batteries Included for Instant Joviality
 
-[Buy from Amazon](https://www.amazon.com/Dad-Joke-Button-Fathers-Novelty/dp/B07ZBHBPSD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dad-Joke-Button-Fathers-Novelty/dp/B07ZBHBPSD?ie=UTF8&tag=giftable02-20)
 
-### [16\. Potatoes Socks](https://www.amazon.com/Happy-Potatoes-Unisex-Novelty-Socks/dp/B07YG73H4K?ie=UTF8&tag=avadalove-20)
+### [16\. Potatoes Socks](https://www.amazon.com/Happy-Potatoes-Unisex-Novelty-Socks/dp/B07YG73H4K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Happy-Potatoes-Unisex-Novelty-Socks/dp/B07YG73H4K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Happy-Potatoes-Unisex-Novelty-Socks/dp/B07YG73H4K?ie=UTF8&tag=giftable02-20)
 
 - Your most striking pattern will help you stand out in the crowd. Simply don these socks for work, class, a date, a party, or any other event.
 - They suit women's shoe sizes 7.5–12 and men's shoe sizes 5.5–10. They are soft, elastic, and sturdy. Additionally, they go well with any attire, including business suits, jeans, and university uniforms. Additionally ideal with team sports uniforms or cheerleader costumes. They make a thoughtful present for special occasions like weddings, birthdays, Christmas, Thanksgiving, and Christmas.
 
-[Buy from Amazon](https://www.amazon.com/Happy-Potatoes-Unisex-Novelty-Socks/dp/B07YG73H4K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Happy-Potatoes-Unisex-Novelty-Socks/dp/B07YG73H4K?ie=UTF8&tag=giftable02-20)
 
-### [17\. Pottery Planter](https://www.amazon.com/Chia-Painting-Decorative-Pottery-Occasion/dp/B073C95WTN?ie=UTF8&tag=avadalove-20)
+### [17\. Pottery Planter](https://www.amazon.com/Chia-Painting-Decorative-Pottery-Occasion/dp/B073C95WTN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chia-Painting-Decorative-Pottery-Occasion/dp/B073C95WTN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chia-Painting-Decorative-Pottery-Occasion/dp/B073C95WTN?ie=UTF8&tag=giftable02-20)
 
 A Chia Pet is the perfect inexpensive present for everyone on your list. The transformation of chia planters into a clever device is a delight to watch for people of all ages.
 
@@ -312,11 +310,11 @@ In only a matter of weeks, your chia pet will reach full growth and maturity, sp
 
 ✔️ Reusable and Endless Fun
 
-[Buy from Amazon](https://www.amazon.com/Chia-Painting-Decorative-Pottery-Occasion/dp/B073C95WTN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Chia-Painting-Decorative-Pottery-Occasion/dp/B073C95WTN?ie=UTF8&tag=giftable02-20)
 
-### [18\. Birthday Mugs](https://www.amazon.com/Gag-Gifts-Women-Sarcastic-Coworkers/dp/B08PYF69FX?ie=UTF8&tag=avadalove-20)
+### [18\. Birthday Mugs](https://www.amazon.com/Gag-Gifts-Women-Sarcastic-Coworkers/dp/B08PYF69FX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gag-Gifts-Women-Sarcastic-Coworkers/dp/B08PYF69FX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gag-Gifts-Women-Sarcastic-Coworkers/dp/B08PYF69FX?ie=UTF8&tag=giftable02-20)
 
 These cute coffee mugs for women would make fantastic anniversary, Mother's Day, or housewarming gifts for your wife, girlfriend, mother, or best friend.
 
@@ -330,7 +328,7 @@ Our porcelain mug has a lovely pink marble texture, shiny gold embellishments, a
 
 ✔️ Thoughtfully Packaged in Opulent Gift Boxes
 
-[Buy from Amazon](https://www.amazon.com/Gag-Gifts-Women-Sarcastic-Coworkers/dp/B08PYF69FX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gag-Gifts-Women-Sarcastic-Coworkers/dp/B08PYF69FX?ie=UTF8&tag=giftable02-20)
 
 ### [19\. The Flying Fuck Plane](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/827758599/the-flying-fuck-plane-stocking-filler-uk)
 
@@ -472,9 +470,9 @@ These cheeky items make excellent stocking stuffers, making holiday celebrations
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/903805431/novelty-naughty-willy-adoption-kit-hen)
 
-### [27\. Animal Paw Crew Socks](https://www.amazon.com/Animal-Novelty-Dinosaur-Leopard-Orange/dp/B082WYGNSL/?ie=UTF8&tag=avadalove-20)
+### [27\. Animal Paw Crew Socks](https://www.amazon.com/Animal-Novelty-Dinosaur-Leopard-Orange/dp/B082WYGNSL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Animal-Novelty-Dinosaur-Leopard-Orange/dp/B082WYGNSL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Animal-Novelty-Dinosaur-Leopard-Orange/dp/B082WYGNSL/?ie=UTF8&tag=giftable02-20)
 
 On the tips of the toes, there is a laser-quality print of an animal's paw. On the bottom of the sock, there is a clear paw print. Your toes will be sculpted into realistic animal paws.
 
@@ -488,11 +486,11 @@ In total, there are eight different pairs of paw print socks. Animal paws are of
 
 ✔️ Great Addition to Your Wardrobe
 
-[Buy from Amazon](https://www.amazon.com/Animal-Novelty-Dinosaur-Leopard-Orange/dp/B082WYGNSL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Animal-Novelty-Dinosaur-Leopard-Orange/dp/B082WYGNSL/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Tortilla Throw Blanket](https://www.amazon.com/Admitrack-Tortilla-Blanket-Burrito-Novelty/dp/B07YFGW4X2/?th=1?ie=UTF8&tag=avadalove-20)
+### [28\. Tortilla Throw Blanket](https://www.amazon.com/Admitrack-Tortilla-Blanket-Burrito-Novelty/dp/B07YFGW4X2/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Admitrack-Tortilla-Blanket-Burrito-Novelty/dp/B07YFGW4X2/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Admitrack-Tortilla-Blanket-Burrito-Novelty/dp/B07YFGW4X2/?th=1?ie=UTF8&tag=giftable02-20)
 
 This soft fleece blanket looks like a giant tortilla. If you wrap yourself up like a burrito in this blanket, you will get a good chuckle out of it.
 
@@ -506,11 +504,11 @@ The versatility of the burrito throw blanket is unmatched. Use it as a bed sheet
 
 ✔️ Embrace the Burrito Lifestyle in Style
 
-[Buy from Amazon](https://www.amazon.com/Admitrack-Tortilla-Blanket-Burrito-Novelty/dp/B07YFGW4X2/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Admitrack-Tortilla-Blanket-Burrito-Novelty/dp/B07YFGW4X2/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [29\. Archie McPhee Yodeling Pickle](https://www.amazon.com/Accoutrements-11761-Yodelling-Pickle/dp/B0010VS078/?ie=UTF8&tag=avadalove-20)
+### [29\. Archie McPhee Yodeling Pickle](https://www.amazon.com/Accoutrements-11761-Yodelling-Pickle/dp/B0010VS078/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Accoutrements-11761-Yodelling-Pickle/dp/B0010VS078/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Accoutrements-11761-Yodelling-Pickle/dp/B0010VS078/?ie=UTF8&tag=giftable02-20)
 
 Get ready to witness the smiles and hear the laughter as your loved ones unwrap this delightful and truly unique gift.
 
@@ -524,11 +522,11 @@ Standing at 6.5 inches tall, this pickle toy is made of high-quality materials t
 
 ✔️ Perfect size for display or on-the-go entertainment
 
-[Buy from Amazon](https://www.amazon.com/Accoutrements-11761-Yodelling-Pickle/dp/B0010VS078/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Accoutrements-11761-Yodelling-Pickle/dp/B0010VS078/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Funny Novelty Socks](https://www.amazon.com/Funny-Novelty-Socks-Stocking-Teenagers/dp/B07Z8HF6VL/?ie=UTF8&tag=avadalove-20)
+### [30\. Funny Novelty Socks](https://www.amazon.com/Funny-Novelty-Socks-Stocking-Teenagers/dp/B07Z8HF6VL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Novelty-Socks-Stocking-Teenagers/dp/B07Z8HF6VL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Novelty-Socks-Stocking-Teenagers/dp/B07Z8HF6VL/?ie=UTF8&tag=giftable02-20)
 
 Embrace the joy of self-expression and let your socks do the talking! The Funny Novelty Socks are the perfect gift that combines comfort, style, and a dose of laughter.
 
@@ -542,7 +540,7 @@ Crafted from a blend of high-quality materials, these socks provide a soft and c
 
 ✔️ Perfect for adding a touch of fun to any outfit
 
-[Buy from Amazon](https://www.amazon.com/Funny-Novelty-Socks-Stocking-Teenagers/dp/B07Z8HF6VL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Novelty-Socks-Stocking-Teenagers/dp/B07Z8HF6VL/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Is Your Cat Trying To Kill You A Card Game](https://www.uncommongoods.com/product/is-your-cat-trying-to-kill-you-a-card-game)
 
@@ -562,9 +560,9 @@ It features a delightful blend of witty humor, clever illustrations, and unexpec
 
 [Buy from Uncommon goods](https://www.uncommongoods.com/product/is-your-cat-trying-to-kill-you-a-card-game)
 
-### [32\. Funny Bearded Holiday Santa Costume](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=avadalove-20)
+### [32\. Funny Bearded Holiday Santa Costume](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=giftable02-20)
 
 Get ready to embrace the magic of the holiday season with the "Encased Bearded Holiday Costume." It's not just a costume—it's a joyful and festive expression of love and happiness.
 
@@ -578,11 +576,11 @@ Made with high-quality materials, this costume features a comfortable fit and a 
 
 ✔️ Soft, plush beard adds a touch of whimsy and fun
 
-[Buy from Amazon](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Encased-Bearded-Holiday-Costume-Christmas/dp/B08N3LW9FN/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Electric Plush Anti Stress Doll](https://www.amazon.com/Electronic-Interactive-Electric-Screaming-Coworkers/dp/B09LHLR3TP/?th=1?ie=UTF8&tag=avadalove-20)
+### [33\. Electric Plush Anti Stress Doll](https://www.amazon.com/Electronic-Interactive-Electric-Screaming-Coworkers/dp/B09LHLR3TP/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Electronic-Interactive-Electric-Screaming-Coworkers/dp/B09LHLR3TP/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Electronic-Interactive-Electric-Screaming-Coworkers/dp/B09LHLR3TP/?th=1?ie=UTF8&tag=giftable02-20)
 
 With this whimsical stress doll, you can turn any stressful moment into a hilarious and lighthearted experience, bringing smiles and laughter to yourself and those around you.
 
@@ -596,7 +594,7 @@ Made with high-quality materials, this interactive doll offers a unique feature 
 
 ✔️ Compact size for easy portability and on-the-go stress relief
 
-[Buy from Amazon](https://www.amazon.com/Electronic-Interactive-Electric-Screaming-Coworkers/dp/B09LHLR3TP/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Electronic-Interactive-Electric-Screaming-Coworkers/dp/B09LHLR3TP/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Cheeky Glass](https://www.uncommongoods.com/product/cheeky-glass)
 
@@ -688,9 +686,9 @@ Made from durable materials, this keychain is built to withstand daily use and k
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1342480892/funny-middle-finger-stick-man-cat-dog)
 
-### [39\. Funny Novelty Golf Notebook](https://www.amazon.com/have-retirement-plan-playing-golf/dp/1695416651/?ie=UTF8&tag=avadalove-20)
+### [39\. Funny Novelty Golf Notebook](https://www.amazon.com/have-retirement-plan-playing-golf/dp/1695416651/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/have-retirement-plan-playing-golf/dp/1695416651/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/have-retirement-plan-playing-golf/dp/1695416651/?ie=UTF8&tag=giftable02-20)
 
 Whether you're a golf enthusiast or simply appreciate a witty sense of humor, the "I Have No Retirement Plan, I'm Playing Golf" Notebook is a delightful companion that adds a touch of fun to your everyday life.
 
@@ -704,11 +702,11 @@ The notebook features a clever and humorous cover design that reflects your care
 
 ✔️ Provides a creative space for writing, doodling, and planning
 
-[Buy from Amazon](https://www.amazon.com/have-retirement-plan-playing-golf/dp/1695416651/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/have-retirement-plan-playing-golf/dp/1695416651/?ie=UTF8&tag=giftable02-20)
 
-### [40\. Accoutrements Emergency Underpants](https://www.amazon.com/Accoutrements-12041-Emergency-Underpants/dp/B003DM3MN4/?ie=UTF8&tag=avadalove-20)
+### [40\. Accoutrements Emergency Underpants](https://www.amazon.com/Accoutrements-12041-Emergency-Underpants/dp/B003DM3MN4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Accoutrements-12041-Emergency-Underpants/dp/B003DM3MN4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Accoutrements-12041-Emergency-Underpants/dp/B003DM3MN4/?ie=UTF8&tag=giftable02-20)
 
 This funny novelty gift is not just a pair of underpants; it's a symbol of preparedness and a reminder to find humor in the most unexpected situations.
 
@@ -722,6 +720,6 @@ With their compact and portable design, they can be easily carried in a purse, p
 
 ✔️ Individually packaged for added surprise and fun
 
-[Buy from Amazon](https://www.amazon.com/Accoutrements-12041-Emergency-Underpants/dp/B003DM3MN4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Accoutrements-12041-Emergency-Underpants/dp/B003DM3MN4/?ie=UTF8&tag=giftable02-20)
 
 Spread joy and laughter with our wonderful assortment of 32 hilarious novelty presents. Your loved ones will be filled with happiness and laughter thanks to these amazing gifts. Our curated collection is made to make your loved one's heart sing with joy, with gifts ranging from quirky devices that defy convention to witty and fun goods that reflect their one-of-a-kind personalities. Give them a present that will make them smile widely in delight. Embrace the spirit of happiness and peruse our wide selection of humorous novelty presents to make lasting memories and fill your heart with joy.

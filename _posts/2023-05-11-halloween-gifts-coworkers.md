@@ -731,9 +731,9 @@ Plus, each necklace is handcrafted with care, so you know you're getting a uniqu
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1059715134/tiny-gold-bat-necklace-halloween-gifts)
 
-### [41\. Halloween Ghost Boo with Name](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [41\. Halloween Ghost Boo with Name](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Bringing smiles with a hint of fright, the Halloween Ghost Boo with Name is a memorable gift for the spooky season. It’s a charming blend of personal touch and traditional Halloween imagery.
 
@@ -749,7 +749,7 @@ Emblazoned with the chosen name, this ghost comes to life in a fun, creepy fashi
 
 ✔️ Suitable for all ages
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

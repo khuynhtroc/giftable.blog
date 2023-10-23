@@ -105,9 +105,9 @@ Each blankie has a lovable animal head that is easy to hold. It will provide you
 
 [Buy from Esty](https://www.amazon.com/Angel-Dear-Cuddle-Brown-Monkey/dp/B004U8XBFO/)
 
-### [6\. Bib and Burp Cloth](https://www.etsy.com/listing/1110490801/baby-gift-100-cotton-3-piece-baby?ie=UTF8&tag=avadalove-20)
+### [6\. Bib and Burp Cloth](https://www.etsy.com/listing/1110490801/baby-gift-100-cotton-3-piece-baby?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/1110490801/baby-gift-100-cotton-3-piece-baby?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/1110490801/baby-gift-100-cotton-3-piece-baby?ie=UTF8&tag=giftable02-20)
 
 Three-piece baby gift set made entirely of 100% cotton would make an excellent gift for any newborn. One receiving blanket, one double-sided cotton bib, and one burp cloth are included in this 100 percent cotton baby gift set.
 
@@ -121,11 +121,11 @@ The holiday options include a double-sided baby blanket, a burp cloth, and a bib
 
 ✔️ Adorable designs and patterns add a stylish touch
 
-[Buy from Amazon](https://www.etsy.com/listing/1110490801/baby-gift-100-cotton-3-piece-baby?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/1110490801/baby-gift-100-cotton-3-piece-baby?ie=UTF8&tag=giftable02-20)
 
-### [7\. Embroidered Blue Easter Romper](https://www.etsy.com/listing/947929116/personalized-embroidered-blue-easter?ie=UTF8&tag=avadalove-20)
+### [7\. Embroidered Blue Easter Romper](https://www.etsy.com/listing/947929116/personalized-embroidered-blue-easter?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/947929116/personalized-embroidered-blue-easter?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/947929116/personalized-embroidered-blue-easter?ie=UTF8&tag=giftable02-20)
 
 Custom Embroidered Easter Romper with Bunny Ears for your little ones this season! You'll want to wear this charming bunny romper to your young one's birthday party or Easter celebration.
 
@@ -139,11 +139,11 @@ This was a wonderful Easter dress for any little ones out there. This piece was 
 
 ✔️ High-quality embroidery adds a special touch
 
-[Buy from Amazon](https://www.etsy.com/listing/947929116/personalized-embroidered-blue-easter?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/947929116/personalized-embroidered-blue-easter?ie=UTF8&tag=giftable02-20)
 
-### [8\. Bunny Rabbit Stuffed Animal](https://www.amazon.com/Bunnies-Bay-Bunny-Plush-Ittybit/dp/B0013N7WWM?ie=UTF8&tag=avadalove-20)
+### [8\. Bunny Rabbit Stuffed Animal](https://www.amazon.com/Bunnies-Bay-Bunny-Plush-Ittybit/dp/B0013N7WWM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bunnies-Bay-Bunny-Plush-Ittybit/dp/B0013N7WWM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bunnies-Bay-Bunny-Plush-Ittybit/dp/B0013N7WWM?ie=UTF8&tag=giftable02-20)
 
 Bunnies by the Bay is a place where bunnies can be found. Wee Ittybit Bunny is made entirely of knitted polyester material. It's the ideal size for cuddling and snuggling up with someone. Despite his short stature, this fat little white bunny rabbit is rounder than he is high.
 
@@ -157,11 +157,11 @@ The plush bunny measures 7" in height and has fluffy white fur as well as a char
 
 ✔️ Perfect size for snuggling and carrying around
 
-[Buy from Amazon](https://www.amazon.com/Bunnies-Bay-Bunny-Plush-Ittybit/dp/B0013N7WWM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bunnies-Bay-Bunny-Plush-Ittybit/dp/B0013N7WWM?ie=UTF8&tag=giftable02-20)
 
-### [9\. Angel Dear Blankie](https://www.amazon.com/Angel-Dear-Blankie-Brown-Giraffe/dp/B000WFPWUQ?ie=UTF8&tag=avadalove-20)
+### [9\. Angel Dear Blankie](https://www.amazon.com/Angel-Dear-Blankie-Brown-Giraffe/dp/B000WFPWUQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Angel-Dear-Blankie-Brown-Giraffe/dp/B000WFPWUQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Angel-Dear-Blankie-Brown-Giraffe/dp/B000WFPWUQ?ie=UTF8&tag=giftable02-20)
 
 Angel Dear Blankie, the Brown Giraffe is made in the size of 13x13 inches. This adorable blankie will make an excellent gift for your children. It is called a Naptime friend and is made of Cashmere soft material.
 
@@ -175,11 +175,11 @@ The Brown Giraffe pattern makes it even more adorable for your children, making 
 
 ✔️ Small and portable for on-the-go comfort
 
-[Buy from Amazon](https://www.amazon.com/Angel-Dear-Blankie-Brown-Giraffe/dp/B000WFPWUQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Angel-Dear-Blankie-Brown-Giraffe/dp/B000WFPWUQ?ie=UTF8&tag=giftable02-20)
 
-### [10\. Baby Einstein Sea Dreams Soother](https://www.amazon.com/Baby-Einstein-Sea-Dreams-Soother/dp/B006YBHE6M?ie=UTF8&tag=avadalove-20)
+### [10\. Baby Einstein Sea Dreams Soother](https://www.amazon.com/Baby-Einstein-Sea-Dreams-Soother/dp/B006YBHE6M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Baby-Einstein-Sea-Dreams-Soother/dp/B006YBHE6M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Baby-Einstein-Sea-Dreams-Soother/dp/B006YBHE6M?ie=UTF8&tag=giftable02-20)
 
 Baby Einstein Sea Dreams Soother is a soothing toy for babies. The item is brand new in the box. The product is delivered with all of the necessary attachments. This would make a wonderful decorative decoration for a baby's bedside table.
 
@@ -193,7 +193,7 @@ When your baby wakes up, she/he will be overjoyed with this gift. Prepare a surp
 
 ✔️ Adjustable settings and timers for customization
 
-[Buy from Amazon](https://www.amazon.com/Baby-Einstein-Sea-Dreams-Soother/dp/B006YBHE6M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Baby-Einstein-Sea-Dreams-Soother/dp/B006YBHE6M?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Custom Baby Doll](https://www.etsy.com/listing/783481947/personalized-dolls-custom-baby-doll-baby)
 

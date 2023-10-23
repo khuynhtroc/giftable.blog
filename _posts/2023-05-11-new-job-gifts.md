@@ -89,9 +89,9 @@ This candle is available in two sizes, an 8 oz jar, and a 16 oz jar, with burn t
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1039739832/ce-new-job-who-dis-candle-soy-wax-candle)
 
-### [5\. You Got This Candle](https://www.amazon.com/Candle-Encouragement-Promotion-Motivational-Moving/dp/B07V7337DB?ie=UTF8&tag=avadalove-20)
+### [5\. You Got This Candle](https://www.amazon.com/Candle-Encouragement-Promotion-Motivational-Moving/dp/B07V7337DB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Candle-Encouragement-Promotion-Motivational-Moving/dp/B07V7337DB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Candle-Encouragement-Promotion-Motivational-Moving/dp/B07V7337DB?ie=UTF8&tag=giftable02-20)
 
 Why not light up your loved one's life and career with this beautiful candle? Get one now and show your support for their new adventure!
 
@@ -105,11 +105,11 @@ This 9 oz. candle is handmade with love in Astoria, Oregon, and has an approxima
 
 ✔️ An easy and elegant gift option
 
-[Buy from Amazon](https://www.amazon.com/Candle-Encouragement-Promotion-Motivational-Moving/dp/B07V7337DB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Candle-Encouragement-Promotion-Motivational-Moving/dp/B07V7337DB?ie=UTF8&tag=giftable02-20)
 
-### [6\. Wine Gift Bag](https://www.amazon.com/LANBAIHE-Daughter-Colleague-Superior-Neighbor/dp/B09DSPXZM9?ie=UTF8&tag=avadalove-20)
+### [6\. Wine Gift Bag](https://www.amazon.com/LANBAIHE-Daughter-Colleague-Superior-Neighbor/dp/B09DSPXZM9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LANBAIHE-Daughter-Colleague-Superior-Neighbor/dp/B09DSPXZM9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LANBAIHE-Daughter-Colleague-Superior-Neighbor/dp/B09DSPXZM9?ie=UTF8&tag=giftable02-20)
 
 Why not give the gift of celebration to your loved one with this new job gift idea? Cheers to a successful career path! This wine gift bag made of eco-friendly 100% natural linen material is an exquisite choice.
 
@@ -123,11 +123,11 @@ Capable of accommodating a regular 750ml wine bottle, a champagne bottle, or fit
 
 ✔️ Will be the most eye-catching item at any party
 
-[Buy from Amazon](https://www.amazon.com/LANBAIHE-Daughter-Colleague-Superior-Neighbor/dp/B09DSPXZM9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LANBAIHE-Daughter-Colleague-Superior-Neighbor/dp/B09DSPXZM9?ie=UTF8&tag=giftable02-20)
 
-### [7\. Vacuum Insulated Tumbler](https://www.amazon.com/Awesome-Coworker-Stainless-Insulated-Tumbler/dp/B09J4C79MQ/?ie=UTF8&tag=avadalove-20)
+### [7\. Vacuum Insulated Tumbler](https://www.amazon.com/Awesome-Coworker-Stainless-Insulated-Tumbler/dp/B09J4C79MQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Awesome-Coworker-Stainless-Insulated-Tumbler/dp/B09J4C79MQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Awesome-Coworker-Stainless-Insulated-Tumbler/dp/B09J4C79MQ/?ie=UTF8&tag=giftable02-20)
 
 Say goodbye to messy spills and hello to clean, dry clothes and electronics with this essential office accessory.
 
@@ -141,11 +141,11 @@ This tumbler keeps your loved one's drink at the perfect temperature for up to 6
 
 ✔️ A practical and thoughtful gift
 
-[Buy from Amazon](https://www.amazon.com/Awesome-Coworker-Stainless-Insulated-Tumbler/dp/B09J4C79MQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Awesome-Coworker-Stainless-Insulated-Tumbler/dp/B09J4C79MQ/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Inspirational Quotes Desk Decor](https://www.amazon.com/Lukiejac-Inspirational-Encouragement-Inspiration-Motivational/dp/B0957S33W4/?ie=UTF8&tag=avadalove-20)
+### [8\. Inspirational Quotes Desk Decor](https://www.amazon.com/Lukiejac-Inspirational-Encouragement-Inspiration-Motivational/dp/B0957S33W4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lukiejac-Inspirational-Encouragement-Inspiration-Motivational/dp/B0957S33W4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lukiejac-Inspirational-Encouragement-Inspiration-Motivational/dp/B0957S33W4/?ie=UTF8&tag=giftable02-20)
 
 Looking for a gift that speaks volumes, but won't break the bank? The Inspirational Quotes Desk Decor is a little plaque with a big impact - the most caring way to encourage your loved one as they embark on a new adventure in their career!
 
@@ -159,11 +159,11 @@ Featuring an embossed motivational quote, this desk decor gift is a spiritual re
 
 ✔️ Make them feel supported and motivated
 
-[Buy from Amazon](https://www.amazon.com/Lukiejac-Inspirational-Encouragement-Inspiration-Motivational/dp/B0957S33W4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lukiejac-Inspirational-Encouragement-Inspiration-Motivational/dp/B0957S33W4/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Whiskey Stones Gift Set](https://www.amazon.com/Royal-Reserve-Birthday-Chilling-Coasters/dp/B0786NBG4Q?ie=UTF8&tag=avadalove-20)
+### [9\. Whiskey Stones Gift Set](https://www.amazon.com/Royal-Reserve-Birthday-Chilling-Coasters/dp/B0786NBG4Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Royal-Reserve-Birthday-Chilling-Coasters/dp/B0786NBG4Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Royal-Reserve-Birthday-Chilling-Coasters/dp/B0786NBG4Q?ie=UTF8&tag=giftable02-20)
 
 Celebrate their new job with a toast to success! A party without wine is like a workday without caffeine. Give them the gift of indulging in their favorite drink without watering it down with ice.
 
@@ -177,7 +177,7 @@ Introducing Royal Reserve’s stunning whiskey stone set, crafted by skilled art
 
 ✔️ The gorgeous barware set will make a statement
 
-[Buy from Amazon](https://www.amazon.com/Royal-Reserve-Birthday-Chilling-Coasters/dp/B0786NBG4Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Royal-Reserve-Birthday-Chilling-Coasters/dp/B0786NBG4Q?ie=UTF8&tag=giftable02-20)
 
 ### [10\. In This Office We’re a Team Stainless Steel Tumbler](https://loveable.ai/products/in-this-office-were-a-team-tree-of-work-bestie-20oz-stainless-steel-tumbler-coffee-tea-cup-birthday-gift-for-coworker-new-job-gifts-302icnnptu177?variant=44295146012904?utm_source=avada&ranking=&utm_source=&utm_campaign=best-new-job-gifts-to-motivate-them-with-a-new-adventure)
 
@@ -287,9 +287,9 @@ Let your significant one know they're part of your forever family and the truest
 
 [Buy from Loveable](https://loveable.ai/products/true-friends-are-never-apart-maybe-in-distance-but-never-in-heart-friendship-anniversary-friends-moving-away-canvasposter-gift-for-bestie-bff-sister-soulmate-301icnlnca095?variant=44275293192424?utm_source=avada&ranking=&utm_source=&utm_campaign=best-new-job-gifts-to-motivate-them-with-a-new-adventure)
 
-### [16\. Mug Warmer](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=avadalove-20)
+### [16\. Mug Warmer](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=giftable02-20)
 
 Cleaning up after a long day of work can be a hassle, but with this Mug Warmer Gift, your loved one won't have to worry.
 
@@ -305,11 +305,11 @@ The surface easily wipes clean, making it a breeze to maintain. And, it's portab
 
 ✔️ Easy to clean and portable for on-the-go sipping
 
-[Buy from Amazon](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mr-Coffee-Warmer-Office-MWBLKPDQ-RB/dp/B000CO89T8?ie=UTF8&tag=giftable02-20)
 
-### [17\. Success and Inspiration Jar](https://www.amazon.com/Only-Good-Vibes-Inspiration-motivates/dp/B08THVWVSN?ie=UTF8&tag=avadalove-20)
+### [17\. Success and Inspiration Jar](https://www.amazon.com/Only-Good-Vibes-Inspiration-motivates/dp/B08THVWVSN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Only-Good-Vibes-Inspiration-motivates/dp/B08THVWVSN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Only-Good-Vibes-Inspiration-motivates/dp/B08THVWVSN?ie=UTF8&tag=giftable02-20)
 
 Let them know that you're there to support them every step of the way. After all, nothing beats the power of motivation and positivity in achieving great success!
 
@@ -323,7 +323,7 @@ Introducing the "Motivation Quotations Jar" - a thoughtful gift that will inspir
 
 ✔️ The perfect remedy for anyone in need of a boost
 
-[Buy from Amazon](https://www.amazon.com/Only-Good-Vibes-Inspiration-motivates/dp/B08THVWVSN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Only-Good-Vibes-Inspiration-motivates/dp/B08THVWVSN?ie=UTF8&tag=giftable02-20)
 
 ### [18\. New Chapter Sign](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1239495167/new-chapter-sign-new-chapter-gift-gift)
 
@@ -433,9 +433,9 @@ This 11-ounce ceramic mug is designed with a hilarious and motivational message 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/966057717/this-is-my-fancy-new-job-mug-mug-mugs)
 
-### [24\. Leather Journal Notebook](https://www.amazon.com/Handmade-Leather-Journal-Writing-Notebook/dp/B08FJ9ZD6Q?ie=UTF8&tag=avadalove-20)
+### [24\. Leather Journal Notebook](https://www.amazon.com/Handmade-Leather-Journal-Writing-Notebook/dp/B08FJ9ZD6Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Handmade-Leather-Journal-Writing-Notebook/dp/B08FJ9ZD6Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Handmade-Leather-Journal-Writing-Notebook/dp/B08FJ9ZD6Q?ie=UTF8&tag=giftable02-20)
 
 A new job means a new adventure and what better way to start than with a leather journal notebook?
 
@@ -449,11 +449,11 @@ Whether they're jotting down ideas, taking notes, or keeping a diary, this leath
 
 ✔️ The ideal gift for celebrating a new job
 
-[Buy from Amazon](https://www.amazon.com/Handmade-Leather-Journal-Writing-Notebook/dp/B08FJ9ZD6Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Handmade-Leather-Journal-Writing-Notebook/dp/B08FJ9ZD6Q?ie=UTF8&tag=giftable02-20)
 
-### [25\. Sandwich Maker](https://www.amazon.com/Hamilton-Beach-Breakfast-Sandwich-Maker/dp/B00N3L2DMG?ie=UTF8&tag=avadalove-20)
+### [25\. Sandwich Maker](https://www.amazon.com/Hamilton-Beach-Breakfast-Sandwich-Maker/dp/B00N3L2DMG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hamilton-Beach-Breakfast-Sandwich-Maker/dp/B00N3L2DMG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hamilton-Beach-Breakfast-Sandwich-Maker/dp/B00N3L2DMG?ie=UTF8&tag=giftable02-20)
 
 May I present to you: A fun and easy way to create delicious custom sandwiches in just minutes!
 
@@ -467,11 +467,11 @@ With four simple steps, this breakfast sandwich maker will have your loved one e
 
 ✔️ Ideal for anyone who loves to cook or entertain
 
-[Buy from Amazon](https://www.amazon.com/Hamilton-Beach-Breakfast-Sandwich-Maker/dp/B00N3L2DMG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hamilton-Beach-Breakfast-Sandwich-Maker/dp/B00N3L2DMG?ie=UTF8&tag=giftable02-20)
 
-### [26\. Welcome To the Team Notebook](https://www.amazon.com/Friends-Challenges-Congratulations-Welcome-Team/dp/1695564758?ie=UTF8&tag=avadalove-20)
+### [26\. Welcome To the Team Notebook](https://www.amazon.com/Friends-Challenges-Congratulations-Welcome-Team/dp/1695564758?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Friends-Challenges-Congratulations-Welcome-Team/dp/1695564758?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Friends-Challenges-Congratulations-Welcome-Team/dp/1695564758?ie=UTF8&tag=giftable02-20)
 
 Not only is this gift practical, but it's also a fun addition to their daily routine. From work notes to personal scribbles, this notebook will have them covered.
 
@@ -485,7 +485,7 @@ It has 36 pages for storing login information for various websites. Plus, for se
 
 ✔️ A gift to jumpstart their new adventure
 
-[Buy from Amazon](https://www.amazon.com/Friends-Challenges-Congratulations-Welcome-Team/dp/1695564758?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Friends-Challenges-Congratulations-Welcome-Team/dp/1695564758?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Enamel Pin Badge](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/886933478/a-new-chapter-begins-enamel-pin-badge)
 
@@ -523,9 +523,9 @@ Crafted from durable stainless steel with sleek chrome trim, this pen is built t
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1111224223/personalized-parker-pen-new-job-gift)
 
-### [29\. Premium Business Portfolio](https://www.amazon.com/Business-Portfolio-Padfolio-Zippered-Interior/dp/B01FKZSCRW?ie=UTF8&tag=avadalove-20)
+### [29\. Premium Business Portfolio](https://www.amazon.com/Business-Portfolio-Padfolio-Zippered-Interior/dp/B01FKZSCRW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Business-Portfolio-Padfolio-Zippered-Interior/dp/B01FKZSCRW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Business-Portfolio-Padfolio-Zippered-Interior/dp/B01FKZSCRW?ie=UTF8&tag=giftable02-20)
 
 This premium leather portfolio binder is not just any ordinary folder; it boasts a sleek design with fabric-adorned metal zippers that open and close effortlessly from top and bottom.
 
@@ -541,11 +541,11 @@ Inside, the folder is filled with specially crafted pockets and holders that cat
 
 ✔️ Motivate them to achieve their dreams with confidence and style
 
-[Buy from Amazon](https://www.amazon.com/Business-Portfolio-Padfolio-Zippered-Interior/dp/B01FKZSCRW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Business-Portfolio-Padfolio-Zippered-Interior/dp/B01FKZSCRW?ie=UTF8&tag=giftable02-20)
 
-### [30\. Stemless Wine Glass](https://www.amazon.com/Going-Away-Gifts-Coworkers-Colleagues/dp/B081F5DSRF?ie=UTF8&tag=avadalove-20)
+### [30\. Stemless Wine Glass](https://www.amazon.com/Going-Away-Gifts-Coworkers-Colleagues/dp/B081F5DSRF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Going-Away-Gifts-Coworkers-Colleagues/dp/B081F5DSRF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Going-Away-Gifts-Coworkers-Colleagues/dp/B081F5DSRF?ie=UTF8&tag=giftable02-20)
 
 Raise a toast to your loved one's new adventure with the "Good Luck Finding Better Coworkers Than Us" stemless wine glass.
 
@@ -559,7 +559,7 @@ This companion glass is designed with a broad base to prevent spills and sloshes
 
 ✔️ Will be a cherished gift for years to come
 
-[Buy from Amazon](https://www.amazon.com/Going-Away-Gifts-Coworkers-Colleagues/dp/B081F5DSRF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Going-Away-Gifts-Coworkers-Colleagues/dp/B081F5DSRF?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Boss Gift](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/621528878/boss-gift-coworker-gift-new-job-gift-new)
 
@@ -743,9 +743,9 @@ The gift set comes in a gorgeous full-color box with matching spa products that 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1184490396/new-job-gift-for-her-congratulations)
 
-### [41\. Best of Luck Keychain](https://www.amazon.com/TGBJE-Congratulations-Keychain-Coworker-Leaving/dp/B07WGKFN2P/?ie=UTF8&tag=avadalove-20)
+### [41\. Best of Luck Keychain](https://www.amazon.com/TGBJE-Congratulations-Keychain-Coworker-Leaving/dp/B07WGKFN2P/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TGBJE-Congratulations-Keychain-Coworker-Leaving/dp/B07WGKFN2P/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TGBJE-Congratulations-Keychain-Coworker-Leaving/dp/B07WGKFN2P/?ie=UTF8&tag=giftable02-20)
 
 Unlock a world of success and good fortune with this stainless steel keychain featuring a heartfelt message of 'Best of Luck' for your loved one's new job adventure."
 
@@ -759,11 +759,11 @@ The **[personalized keychain](/personalized-keychains/)** is crafted from high-q
 
 ✔️ Remind your loved one of your support and encouragement
 
-[Buy from Amazon](https://www.amazon.com/TGBJE-Congratulations-Keychain-Coworker-Leaving/dp/B07WGKFN2P/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TGBJE-Congratulations-Keychain-Coworker-Leaving/dp/B07WGKFN2P/?ie=UTF8&tag=giftable02-20)
 
-### [42\. Adventure Begins Tumbler](https://www.amazon.com/SassyCups-Adventure-Insulated-Stainless-Graduation/dp/B08HBSPRW7?ie=UTF8&tag=avadalove-20)
+### [42\. Adventure Begins Tumbler](https://www.amazon.com/SassyCups-Adventure-Insulated-Stainless-Graduation/dp/B08HBSPRW7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SassyCups-Adventure-Insulated-Stainless-Graduation/dp/B08HBSPRW7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SassyCups-Adventure-Insulated-Stainless-Graduation/dp/B08HBSPRW7?ie=UTF8&tag=giftable02-20)
 
 For anyone seeking the ultimate new job gift idea to celebrate their loved one's career milestone, this tumbler could be the missing piece that brings a smile to their face and brightens up their day.
 
@@ -777,11 +777,11 @@ With a slide-closed lid and reusable straw, this tumbler is ideal for on-the-go 
 
 ✔️ A daily reminder to seize each new opportunity that comes their way
 
-[Buy from Amazon](https://www.amazon.com/SassyCups-Adventure-Insulated-Stainless-Graduation/dp/B08HBSPRW7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SassyCups-Adventure-Insulated-Stainless-Graduation/dp/B08HBSPRW7?ie=UTF8&tag=giftable02-20)
 
-### [43\. Mens Messenger Bag](https://www.amazon.com/Messenger-Waterproof-Briefcase-Shoulder-Computer/dp/B07GF6MX6X?ie=UTF8&tag=avadalove-20)
+### [43\. Mens Messenger Bag](https://www.amazon.com/Messenger-Waterproof-Briefcase-Shoulder-Computer/dp/B07GF6MX6X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Messenger-Waterproof-Briefcase-Shoulder-Computer/dp/B07GF6MX6X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Messenger-Waterproof-Briefcase-Shoulder-Computer/dp/B07GF6MX6X?ie=UTF8&tag=giftable02-20)
 
 If you're searching for a new job gift idea, look no further than this laptop messenger bag that combines rugged style with practicality.
 
@@ -795,11 +795,11 @@ The bag features a spacious main compartment that can hold a laptop, documents, 
 
 ✔️ A unique way to wish them success in their career path
 
-[Buy from Amazon](https://www.amazon.com/Messenger-Waterproof-Briefcase-Shoulder-Computer/dp/B07GF6MX6X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Messenger-Waterproof-Briefcase-Shoulder-Computer/dp/B07GF6MX6X?ie=UTF8&tag=giftable02-20)
 
-### [44\. Premium Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-2020-Version/dp/B088S4ZF8M?ie=UTF8&tag=avadalove-20)
+### [44\. Premium Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-2020-Version/dp/B088S4ZF8M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homesick-Scented-Candle-2020-Version/dp/B088S4ZF8M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homesick-Scented-Candle-2020-Version/dp/B088S4ZF8M?ie=UTF8&tag=giftable02-20)
 
 Show your support for their exciting new career path with a thoughtful and unique gift that they will treasure. A scented candle is not just any gift, it’s an experience that they will cherish for a long time.
 
@@ -813,11 +813,11 @@ Crafted from natural and sustainable materials, take a deep breath and immerse y
 
 ✔️ Add a touch of sophistication to any room
 
-[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-2020-Version/dp/B088S4ZF8M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-2020-Version/dp/B088S4ZF8M?ie=UTF8&tag=giftable02-20)
 
-### [45\. Thank You Gift Wooden Plaque](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [45\. Thank You Gift Wooden Plaque](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Looking for a thoughtful gift to express gratitude to your coworker? This Thank You Gift Wooden Plaque is the perfect way to do it.
 
@@ -833,7 +833,7 @@ The plaque is beautifully crafted from high-quality wood and features an etched 
 
 ✔️ Shows appreciation
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CF4B8LG7?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ## Final thought
 

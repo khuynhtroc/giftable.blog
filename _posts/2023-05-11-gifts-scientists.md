@@ -53,9 +53,9 @@ This boxer is designed to bring the most pleasant experience to the wearer. The 
 
 [Buy from Loveable](https://loveable.ai/products/worlds-sexiest-teacher-boss-principal-mentor-nurse-lawyer-accountant-doctor-scientist-personalized-mens-boxer-best-funny-gift-for-him-on-anniversary-303icntlmb422?variant=44394223567080?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-scientists-thatll-support-their-passions)
 
-### [3\. Periodic Tableware Laboratory Beaker Shot Glasses](https://www.amazon.com/Periodic-Tableware-Laboratory-Shot-Glasses/dp/B01MYM7I6Z/?ie=UTF8&tag=avadalove-20)
+### [3\. Periodic Tableware Laboratory Beaker Shot Glasses](https://www.amazon.com/Periodic-Tableware-Laboratory-Shot-Glasses/dp/B01MYM7I6Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Periodic-Tableware-Laboratory-Shot-Glasses/dp/B01MYM7I6Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Periodic-Tableware-Laboratory-Shot-Glasses/dp/B01MYM7I6Z/?ie=UTF8&tag=giftable02-20)
 
 Make a real splash with this practical set of 2 laboratory Periodic Tableware glasses.
 
@@ -69,7 +69,7 @@ These pieces of glassware have been crafted using thick-walled borosilicate glas
 
 ✔️ Suitable for serving shots or as a decorative item.
 
-[Buy from Amazon](https://www.amazon.com/Periodic-Tableware-Laboratory-Shot-Glasses/dp/B01MYM7I6Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Periodic-Tableware-Laboratory-Shot-Glasses/dp/B01MYM7I6Z/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. Funny Candle Gift For Women and Men](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1083271666/data-scientist-gifts-l-funny-candle-gift)
 
@@ -467,9 +467,9 @@ It comes with a sterling silver chain and a beautiful 18k Rose Gold or Silver el
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/638980719/handcrafted-estrogen-molecule-necklace)
 
-### [26\. Biology Chemistry Keychain](https://www.amazon.com/FEELMEM-Chemistry-Keychain-Scientist-Graduation/dp/B085DRLRHS/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Biology Chemistry Keychain](https://www.amazon.com/FEELMEM-Chemistry-Keychain-Scientist-Graduation/dp/B085DRLRHS/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FEELMEM-Chemistry-Keychain-Scientist-Graduation/dp/B085DRLRHS/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FEELMEM-Chemistry-Keychain-Scientist-Graduation/dp/B085DRLRHS/?th=1?ie=UTF8&tag=giftable02-20)
 
 Not only made from a high-quality stainless steel pendant with a beautiful engraving in bio, chemistry, and biology design, but this keychain also represents a love of biology and chemistry inside all scientists.
 
@@ -483,11 +483,11 @@ Therefore, this gift can be given to all science lovers or those who want to wor
 
 ✔️ Adds a unique and personalized touch to keys.
 
-[Buy from Amazon](https://www.amazon.com/FEELMEM-Chemistry-Keychain-Scientist-Graduation/dp/B085DRLRHS/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FEELMEM-Chemistry-Keychain-Scientist-Graduation/dp/B085DRLRHS/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. LAB LIFE Medical Laboratory Science Badge](https://www.amazon.com/Medical-Laboratory-Science-Technician-Scientist/dp/B085H571XB?ie=UTF8&tag=avadalove-20)
+### [27\. LAB LIFE Medical Laboratory Science Badge](https://www.amazon.com/Medical-Laboratory-Science-Technician-Scientist/dp/B085H571XB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Medical-Laboratory-Science-Technician-Scientist/dp/B085H571XB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Medical-Laboratory-Science-Technician-Scientist/dp/B085H571XB?ie=UTF8&tag=giftable02-20)
 
 Medical Laboratory Science Badge will be the perfect piece to complete a science lover's outfit. These badges are made in several different colors and styles so you're sure to find the perfect fit for your uniform! Available in a variety of different sizes, colors, and clip options so you can create the perfect badge holder for your needs.
 
@@ -501,11 +501,11 @@ Thus, this item will be a great idea for office workers, nurses, doctors, or any
 
 ✔️ Adds a professional and recognizable touch to uniforms or badges.
 
-[Buy from Amazon](https://www.amazon.com/Medical-Laboratory-Science-Technician-Scientist/dp/B085H571XB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Medical-Laboratory-Science-Technician-Scientist/dp/B085H571XB?ie=UTF8&tag=giftable02-20)
 
-### [28\. Periodic Table Engraved Bamboo Wood Cutting Board](https://www.amazon.com/Periodic-Engraved-Gradudation-Scientist-Professor/dp/B094SLVYR7?ie=UTF8&tag=avadalove-20)
+### [28\. Periodic Table Engraved Bamboo Wood Cutting Board](https://www.amazon.com/Periodic-Engraved-Gradudation-Scientist-Professor/dp/B094SLVYR7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Periodic-Engraved-Gradudation-Scientist-Professor/dp/B094SLVYR7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Periodic-Engraved-Gradudation-Scientist-Professor/dp/B094SLVYR7?ie=UTF8&tag=giftable02-20)
 
 The Periodic Table is an amazing gift for any scientist, student, teacher, professor, or anyone else who loves science. With a durable bamboo **[cutting board](/personalized-cutting-board/)**, your gift recipient will be able to display their knowledge of the chemical elements with pride.
 
@@ -519,11 +519,11 @@ This gift comes complete with a precision laser engraved cut of the Periodic Tab
 
 ✔️ Functional as a cutting board and decorative as kitchen decor.
 
-[Buy from Amazon](https://www.amazon.com/Periodic-Engraved-Gradudation-Scientist-Professor/dp/B094SLVYR7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Periodic-Engraved-Gradudation-Scientist-Professor/dp/B094SLVYR7?ie=UTF8&tag=giftable02-20)
 
-### [29\. Funny Nerd Socks](https://www.amazon.com/Lavley-Nerd-Socks-Women-Science/dp/B07YCXG639/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Funny Nerd Socks](https://www.amazon.com/Lavley-Nerd-Socks-Women-Science/dp/B07YCXG639/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lavley-Nerd-Socks-Women-Science/dp/B07YCXG639/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lavley-Nerd-Socks-Women-Science/dp/B07YCXG639/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=giftable02-20)
 
 Science lovers are a special group with many unique features. If you're having trouble deciding what to get them, these Funny Nerb Socks are a great solution. These socks, consisting of a smooth and luscious cotton mix, will cosset your legs and extend your sense of comfort.
 
@@ -537,11 +537,11 @@ The good side of these socks is their bright color, which features a range of fu
 
 ✔️ Makes a great gift for geeky friends or family.
 
-[Buy from Amazon](https://www.amazon.com/Lavley-Nerd-Socks-Women-Science/dp/B07YCXG639/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lavley-Nerd-Socks-Women-Science/dp/B07YCXG639/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Nikola Tesla Engraved Quote Pen](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=avadalove-20)
+### [30\. Nikola Tesla Engraved Quote Pen](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=giftable02-20)
 
 This stainless steel and leather pen case is handcrafted by skilled artisans and offers extra durability for use in the field.
 
@@ -555,11 +555,11 @@ This is the perfect accessory for any traveler, student, or tech enthusiast. Wit
 
 ✔️ Adds a touch of inspiration to daily writing tasks.
 
-[Buy from Amazon](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Decorative Bookend](https://www.amazon.com/Bellaa-22731-Elephant-Bookends-Triumphant/dp/B078F69FVW/?ie=UTF8&tag=avadalove-20)
+### [31\. Decorative Bookend](https://www.amazon.com/Bellaa-22731-Elephant-Bookends-Triumphant/dp/B078F69FVW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bellaa-22731-Elephant-Bookends-Triumphant/dp/B078F69FVW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bellaa-22731-Elephant-Bookends-Triumphant/dp/B078F69FVW/?ie=UTF8&tag=giftable02-20)
 
 This wonderful, decorative bookend is just what you need to display and protect your favorite books, and will be a conversation starter at book clubs and tea parties. This one is designed to look great with any decor but it's especially beautiful with mid-century modern, classic, country, rustic, or nautical themes.
 
@@ -573,11 +573,11 @@ Thus, this Decorative Bookend can be the ideal gift for those who appreciate the
 
 ✔️ Enhances the aesthetics of any room or office.
 
-[Buy from Amazon](https://www.amazon.com/Bellaa-22731-Elephant-Bookends-Triumphant/dp/B078F69FVW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bellaa-22731-Elephant-Bookends-Triumphant/dp/B078F69FVW/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Greenline Goods Whiskey Glasses](https://www.amazon.com/Greenline-Goods-Whiskey-Glasses-Chemistry/dp/B07QP2BZM9/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Greenline Goods Whiskey Glasses](https://www.amazon.com/Greenline-Goods-Whiskey-Glasses-Chemistry/dp/B07QP2BZM9/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Greenline-Goods-Whiskey-Glasses-Chemistry/dp/B07QP2BZM9/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Greenline-Goods-Whiskey-Glasses-Chemistry/dp/B07QP2BZM9/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=giftable02-20)
 
 A science-themed whiskey tumbler with a short description of how each molecule contributes to this classic drink. Great for science lovers, scientists, or anyone looking to enjoy a few chilled moments of pure relaxation.
 
@@ -591,11 +591,11 @@ Besides, every aspect of the appearance of this whiskey glass is thoughtfully de
 
 ✔️ Ideal for gifting or personal use.
 
-[Buy from Amazon](https://www.amazon.com/Greenline-Goods-Whiskey-Glasses-Chemistry/dp/B07QP2BZM9/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Greenline-Goods-Whiskey-Glasses-Chemistry/dp/B07QP2BZM9/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Socks Men’s Women’s Novelty Crew Gift](https://www.amazon.com/Science-Chemistry-Socks-Womens-Novelty/dp/B08GZB19W4/r?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+### [33\. Socks Men’s Women’s Novelty Crew Gift](https://www.amazon.com/Science-Chemistry-Socks-Womens-Novelty/dp/B08GZB19W4/r?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Science-Chemistry-Socks-Womens-Novelty/dp/B08GZB19W4/r?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Science-Chemistry-Socks-Womens-Novelty/dp/B08GZB19W4/r?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 Made from soft materials with medium thickness, these funny socks will bring you an unforgettable using experience. Besides, this product has a 3D Digital print which is extremely fashionable and helps you confidently express your own style.
 
@@ -609,11 +609,11 @@ Especially, these unique and trendy design socks will be the portable items in y
 
 ✔️ Makes a great and unique gift option.
 
-[Buy from Amazon](https://www.amazon.com/Science-Chemistry-Socks-Womens-Novelty/dp/B08GZB19W4/r?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Science-Chemistry-Socks-Womens-Novelty/dp/B08GZB19W4/r?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-### [34\. LED Light and Carrying Box](https://www.amazon.com/AMSCOPE-KIDS-M30-ABS-KT51-Accessories-Recommended-Organizations/dp/B00GR9GCDW?ie=UTF8&tag=avadalove-20)
+### [34\. LED Light and Carrying Box](https://www.amazon.com/AMSCOPE-KIDS-M30-ABS-KT51-Accessories-Recommended-Organizations/dp/B00GR9GCDW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AMSCOPE-KIDS-M30-ABS-KT51-Accessories-Recommended-Organizations/dp/B00GR9GCDW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AMSCOPE-KIDS-M30-ABS-KT51-Accessories-Recommended-Organizations/dp/B00GR9GCDW?ie=UTF8&tag=giftable02-20)
 
 This Microscope is a basic microscope designed for those who are beginning to experiment with scientific observation. Made from metal and glass, this microscope is ready to handle the daily challenges of the classroom or laboratory. Use with slide-mounted slides, test tubes, slides, coverslips, and more. Includes a color filter wheel to adjust for different colors. A battery-powered lamp is provided to increase visual contrast.
 
@@ -627,11 +627,11 @@ Requires two AAA batteries, but the built-in LED lamp remains lit even when the 
 
 ✔️ Versatile for various activities.
 
-[Buy from Amazon](https://www.amazon.com/AMSCOPE-KIDS-M30-ABS-KT51-Accessories-Recommended-Organizations/dp/B00GR9GCDW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AMSCOPE-KIDS-M30-ABS-KT51-Accessories-Recommended-Organizations/dp/B00GR9GCDW?ie=UTF8&tag=giftable02-20)
 
-### [35\. Graduated Beaker Mug](https://www.amazon.com/Caffeine-Beaker-Measuring-Graduated-Handle16/dp/B099QQRKC1?ie=UTF8&tag=avadalove-20)
+### [35\. Graduated Beaker Mug](https://www.amazon.com/Caffeine-Beaker-Measuring-Graduated-Handle16/dp/B099QQRKC1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Caffeine-Beaker-Measuring-Graduated-Handle16/dp/B099QQRKC1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Caffeine-Beaker-Measuring-Graduated-Handle16/dp/B099QQRKC1?ie=UTF8&tag=giftable02-20)
 
 Made from borosilicate glass for easy and safe reheating, these cups can handle hot or cold liquids in the lab or the kitchen. Especially, the scale marks do not wear out, which made the product is of excellent quality and longevity.
 
@@ -645,11 +645,11 @@ Not only does this mug offer functionalities, but it also makes a great gift. It
 
 ✔️ Adds a scientific touch to coffee or drinks.
 
-[Buy from Amazon](https://www.amazon.com/Caffeine-Beaker-Measuring-Graduated-Handle16/dp/B099QQRKC1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Caffeine-Beaker-Measuring-Graduated-Handle16/dp/B099QQRKC1?ie=UTF8&tag=giftable02-20)
 
-### [36\. Periodic Tableware Beaker Wine Glass](https://www.amazon.com/Periodic-Tableware-Beaker-Wine-Glass/dp/B015JONSC8?ie=UTF8&tag=avadalove-20)
+### [36\. Periodic Tableware Beaker Wine Glass](https://www.amazon.com/Periodic-Tableware-Beaker-Wine-Glass/dp/B015JONSC8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Periodic-Tableware-Beaker-Wine-Glass/dp/B015JONSC8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Periodic-Tableware-Beaker-Wine-Glass/dp/B015JONSC8?ie=UTF8&tag=giftable02-20)
 
 The Beaker wine glass is a scientific classic. These beautiful glasses are a wonderful gift for the wine connoisseur or anyone interested in the sciences.
 
@@ -663,11 +663,11 @@ Hand blown to create a smooth and shiny surface, this product will completely pl
 
 ✔️ Adds a fun and scientific touch to wine time.
 
-[Buy from Amazon](https://www.amazon.com/Periodic-Tableware-Beaker-Wine-Glass/dp/B015JONSC8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Periodic-Tableware-Beaker-Wine-Glass/dp/B015JONSC8?ie=UTF8&tag=giftable02-20)
 
-### [37\. Funny Chemistry Beer Glass](https://www.amazon.com/Science-Adults-Chemistry-Lovers-Teachers/dp/B094W117HT?ie=UTF8&tag=avadalove-20)
+### [37\. Funny Chemistry Beer Glass](https://www.amazon.com/Science-Adults-Chemistry-Lovers-Teachers/dp/B094W117HT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Science-Adults-Chemistry-Lovers-Teachers/dp/B094W117HT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Science-Adults-Chemistry-Lovers-Teachers/dp/B094W117HT?ie=UTF8&tag=giftable02-20)
 
 Drink up like a scientist with this beautiful glass. A perfect gift for Teachers, Biology, Nerd, Science Teacher, Adults, **[professors](/gifts-for-professors/)**, and so much more. Especially, the unique slogan will help your present have a more enjoyable science experience!
 
@@ -681,11 +681,11 @@ The design is sleek, modern, and durable, which is perfect for long-term use. No
 
 ✔️ Adds a fun and quirky touch to beer time.
 
-[Buy from Amazon](https://www.amazon.com/Science-Adults-Chemistry-Lovers-Teachers/dp/B094W117HT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Science-Adults-Chemistry-Lovers-Teachers/dp/B094W117HT?ie=UTF8&tag=giftable02-20)
 
-### [38\. Wink Chemist’s Spice Rack](https://www.amazon.com/Chemists-Spice-Rack-Piece-Chemistry/dp/B00OC4S6D8?ie=UTF8&tag=avadalove-20)
+### [38\. Wink Chemist’s Spice Rack](https://www.amazon.com/Chemists-Spice-Rack-Piece-Chemistry/dp/B00OC4S6D8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chemists-Spice-Rack-Piece-Chemistry/dp/B00OC4S6D8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chemists-Spice-Rack-Piece-Chemistry/dp/B00OC4S6D8?ie=UTF8&tag=giftable02-20)
 
 This high-quality metal spice rack is an attractive addition to any kitchen! This set includes six glass and nine metal test tube holders. Great for spices or displaying flowers, this charming set will make a lovely gift for someone special, especially who are extremely interested in science!
 
@@ -699,7 +699,7 @@ The metal rack features a silver finish, making it easy to match with your home 
 
 ✔️ Ideal for science enthusiasts and cooks alike.
 
-[Buy from Amazon](https://www.amazon.com/Chemists-Spice-Rack-Piece-Chemistry/dp/B00OC4S6D8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Chemists-Spice-Rack-Piece-Chemistry/dp/B00OC4S6D8?ie=UTF8&tag=giftable02-20)
 
 ### [39\. The Data Is Calling And I Must Go Sweatshirt](https://loveable.us/products/the-data-is-calling-and-i-must-go-t-shirt-sweater-gift-for-scientist-coders-309ihpnpts034?variant=44819588350184?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-scientists-thatll-support-their-passions)
 

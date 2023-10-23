@@ -17,9 +17,9 @@ Therefore, finding gifts for them will be a perfect way to express how much you 
 
 If you are looking for the best office gifts for your beloved coworkers, there are many things for you to choose from. Treating them with gifting will bring about much fun and connection at work. Follow us now, and you will encounter a lot of office gifts for the people at your workplace that could show your colleagues that they are valued, special, as well as more than “work friends”.
 
-### [1\. Bioworld The Office Ankle Sock Set](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY?ie=UTF8&tag=avadalove-20)
+### [1\. Bioworld The Office Ankle Sock Set](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY?ie=UTF8&tag=giftable02-20)
 
 Perfect for your loved ones at home, these socks are the perfect addition to the work wardrobe.
 
@@ -33,11 +33,11 @@ They have a smooth ribbed knit construction, and the ribbed heel is designed for
 
 ✔️ Ideal for fans of the series and sock collectors
 
-[Buy from Amazon](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bioworld-Office-Ankle-Sock-Set/dp/B07YCRDLYY?ie=UTF8&tag=giftable02-20)
 
-### [2\. Funny Desk Signs](https://www.amazon.com/Different-Flip-Over-Messages-Office-Accessories/dp/B08NCMDSF9?ie=UTF8&tag=avadalove-20)
+### [2\. Funny Desk Signs](https://www.amazon.com/Different-Flip-Over-Messages-Office-Accessories/dp/B08NCMDSF9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Different-Flip-Over-Messages-Office-Accessories/dp/B08NCMDSF9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Different-Flip-Over-Messages-Office-Accessories/dp/B08NCMDSF9?ie=UTF8&tag=giftable02-20)
 
 Get your office friends laughing by gifting these 30 different flip-over desk signs with messages. Just slide the sign into the frame and it will flip over to reveal your message. You can use your own photo or create a picture from scratch.
 
@@ -51,11 +51,11 @@ The Funny Desk Signs will let you say what's really on your mind or make fun of 
 
 ✔️ Makes a fun gift for colleagues or friends
 
-[Buy from Amazon](https://www.amazon.com/Different-Flip-Over-Messages-Office-Accessories/dp/B08NCMDSF9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Different-Flip-Over-Messages-Office-Accessories/dp/B08NCMDSF9?ie=UTF8&tag=giftable02-20)
 
-### [3\. Mokani Pen Pencil Holder with Phone Stand](https://www.amazon.com/Mokani-Multifunctional-Organizer-Accessories-Decoration/dp/B08KY1ZLPV?ie=UTF8&tag=avadalove-20)
+### [3\. Mokani Pen Pencil Holder with Phone Stand](https://www.amazon.com/Mokani-Multifunctional-Organizer-Accessories-Decoration/dp/B08KY1ZLPV?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mokani-Multifunctional-Organizer-Accessories-Decoration/dp/B08KY1ZLPV?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mokani-Multifunctional-Organizer-Accessories-Decoration/dp/B08KY1ZLPV?ie=UTF8&tag=giftable02-20)
 
 It's the pencil holder that goes wherever you go. Whether it's your pencils or phone, your office pen, or your passport, the MOKANI Pen Pencil Holder will keep your essential items secure and within reach.
 
@@ -69,7 +69,7 @@ It has a sturdy magnetic snap closure with a comfortable shoulder strap for port
 
 ✔️ Features a phone stand for easy viewing and accessibility
 
-[Buy from Amazon](https://www.amazon.com/Mokani-Multifunctional-Organizer-Accessories-Decoration/dp/B08KY1ZLPV?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mokani-Multifunctional-Organizer-Accessories-Decoration/dp/B08KY1ZLPV?ie=UTF8&tag=giftable02-20)
 
 ### [4\. The Office Music Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/669419278/the-office-music-box-tv-show-theme)
 
@@ -125,9 +125,9 @@ We have uniquely designed each coaster to compliment your style and your office.
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/792378628/the-office-coasters-the-office-fan-gift)
 
-### [7\. Dundie Award Trophy For The Office](https://www.amazon.com/gp/product/B074XDMCJN?ie=UTF8&tag=avadalove-20)
+### [7\. Dundie Award Trophy For The Office](https://www.amazon.com/gp/product/B074XDMCJN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B074XDMCJN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B074XDMCJN?ie=UTF8&tag=giftable02-20)
 
 The Dundee Award trophy has won many awards during its existence and is designed to commemorate achievements.
 
@@ -141,11 +141,11 @@ It is a practical award for the office. A stylish way to show colleagues how wel
 
 ✔️ Nostalgic and humorous decor piece
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B074XDMCJN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B074XDMCJN?ie=UTF8&tag=giftable02-20)
 
-### [8\. The Office Sign Self-Adhesive Acrylic Sign](https://www.amazon.com/gp/product/B08PCHHFLM?ie=UTF8&tag=avadalove-20)
+### [8\. The Office Sign Self-Adhesive Acrylic Sign](https://www.amazon.com/gp/product/B08PCHHFLM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B08PCHHFLM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B08PCHHFLM?ie=UTF8&tag=giftable02-20)
 
 This fun and colorful sign is a perfect way to show the world that you work at HOHAJIU the Office. With this sign, you’re showing others where your desk is, so they’ll know exactly what kind of business you run!
 
@@ -159,11 +159,11 @@ It can be used as an excellent decorative item or a tool to help you get organiz
 
 ✔️ Easy to install and adds a fun touch to spaces
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B08PCHHFLM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B08PCHHFLM?ie=UTF8&tag=giftable02-20)
 
-### [9\. Hasbro CLUE: The Office Edition Board Game](https://www.amazon.com/gp/product/B0817G5X6Z?ie=UTF8&tag=avadalove-20)
+### [9\. Hasbro CLUE: The Office Edition Board Game](https://www.amazon.com/gp/product/B0817G5X6Z?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B0817G5X6Z?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B0817G5X6Z?ie=UTF8&tag=giftable02-20)
 
 Have a great time with The Office Edition Board Game!
 
@@ -177,7 +177,7 @@ Everyone knows the characters of The Office and this board game allows you to pl
 
 ✔️ Offers a fun and engaging way to solve mysteries in the office setting
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B0817G5X6Z?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B0817G5X6Z?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Workplace Collage Coffee Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/775110109/an-american-workplace-collage-coffee-mug)
 
@@ -197,9 +197,9 @@ It will surely be the centerpiece of **[the coffee](https://avada.io/loveable/gi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/775110109/an-american-workplace-collage-coffee-mug)
 
-### [11\. Mini Motivational Notebook](https://www.amazon.com/Inspirational-Notepads-Motivational-Coworkers-Notebooks/dp/B09WJWXP83/?ie=UTF8&tag=avadalove-20)
+### [11\. Mini Motivational Notebook](https://www.amazon.com/Inspirational-Notepads-Motivational-Coworkers-Notebooks/dp/B09WJWXP83/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspirational-Notepads-Motivational-Coworkers-Notebooks/dp/B09WJWXP83/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspirational-Notepads-Motivational-Coworkers-Notebooks/dp/B09WJWXP83/?ie=UTF8&tag=giftable02-20)
 
 The inspirational notebook is a great office gift for business partners, friends, and colleagues. It features a motivational quote printed on each of the pages, making it a wonderful keepsake to commemorate life-changing events.
 
@@ -213,7 +213,7 @@ It includes a pencil pouch, so it can be used for jotting down notes and ideas. 
 
 ✔️ Great for jotting down ideas and thoughts on-the-go
 
-[Buy from Amazon](https://www.amazon.com/Inspirational-Notepads-Motivational-Coworkers-Notebooks/dp/B09WJWXP83/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspirational-Notepads-Motivational-Coworkers-Notebooks/dp/B09WJWXP83/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. The Office Picture Frame](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/923639482/the-office-picture-frame-the-office-gift)
 

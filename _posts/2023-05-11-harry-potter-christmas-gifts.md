@@ -17,9 +17,9 @@ In the spirit of spreading love and joy, our selection of Harry Potter gifts inc
 
 So, this holiday season, let the charm of Harry Potter gifts wrap your loved ones in a magical embrace, immersing them in the captivating realm of wizards and witches. Whether you're a loyal Gryffindor, a wise Ravenclaw, a cunning Slytherin, or a kind-hearted Hufflepuff, there's a gift waiting to be discovered that perfectly captures your essence. Start exploring now, and let the magic unfold before your eyes!
 
-### [1\. Cauldron Soup Mug](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=avadalove-20)
+### [1\. Cauldron Soup Mug](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the enchanting world of Harry Potter with the Cauldron Soup Mug, where every spoonful of soup brings a dash of wizarding magic to your taste buds.
 
@@ -33,11 +33,11 @@ With its unique cauldron shape and delightful Potter-themed charm, this mug make
 
 ✔️ Perfect Gift for Potterheads
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-48013-Cauldron-Standard/dp/B019YRJ2MQ?ie=UTF8&tag=giftable02-20)
 
-### [2\. Wizard Broomstick](https://www.amazon.com/Personalized-Wizard-BroomStick-Hanging-Decorations/dp/B09V37HFNB/ref=sr_1_3?crid=3074MTR1YDVFQ&keywords=personalized+wizard+broomstick&qid=1677287650&sprefix=personalizedwizard+broomstick%2Caps%2C305&sr=8-3?ie=UTF8&tag=avadalove-20)
+### [2\. Wizard Broomstick](https://www.amazon.com/Personalized-Wizard-BroomStick-Hanging-Decorations/dp/B09V37HFNB/ref=sr_1_3?crid=3074MTR1YDVFQ&keywords=personalized+wizard+broomstick&qid=1677287650&sprefix=personalizedwizard+broomstick%2Caps%2C305&sr=8-3?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Wizard-BroomStick-Hanging-Decorations/dp/B09V37HFNB/ref=sr_1_3?crid=3074MTR1YDVFQ&keywords=personalized+wizard+broomstick&qid=1677287650&sprefix=personalizedwizard+broomstick%2Caps%2C305&sr=8-3?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Wizard-BroomStick-Hanging-Decorations/dp/B09V37HFNB/ref=sr_1_3?crid=3074MTR1YDVFQ&keywords=personalized+wizard+broomstick&qid=1677287650&sprefix=personalizedwizard+broomstick%2Caps%2C305&sr=8-3?ie=UTF8&tag=giftable02-20)
 
 Explore the Wizard World. It's the perfect decoration for any wizard enthusiast in your life. Choose from our large variety of styles, colors, and display options and we'll transform your dream into reality.
 
@@ -51,11 +51,11 @@ The broomstick is professionally made of wood. It is painted with colorful color
 
 ✔️ Create a happy and surprising gift for your kids
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Wizard-BroomStick-Hanging-Decorations/dp/B09V37HFNB/ref=sr_1_3?crid=3074MTR1YDVFQ&keywords=personalized+wizard+broomstick&qid=1677287650&sprefix=personalizedwizard+broomstick%2Caps%2C305&sr=8-3?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Wizard-BroomStick-Hanging-Decorations/dp/B09V37HFNB/ref=sr_1_3?crid=3074MTR1YDVFQ&keywords=personalized+wizard+broomstick&qid=1677287650&sprefix=personalizedwizard+broomstick%2Caps%2C305&sr=8-3?ie=UTF8&tag=giftable02-20)
 
-### [3\. Pewter Key Ring](https://www.amazon.com/HARRY-POTTER-Gold-Snitch-Pewter/dp/B01J87CRBU?ie=UTF8&tag=avadalove-20)
+### [3\. Pewter Key Ring](https://www.amazon.com/HARRY-POTTER-Gold-Snitch-Pewter/dp/B01J87CRBU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HARRY-POTTER-Gold-Snitch-Pewter/dp/B01J87CRBU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HARRY-POTTER-Gold-Snitch-Pewter/dp/B01J87CRBU?ie=UTF8&tag=giftable02-20)
 
 You'll feel like a real wizard with this handsome key ring featuring a 3D replica of the Golden Snitch and a Platform pendant. A pewter Key Chain featuring the famous Harry Potter Snitch. The perfect gift for any Harry Potter wizard. This is a great Harry Potter key chain or keyring! Make sure to watch the movie. This Harry Potter Snitch Pewter Key Ring is great for any Harry Potter fan out there.
 
@@ -69,11 +69,11 @@ The keyring is made of pewter and well-polished with gold and silver to give you
 
 ✔️ Lightweight and compact to convenient to keep by yourself
 
-[Buy from Amazon](https://www.amazon.com/HARRY-POTTER-Gold-Snitch-Pewter/dp/B01J87CRBU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HARRY-POTTER-Gold-Snitch-Pewter/dp/B01J87CRBU?ie=UTF8&tag=giftable02-20)
 
-### [4\. Wonder Pop Up Birthday Card](https://www.amazon.com/Hallmark-Signature-Wonder-Birthday-Potter/dp/B0844CFDNM/?ie=UTF8&tag=avadalove-20)
+### [4\. Wonder Pop Up Birthday Card](https://www.amazon.com/Hallmark-Signature-Wonder-Birthday-Potter/dp/B0844CFDNM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hallmark-Signature-Wonder-Birthday-Potter/dp/B0844CFDNM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hallmark-Signature-Wonder-Birthday-Potter/dp/B0844CFDNM/?ie=UTF8&tag=giftable02-20)
 
 Make this pop-up card extra special for a friend or family member by printing out a 3D Harry Potter pop-up card, placing it on top of some foam core board, and gluing a piece of paper to it.
 
@@ -89,11 +89,11 @@ The pop-up card is made of sturdy paper stock with a size of s 5" x 7.2" and you
 
 ✔️ Create a lifelike 3D effect to surprise your beloved
 
-[Buy from Amazon](https://www.amazon.com/Hallmark-Signature-Wonder-Birthday-Potter/dp/B0844CFDNM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hallmark-Signature-Wonder-Birthday-Potter/dp/B0844CFDNM/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Night Light for Kids](https://www.amazon.com/Hogwarts-Castle-Remote-Changing-Dimmable/dp/B09MKN2G7T?ie=UTF8&tag=avadalove-20)
+### [5\. Night Light for Kids](https://www.amazon.com/Hogwarts-Castle-Remote-Changing-Dimmable/dp/B09MKN2G7T?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hogwarts-Castle-Remote-Changing-Dimmable/dp/B09MKN2G7T?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hogwarts-Castle-Remote-Changing-Dimmable/dp/B09MKN2G7T?ie=UTF8&tag=giftable02-20)
 
 This special daylight will make every kid feel more safe and cozy at home. So, let's get the night light for your kids. The gift is so beautiful when opening up a magical world for your kids to see and touch.
 
@@ -109,11 +109,11 @@ With the remote control, you can easily change the colors, the brightness and ev
 
 ✔️ Give your kids some nice dreams
 
-[Buy from Amazon](https://www.amazon.com/Hogwarts-Castle-Remote-Changing-Dimmable/dp/B09MKN2G7T?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hogwarts-Castle-Remote-Changing-Dimmable/dp/B09MKN2G7T?ie=UTF8&tag=giftable02-20)
 
-### [6\. Pack Ankle Socks Shoe](https://www.amazon.com/Hyp-Harry-Potter-Juniors-Womens/dp/B072PC2N1N?ie=UTF8&tag=avadalove-20)
+### [6\. Pack Ankle Socks Shoe](https://www.amazon.com/Hyp-Harry-Potter-Juniors-Womens/dp/B072PC2N1N?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hyp-Harry-Potter-Juniors-Womens/dp/B072PC2N1N?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hyp-Harry-Potter-Juniors-Womens/dp/B072PC2N1N?ie=UTF8&tag=giftable02-20)
 
 Use a phone case that conceals your device from plain sight if you want to use it discreetly in a public place like a movie theatre.
 
@@ -127,11 +127,11 @@ Children and adults alike can display their festive zeal with a pair of colourfu
 
 ✔️ Practical and Fun Gift
 
-[Buy from Amazon](https://www.amazon.com/Hyp-Harry-Potter-Juniors-Womens/dp/B072PC2N1N?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hyp-Harry-Potter-Juniors-Womens/dp/B072PC2N1N?ie=UTF8&tag=giftable02-20)
 
-### [7\. Wizard Wand Makeup Brushes](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=avadalove-20)
+### [7\. Wizard Wand Makeup Brushes](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=giftable02-20)
 
 Enjoy worry-free beauty wherever your travels may take you with this Fantasy cosmetic kit. Makeup artists and fantasy fiction readers will both love this complete brush set. The Blending Brush is the ideal tool for creating seamless transitions between shades and for applying highlighter.
 
@@ -145,11 +145,11 @@ If you want your eye makeup to look professional, this is the tool for you. Make
 
 ✔️ Must-Have Set for Magic Fans
 
-[Buy from Amazon](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Brushes-Foundation-Blending-Concealer-Eyebrow/dp/B071DXHYLG?ie=UTF8&tag=giftable02-20)
 
-### [8\. Hogwarts Glitter Cup w/Straw](https://www.amazon.com/Potter-Hogwarts-Glitter-Acrylic-Tumbler/dp/B07FNDB2NV/r?ie=UTF8&tag=avadalove-20)
+### [8\. Hogwarts Glitter Cup w/Straw](https://www.amazon.com/Potter-Hogwarts-Glitter-Acrylic-Tumbler/dp/B07FNDB2NV/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Potter-Hogwarts-Glitter-Acrylic-Tumbler/dp/B07FNDB2NV/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Potter-Hogwarts-Glitter-Acrylic-Tumbler/dp/B07FNDB2NV/r?ie=UTF8&tag=giftable02-20)
 
 This bright sunflower stepping stone is a lovely addition to any outdoor space. This beautiful garden ornament, which features colourful butterflies, is just what you need to liven up your outdoor space. It's also perfect for a party on the patio.
 
@@ -163,11 +163,11 @@ Exciting and useful - Put some Spoontiques joy into your landscape or your steps
 
 ✔️ Magical Touch for Your Garden
 
-[Buy from Amazon](https://www.amazon.com/Potter-Hogwarts-Glitter-Acrylic-Tumbler/dp/B07FNDB2NV/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Potter-Hogwarts-Glitter-Acrylic-Tumbler/dp/B07FNDB2NV/r?ie=UTF8&tag=giftable02-20)
 
-### [9\. Double Strap Shoulder Bag](https://www.amazon.com/Loungefly-Potter-Tattoo-Womens-Shoulder/dp/B087J8DYRB?ie=UTF8&tag=avadalove-20)
+### [9\. Double Strap Shoulder Bag](https://www.amazon.com/Loungefly-Potter-Tattoo-Womens-Shoulder/dp/B087J8DYRB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Loungefly-Potter-Tattoo-Womens-Shoulder/dp/B087J8DYRB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Loungefly-Potter-Tattoo-Womens-Shoulder/dp/B087J8DYRB?ie=UTF8&tag=giftable02-20)
 
 A magically designed, straightforward message bag for young women and grownups. It's the ideal method to show your love and support for your partner, whether they're husband or wife, boyfriend or girlfriend, son or daughter, mother or father.
 
@@ -181,11 +181,11 @@ Send a special person in your life a handwritten, sentimental card expressing yo
 
 ✔️ A Unique Accessory for Potterheads
 
-[Buy from Amazon](https://www.amazon.com/Loungefly-Potter-Tattoo-Womens-Shoulder/dp/B087J8DYRB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Loungefly-Potter-Tattoo-Womens-Shoulder/dp/B087J8DYRB?ie=UTF8&tag=giftable02-20)
 
-### [10\. Relief Figets Toy](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=avadalove-20)
+### [10\. Relief Figets Toy](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=giftable02-20)
 
 This Pure Metallic Body gives an incredible grip thanks to its soft but firm feel and quiet, controlled spin thanks to its gentler power.
 
@@ -199,11 +199,11 @@ If you want to kick the habit of smoking, this is the product for you. It is a l
 
 ✔️ Fun and Relaxation in One
 
-[Buy from Amazon](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MOSOTECH-Spinner-Medieval-Magical-Wizardry/dp/B089CL6K5B/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Harry Potter Fuse Bead Kit](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=avadalove-20)
+### [11\. Harry Potter Fuse Bead Kit](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=giftable02-20)
 
 Use this Harry Potter Perler bead set as inspiration for your next DIY endeavour.
 
@@ -217,11 +217,11 @@ There are 19 different Harry Potter-themed designs available on the bundled fuse
 
 ✔️ Enchanting Christmas Ornaments
 
-[Buy from Amazon](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Perler-80-54345-Potter-Patterns-Multicolor/dp/B07PJNXSGH?ie=UTF8&tag=giftable02-20)
 
-### [12\. Movies Metal Wall Hanging](https://www.amazon.com/GQIXIA-Potter-Hanging-Movies-Anniversary/dp/B09WJFJFMK?ie=UTF8&tag=avadalove-20)
+### [12\. Movies Metal Wall Hanging](https://www.amazon.com/GQIXIA-Potter-Hanging-Movies-Anniversary/dp/B09WJFJFMK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/GQIXIA-Potter-Hanging-Movies-Anniversary/dp/B09WJFJFMK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/GQIXIA-Potter-Hanging-Movies-Anniversary/dp/B09WJFJFMK?ie=UTF8&tag=giftable02-20)
 
 Its warm light is perfect for adding a soft accent to your room. There's something mystical about the way the body and borders light up.
 
@@ -235,11 +235,11 @@ Hangs on a moulded black wall mount that can be hooked or drilled into place, an
 
 ✔️ Enchanting Glow and Design
 
-[Buy from Amazon](https://www.amazon.com/GQIXIA-Potter-Hanging-Movies-Anniversary/dp/B09WJFJFMK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/GQIXIA-Potter-Hanging-Movies-Anniversary/dp/B09WJFJFMK?ie=UTF8&tag=giftable02-20)
 
-### [13\. Square Wall Calendar](https://www.amazon.com/Official-Potter-Calendar-Square-Family/dp/B09CDQZHTQ?ie=UTF8&tag=avadalove-20)
+### [13\. Square Wall Calendar](https://www.amazon.com/Official-Potter-Calendar-Square-Family/dp/B09CDQZHTQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Official-Potter-Calendar-Square-Family/dp/B09CDQZHTQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Official-Potter-Calendar-Square-Family/dp/B09CDQZHTQ?ie=UTF8&tag=giftable02-20)
 
 This 22-month 2020 Wall Calendar is the perfect present for any Harry Potter fan. It has everything you'll need to note the passing of the days and the milestones of the year ahead.
 
@@ -253,11 +253,11 @@ This wall calendar is perfect for any room in the house or workplace thanks to i
 
 ✔️ Eco-Friendly and Functional Design
 
-[Buy from Amazon](https://www.amazon.com/Official-Potter-Calendar-Square-Family/dp/B09CDQZHTQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Official-Potter-Calendar-Square-Family/dp/B09CDQZHTQ?ie=UTF8&tag=giftable02-20)
 
-### [14\. Harry Potter Bullet Journal](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN?ie=UTF8&tag=avadalove-20)
+### [14\. Harry Potter Bullet Journal](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN?ie=UTF8&tag=giftable02-20)
 
 These colourful diaries are fantastic for spelling class and would also make wonderful presents for youngsters on their birthdays or at Christmas. You may use it for anything from taking notes to drawing to sketching to writing.
 
@@ -271,11 +271,11 @@ It can also serve as an academic journal in which you can document your progress
 
 ✔️ Your Personal Academic Comrade
 
-[Buy from Amazon](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Official-Harry-Potter-Bullet-Journal/dp/B08ZJHG4FN?ie=UTF8&tag=giftable02-20)
 
-### [15\. Harry Potter Wand](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ?ie=UTF8&tag=avadalove-20)
+### [15\. Harry Potter Wand](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ?ie=UTF8&tag=giftable02-20)
 
 This wand, inspired by Harry Potter, would be perfect for any wizard in your life.
 
@@ -289,11 +289,11 @@ It is sold in a set with various wands depicting characters from the Harry Potte
 
 ✔️ Master the Spells of Hogwarts
 
-[Buy from Amazon](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wizarding-World-Authentic-Spellbinding-Collectible/dp/B08T1JK2JJ?ie=UTF8&tag=giftable02-20)
 
-### [16\. Watercolor Vinyl Stickers](https://www.amazon.com/Conquest-Journals-Watercolor-Waterproof-Resistant/dp/B08GNBGSD2/?ie=UTF8&tag=avadalove-20)
+### [16\. Watercolor Vinyl Stickers](https://www.amazon.com/Conquest-Journals-Watercolor-Waterproof-Resistant/dp/B08GNBGSD2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Conquest-Journals-Watercolor-Waterproof-Resistant/dp/B08GNBGSD2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Conquest-Journals-Watercolor-Waterproof-Resistant/dp/B08GNBGSD2/?ie=UTF8&tag=giftable02-20)
 
 These stickers are really sticky, so they won't fall off anytime soon. You appear to be at a loss as to which option is preferable. It is best used on dry, hard, and smooth surfaces. Not intended for usage in the elements for long periods of time.
 
@@ -307,11 +307,11 @@ Beautiful watercolour graphics of popular Harry Potter themes are included on th
 
 ✔️ Enchant Your Belongings with Sparkle
 
-[Buy from Amazon](https://www.amazon.com/Conquest-Journals-Watercolor-Waterproof-Resistant/dp/B08GNBGSD2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Conquest-Journals-Watercolor-Waterproof-Resistant/dp/B08GNBGSD2/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Engraved Music Box](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS?ie=UTF8&tag=avadalove-20)
+### [17\. Engraved Music Box](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS?ie=UTF8&tag=giftable02-20)
 
 This is not a "wind-up" music box, but rather a simple machine that plays the same tune again and over for 30 seconds while you crank the handle.
 
@@ -325,11 +325,11 @@ Select the "customise now" tab and enter your text to personalise the top sectio
 
 ✔️ Relish the Melodic Moments
 
-[Buy from Amazon](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TheLasersEdge-Hedwigs-Personalizable-Engraved-Standard/dp/B09C52JNKS?ie=UTF8&tag=giftable02-20)
 
-### [18\. Stemless Wine Glasses](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6/?ie=UTF8&tag=avadalove-20)
+### [18\. Stemless Wine Glasses](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6/?ie=UTF8&tag=giftable02-20)
 
 Cheers to the Boy Who Lived! These stemless wine glasses are a great way to express your support for the wizarding realm while enjoying your favourite vintage.
 
@@ -343,11 +343,11 @@ A pair of four classic-styled stemless wine glasses with a design inspired by th
 
 ✔️ Delight for Wizards and Wine Enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Stemless-Wine-Glasses/dp/B082YJ9GQ6/?ie=UTF8&tag=giftable02-20)
 
-### [19\. The Unofficial Collection](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215?ie=UTF8&tag=avadalove-20)
+### [19\. The Unofficial Collection](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215?ie=UTF8&tag=giftable02-20)
 
 There are numerous secrets concerning Harry Potter that have yet to be revealed. Up until this point, that is. Studying the lives of sorcerers and witches can yield a wealth of information. If you liked the Harry Potter series, you'll love this one.
 
@@ -361,11 +361,11 @@ Even the most devoted followers can be surprised by fresh information, however o
 
 ✔️ A Magical Journey into Trivia
 
-[Buy from Amazon](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Awesome-Facts-Potter-Fans-Encyclopedia/dp/3985610215?ie=UTF8&tag=giftable02-20)
 
-### [20\. Harry Potter Stacked Books](https://www.amazon.com/Hallmark-Harry-Potter-Christmas-Ornament/dp/B09F4VM13M/?ie=UTF8&tag=avadalove-20)
+### [20\. Harry Potter Stacked Books](https://www.amazon.com/Hallmark-Harry-Potter-Christmas-Ornament/dp/B09F4VM13M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hallmark-Harry-Potter-Christmas-Ornament/dp/B09F4VM13M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hallmark-Harry-Potter-Christmas-Ornament/dp/B09F4VM13M/?ie=UTF8&tag=giftable02-20)
 
 You can't go wrong with this beautiful ornament for your holiday tree. Adding some of the bookshelf's splendour to the tree's lush foliage and colourful blossoms.
 
@@ -379,11 +379,11 @@ If you know someone who loves the Harry Potter books, this book and mug set woul
 
 ✔️ Whimsy and Wonder Combined
 
-[Buy from Amazon](https://www.amazon.com/Hallmark-Harry-Potter-Christmas-Ornament/dp/B09F4VM13M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hallmark-Harry-Potter-Christmas-Ornament/dp/B09F4VM13M/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Marauder’s Map](https://www.amazon.com/Potter-Marauders-Officially-Licensed-Blanket/dp/B098FFFH63?ie=UTF8&tag=avadalove-20)
+### [21\. Marauder’s Map](https://www.amazon.com/Potter-Marauders-Officially-Licensed-Blanket/dp/B098FFFH63?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Potter-Marauders-Officially-Licensed-Blanket/dp/B098FFFH63?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Potter-Marauders-Officially-Licensed-Blanket/dp/B098FFFH63?ie=UTF8&tag=giftable02-20)
 
 This artwork is a great addition to any home because of its beautiful colour scheme and excellent fashion. The hues in this fabric are just gorgeous. This throw blanket would make a wonderful Christmas present, birthday present, or addition to a collection.
 
@@ -397,11 +397,11 @@ The great present for the holidays, birthdays, or just because! This versatile t
 
 ✔️ A Must-Have Collector's Item
 
-[Buy from Amazon](https://www.amazon.com/Potter-Marauders-Officially-Licensed-Blanket/dp/B098FFFH63?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Potter-Marauders-Officially-Licensed-Blanket/dp/B098FFFH63?ie=UTF8&tag=giftable02-20)
 
-### [22\. Gryffindor Bracelet Set](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK/?ie=UTF8&tag=avadalove-20)
+### [22\. Gryffindor Bracelet Set](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK/?ie=UTF8&tag=giftable02-20)
 
 These bracelets are favourites among Harry Potter fans thanks to the special Gryffindor charm included in each one. Each bracelet is around the circumference of a wrist, making them suitable for both children and adults.
 
@@ -415,11 +415,11 @@ The joyful, personalised present they make is enhanced by their extreme durabili
 
 ✔️ A Bracelet Set for All Ages
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Gryffindor-Bracelet-Set/dp/B07PPWY5HK/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Hagrid Friendship Set](https://www.amazon.com/Wizarding-World-Hermione-Friendship-Collectible/dp/B08T1B969V/?ie=UTF8&tag=avadalove-20)
+### [23\. Hagrid Friendship Set](https://www.amazon.com/Wizarding-World-Hermione-Friendship-Collectible/dp/B08T1B969V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wizarding-World-Hermione-Friendship-Collectible/dp/B08T1B969V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wizarding-World-Hermione-Friendship-Collectible/dp/B08T1B969V/?ie=UTF8&tag=giftable02-20)
 
 This set of Harry Potter toys would be a great addition to any young wizard's collection, and Harry Potter is a fantastic book.
 
@@ -433,11 +433,11 @@ Two Magical Mini-figures and a Creature are included in the Harry Potter collect
 
 ✔️ A Touch of Realism to Playtime
 
-[Buy from Amazon](https://www.amazon.com/Wizarding-World-Hermione-Friendship-Collectible/dp/B08T1B969V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wizarding-World-Hermione-Friendship-Collectible/dp/B08T1B969V/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Snowy Owl Plush](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=avadalove-20)
+### [24\. Snowy Owl Plush](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=giftable02-20)
 
 Any aspiring wizard or fan of snowy owls would do well to have Wizard the Snowy Owl as a companion.
 
@@ -451,11 +451,11 @@ This stunning Snowy Owl has blue eyes and airbrushed details to go along with it
 
 ✔️ Cozy, Soft, and Fashionable
 
-[Buy from Amazon](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Douglas-Wizard-Snowy-Stuffed-Animal/dp/B00JIAOMJI/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Stainless Steel Water Bottle](https://www.amazon.com/Zak-Designs-Stainless-Flip-up-Locking/dp/B08BZDBZ21?ie=UTF8&tag=avadalove-20)
+### [25\. Stainless Steel Water Bottle](https://www.amazon.com/Zak-Designs-Stainless-Flip-up-Locking/dp/B08BZDBZ21?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Zak-Designs-Stainless-Flip-up-Locking/dp/B08BZDBZ21?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Zak-Designs-Stainless-Flip-up-Locking/dp/B08BZDBZ21?ie=UTF8&tag=giftable02-20)
 
 This captivating water bottle is not just a practical accessory but a meaningful reminder to stay hydrated and take care of yourself, especially during the festive season.
 
@@ -469,11 +469,11 @@ The Action Lid facilitates spill-free pouring of liquids. Rubber and plastic con
 
 ✔️ Stay Hydrated on Magical Adventures
 
-[Buy from Amazon](https://www.amazon.com/Zak-Designs-Stainless-Flip-up-Locking/dp/B08BZDBZ21?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Zak-Designs-Stainless-Flip-up-Locking/dp/B08BZDBZ21?ie=UTF8&tag=giftable02-20)
 
-### [26\. Hat Ceramic Trinket Tray](https://www.amazon.com/Harry-Potter-Sorting-Ceramic-Trinket/dp/B09BT4MH1B/?ie=UTF8&tag=avadalove-20)
+### [26\. Hat Ceramic Trinket Tray](https://www.amazon.com/Harry-Potter-Sorting-Ceramic-Trinket/dp/B09BT4MH1B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Harry-Potter-Sorting-Ceramic-Trinket/dp/B09BT4MH1B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Harry-Potter-Sorting-Ceramic-Trinket/dp/B09BT4MH1B/?ie=UTF8&tag=giftable02-20)
 
 If you care about your skin, you absolutely must read this. You will learn which products work best for your skin type, how to choose the ideal items for your routine, and when to use each product.
 
@@ -487,11 +487,11 @@ Crafted to perfection, this Harry Potter Sorting Ceramic Tray is a must-have for
 
 ✔️ Show Off Your Potterhead Pride
 
-[Buy from Amazon](https://www.amazon.com/Harry-Potter-Sorting-Ceramic-Trinket/dp/B09BT4MH1B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Harry-Potter-Sorting-Ceramic-Trinket/dp/B09BT4MH1B/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Organic Wooden Spoons](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=avadalove-20)
+### [27\. Organic Wooden Spoons](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=giftable02-20)
 
 Gifting a cook or host with this bamboo set is a terrific idea because it includes a variety of spoons for stirring, tasting, and serving.
 
@@ -505,11 +505,11 @@ The ideal set of cooking tools is a bamboo set because of its adaptability. Cook
 
 ✔️ Kitchen Magic in Every Spoonful
 
-[Buy from Amazon](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Riveira-Utensils-Spatulas-Nonstick-Cookware/dp/B08SK7YVCS?ie=UTF8&tag=giftable02-20)
 
-### [28\. Feather Quill Pen](https://www.amazon.com/Vintage-Feather-Calligraphy-Birthday-ChristmasGift/dp/B08DHR2MKX?ie=UTF8&tag=avadalove-20)
+### [28\. Feather Quill Pen](https://www.amazon.com/Vintage-Feather-Calligraphy-Birthday-ChristmasGift/dp/B08DHR2MKX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Feather-Calligraphy-Birthday-ChristmasGift/dp/B08DHR2MKX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Feather-Calligraphy-Birthday-ChristmasGift/dp/B08DHR2MKX?ie=UTF8&tag=giftable02-20)
 
 A wonderful gift bundle, indeed! The calligraphy pen is of high quality, and it's convenient that an ink bottle is included in the set.
 
@@ -523,7 +523,7 @@ The set is a wonderful present for both young and old. A present like that would
 
 ✔️ A Magical Gift for Every Wordsmith
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Feather-Calligraphy-Birthday-ChristmasGift/dp/B08DHR2MKX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Feather-Calligraphy-Birthday-ChristmasGift/dp/B08DHR2MKX?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Embossing Rolling Pin](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/726521794/wizard-pattern-embossing-rolling-pin)
 

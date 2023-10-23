@@ -17,11 +17,11 @@ Our unique train-themed shirts make a statement everywhere they go and are perfe
 
 Each piece in our handpicked selection is chosen to be an attractive and cherished addition to any gifts train lover's collection. Whether it's a gift for a birthday, anniversary, or simply a gesture to express your admiration, our gifts for train lovers promise to make them feel special and cherished, celebrating their passion for the world of trains in a truly remarkable way.
 
-### [1\. Vacuum Insulated Tumbler Mug](https://www.amazon.com/Tumbler-Freight-Personalized-Engraving-Included/dp/B07SXK4HLQ/?ie=UTF8&tag=avadalove-20)
+### [1\. Vacuum Insulated Tumbler Mug](https://www.amazon.com/Tumbler-Freight-Personalized-Engraving-Included/dp/B07SXK4HLQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tumbler-Freight-Personalized-Engraving-Included/dp/B07SXK4HLQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tumbler-Freight-Personalized-Engraving-Included/dp/B07SXK4HLQ/?ie=UTF8&tag=giftable02-20)
 
-Are you looking for a daily travel partner? This mug will do the the job, whether you're on your way to the office, school, or even **[a long road trip](https://avada.io/loveable/road-trips-gifts/)**.
+Are you looking for a daily travel partner? This mug will do the the job, whether you're on your way to the office, school, or even **[a long road trip](/road-trips-gifts/)**.
 
 Personalized just the way you want it! Each travel mug is laser engraved with the image that you see in the photo along with your own name or custom text. This mug can handle it all, hot or cold!
 
@@ -33,13 +33,13 @@ Personalized just the way you want it! Each travel mug is laser engraved with th
 
 ✔️ Prevent heat transfer
 
-[Buy from Amazon](https://www.amazon.com/Tumbler-Freight-Personalized-Engraving-Included/dp/B07SXK4HLQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tumbler-Freight-Personalized-Engraving-Included/dp/B07SXK4HLQ/?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Train Temporary Tattoos](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1215392099/train-party-supplies-temporary-tattoos)
 
 [](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1215392099/train-party-supplies-temporary-tattoos)
 
-These train tattoos are the perfect goodie bag favor, party decoration, birthday surprise and **[stay at home](https://avada.io/loveable/gifts-for-stay-at-home-dads/)** activity . 48 colored tattoos feature hand drawn designs of the coolest trains and railroads!
+These train tattoos are the perfect goodie bag favor, party decoration, birthday surprise and **[stay at home](/gifts-for-stay-at-home-dads/)** activity . 48 colored tattoos feature hand drawn designs of the coolest trains and railroads!
 
 The only glitter color is the silver foil sprinkled throughout the designs, which make it more glorious and twinkle !It is a fun addition to any train-themed party or at home activity. Buy it now to make sure your party's steamin' with this super fun set of temporary tattoos.
 
@@ -323,9 +323,9 @@ They can sip in style while showing off their love of their favorite hobby - Tra
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/913345125/dont-snore-dream-im-a-train-mug-funny)
 
-### [18\. Trains Shirt](https://www.amazon.com/Warning-Spontaneously-About-Trains-Shirt/dp/B07G9N4BNR?ie=UTF8&tag=avadalove-20)
+### [18\. Trains Shirt](https://www.amazon.com/Warning-Spontaneously-About-Trains-Shirt/dp/B07G9N4BNR?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Warning-Spontaneously-About-Trains-Shirt/dp/B07G9N4BNR?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Warning-Spontaneously-About-Trains-Shirt/dp/B07G9N4BNR?ie=UTF8&tag=giftable02-20)
 
 A Train shirt is perfect for men, women, dads and moms who love steam locomotives, freight trains, train tracks or model trains. This cool model railroad shirt features a fast-and-furious train graphic accompanied with the saying " Warning , I may spontaneously talk about trains” will surprise and delight your loved ones.
 
@@ -339,7 +339,7 @@ Send this as presents to train lover, rail fan, locomotive lover, train conducto
 
 ✔️ Bring a pleasant wearing experience throughout the day
 
-[Buy from Amazon](https://www.amazon.com/Warning-Spontaneously-About-Trains-Shirt/dp/B07G9N4BNR?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Warning-Spontaneously-About-Trains-Shirt/dp/B07G9N4BNR?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Train Piggy Bank](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1188397812/personalized-pewter-train-bank-piggy)
 
@@ -413,9 +413,9 @@ The key chain can be specially engraved anything you want, including logos, full
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/213014065/personalized-monogrammed-train-conductor)
 
-### [23\. Quartz Clock Black Forest House](https://www.amazon.com/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?ie=UTF8&tag=avadalove-20)
+### [23\. Quartz Clock Black Forest House](https://www.amazon.com/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?ie=UTF8&tag=giftable02-20)
 
 Cuckoo calls on the hour with echo. The clock has a battery operated movement with automatic night-off. The running-time of the batteries is about one year. The size refers only to the clock, without pendulum and weights.
 
@@ -429,7 +429,7 @@ This delicate design not only works as a clock but with the moving train and cat
 
 ✔️ Keep accurate time without the need for frequent adjustments
 
-[Buy from Amazon](https://www.amazon.com/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Train Night Light](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/458643838/train-night-light)
 
@@ -503,9 +503,9 @@ As a token of your love and appreciation for them, let's treat them to this exqu
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1046750817/train-metal-sign-custom-train-sign)
 
-### [28\. Novelty Boxer Shorts](https://www.amazon.com/Trains-Comical-Boxers-LazyOne-Underwear/dp/B01MT5SJQY/?ie=UTF8&tag=avadalove-20)
+### [28\. Novelty Boxer Shorts](https://www.amazon.com/Trains-Comical-Boxers-LazyOne-Underwear/dp/B01MT5SJQY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Trains-Comical-Boxers-LazyOne-Underwear/dp/B01MT5SJQY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Trains-Comical-Boxers-LazyOne-Underwear/dp/B01MT5SJQY/?ie=UTF8&tag=giftable02-20)
 
 It is a really fun gag gift for the train lover team. Humorous underwear will help them Go to bed happy with these comical boxer shorts.
 
@@ -519,7 +519,7 @@ They're sure to make you laugh with their clever puns. For the jokester in your 
 
 ✔️ A touch of humor and playfulness to your daily wear
 
-[Buy from Amazon](https://www.amazon.com/Trains-Comical-Boxers-LazyOne-Underwear/dp/B01MT5SJQY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Trains-Comical-Boxers-LazyOne-Underwear/dp/B01MT5SJQY/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Train Custom Wall Decoration](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1193090136/train-custom-wall-decoration-metal)
 
@@ -575,9 +575,9 @@ It is a great decoration for the train theme in the house. This sign came out am
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1218629638/train-name-art-personalized-train-gift?variation0=2637817421)
 
-### [32\. Kids Water Bottle](https://www.amazon.com/Lightzz-Water-Bottle-Glowing-Train/dp/B08RBT2WT1?ie=UTF8&tag=avadalove-20)
+### [32\. Kids Water Bottle](https://www.amazon.com/Lightzz-Water-Bottle-Glowing-Train/dp/B08RBT2WT1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lightzz-Water-Bottle-Glowing-Train/dp/B08RBT2WT1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lightzz-Water-Bottle-Glowing-Train/dp/B08RBT2WT1?ie=UTF8&tag=giftable02-20)
 
 Kids water bottle with 3D glowing train LED light is a creative ideal travel train engine gift for back to school girl boy child holiday camping picnic.
 
@@ -591,15 +591,15 @@ With a unique design, combining the 3D illusion effect with a water bottle, make
 
 ✔️ Encourage regular hydration in children
 
-[Buy from Amazon](https://www.amazon.com/Lightzz-Water-Bottle-Glowing-Train/dp/B08RBT2WT1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lightzz-Water-Bottle-Glowing-Train/dp/B08RBT2WT1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Historical Train Pocket Watch](https://www.amazon.com/Regulation-Pocket-Watch-150th-Aniversary/dp/B07N2HWTBN/?ie=UTF8&tag=avadalove-20)
+### [33\. Historical Train Pocket Watch](https://www.amazon.com/Regulation-Pocket-Watch-150th-Aniversary/dp/B07N2HWTBN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Regulation-Pocket-Watch-150th-Aniversary/dp/B07N2HWTBN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Regulation-Pocket-Watch-150th-Aniversary/dp/B07N2HWTBN/?ie=UTF8&tag=giftable02-20)
 
 After the completion of the transcontinental railroad, all of the thousands and thousands of deadlines, schedules, paychecks, and other details, such as train times for the next 150 years, were in large part decided by the RAILROAD WATCH.
 
-This watch marks an important milestone in train history. Gift Boxes with 2 Watch Chains " **[Cowboy Chain](https://avada.io/loveable/gifts-for-cowboys/)**" attached to Watch and Necklace Chain Included can be the ideal gift for the people who love trains in general and train history in particular.
+This watch marks an important milestone in train history. Gift Boxes with 2 Watch Chains " **[Cowboy Chain](/gifts-for-cowboys/)**" attached to Watch and Necklace Chain Included can be the ideal gift for the people who love trains in general and train history in particular.
 
 **Pros:**
 
@@ -609,11 +609,11 @@ This watch marks an important milestone in train history. Gift Boxes with 2 Watc
 
 ✔️ Bring to mind a sense of old elegance and charm
 
-[Buy from Amazon](https://www.amazon.com/Regulation-Pocket-Watch-150th-Aniversary/dp/B07N2HWTBN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Regulation-Pocket-Watch-150th-Aniversary/dp/B07N2HWTBN/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Toy Train Night Light](https://www.amazon.com/Illusion-Optical-Locomotive-Birthday-Children/dp/B07BDFCLC8/?ie=UTF8&tag=avadalove-20)
+### [34\. Toy Train Night Light](https://www.amazon.com/Illusion-Optical-Locomotive-Birthday-Children/dp/B07BDFCLC8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Illusion-Optical-Locomotive-Birthday-Children/dp/B07BDFCLC8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Illusion-Optical-Locomotive-Birthday-Children/dp/B07BDFCLC8/?ie=UTF8&tag=giftable02-20)
 
 Don't hesitate to send your beloved one, especially your children a toy train night light. They will absolutely immerse in a 3D optical illusion which spreads light through a small acrylic panel and it is not so dazzling.
 
@@ -627,11 +627,11 @@ Train light is ideal on a table, desk or night stand in a nursery in a playroom 
 
 ✔️ Can incorporate the train theme into their bedtime stories
 
-[Buy from Amazon](https://www.amazon.com/Illusion-Optical-Locomotive-Birthday-Children/dp/B07BDFCLC8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Illusion-Optical-Locomotive-Birthday-Children/dp/B07BDFCLC8/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Wooden Model Car Kits](https://www.amazon.com/ROKR-Puzzles-Adults-Wooden-Express/dp/B0833Y45HX/?ie=UTF8&tag=avadalove-20)
+### [35\. Wooden Model Car Kits](https://www.amazon.com/ROKR-Puzzles-Adults-Wooden-Express/dp/B0833Y45HX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ROKR-Puzzles-Adults-Wooden-Express/dp/B0833Y45HX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ROKR-Puzzles-Adults-Wooden-Express/dp/B0833Y45HX/?ie=UTF8&tag=giftable02-20)
 
 With safe, eco-friendly materials, the native wood with good conscience and quality, this wooden model car kit is a product for people of all ages who love trains.
 
@@ -645,11 +645,11 @@ With safe, eco-friendly materials, the native wood with good conscience and qual
 
 ✔️ Require creativity and problem-solving skills
 
-[Buy from Amazon](https://www.amazon.com/ROKR-Puzzles-Adults-Wooden-Express/dp/B0833Y45HX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ROKR-Puzzles-Adults-Wooden-Express/dp/B0833Y45HX/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Vintage Train Embossed Leather Writing Journal Notebook](https://www.amazon.com/Embossed-Notebook-Sketchbook-Notebooks-RedBronze/dp/B08CMSPQMD?ie=UTF8&tag=avadalove-20)
+### [36\. Vintage Train Embossed Leather Writing Journal Notebook](https://www.amazon.com/Embossed-Notebook-Sketchbook-Notebooks-RedBronze/dp/B08CMSPQMD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Embossed-Notebook-Sketchbook-Notebooks-RedBronze/dp/B08CMSPQMD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Embossed-Notebook-Sketchbook-Notebooks-RedBronze/dp/B08CMSPQMD?ie=UTF8&tag=giftable02-20)
 
 This notebook can be the unique gift for you to send to a train lover. Let this notebook record their daily experience in a special way since each journal is uniquely crafted, this makes your journal distinctively.
 
@@ -663,11 +663,11 @@ It is also a special keepsake for your thoughts, plans & ideas. Every leather jo
 
 ✔️ Store memories, thoughts, and creative ideas within its pages
 
-[Buy from Amazon](https://www.amazon.com/Embossed-Notebook-Sketchbook-Notebooks-RedBronze/dp/B08CMSPQMD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Embossed-Notebook-Sketchbook-Notebooks-RedBronze/dp/B08CMSPQMD?ie=UTF8&tag=giftable02-20)
 
-### [37\. Mugzie Trains and Signs Travel Mug](https://www.amazon.com/Mugzie-Trains-Travel-Insulated-Wetsuit/dp/B009FQZGHW?ie=UTF8&tag=avadalove-20)
+### [37\. Mugzie Trains and Signs Travel Mug](https://www.amazon.com/Mugzie-Trains-Travel-Insulated-Wetsuit/dp/B009FQZGHW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mugzie-Trains-Travel-Insulated-Wetsuit/dp/B009FQZGHW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mugzie-Trains-Travel-Insulated-Wetsuit/dp/B009FQZGHW?ie=UTF8&tag=giftable02-20)
 
 Stainless Steel Travel Mug is the ideal present for train lovers. Covered with water-proof, neoprene wetsuit material, it is useful for traveling by train to a far away place.
 
@@ -681,7 +681,7 @@ Stain-resistant cover is printed in hi-resolution and has full-wrap coverage. Sp
 
 ✔️ Increase the distinctiveness of their drinkware
 
-[Buy from Amazon](https://www.amazon.com/Mugzie-Trains-Travel-Insulated-Wetsuit/dp/B009FQZGHW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mugzie-Trains-Travel-Insulated-Wetsuit/dp/B009FQZGHW?ie=UTF8&tag=giftable02-20)
 
 ## Final word
 

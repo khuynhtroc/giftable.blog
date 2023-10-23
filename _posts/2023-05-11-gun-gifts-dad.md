@@ -681,9 +681,9 @@ The "Don't Even Think About It - My Daddy Has Guns" T-shirt is available in vari
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1227053026/some-dads-have-tattoos-and-shoot-guns?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Don%E2%80%99t+Even+Think+About+It+My+Daddy+Has+Guns+T-shirt&ref=sr_gallery-1-11&sts=1&organic_search_click=1)
 
-### [38\. Feyachi Brass Shell Catcher](https://www.amazon.com/Feyachi-Tactical-Cartridge-Collector-Shooting/dp/B07NW1H8WF/?ie=UTF8&tag=avadalove-20)
+### [38\. Feyachi Brass Shell Catcher](https://www.amazon.com/Feyachi-Tactical-Cartridge-Collector-Shooting/dp/B07NW1H8WF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Feyachi-Tactical-Cartridge-Collector-Shooting/dp/B07NW1H8WF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Feyachi-Tactical-Cartridge-Collector-Shooting/dp/B07NW1H8WF/?ie=UTF8&tag=giftable02-20)
 
 This product's springy frame is stiffer and bigger than other brands; caught brass will not twist the frame, preventing ejection failures and jams.
 
@@ -697,11 +697,11 @@ The light mesh bag's bottom zipper is ideal for easy shell emptying. When hot br
 
 ✔️ Versatile tool compatible with various firearms
 
-[Buy from Amazon](https://www.amazon.com/Feyachi-Tactical-Cartridge-Collector-Shooting/dp/B07NW1H8WF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Feyachi-Tactical-Cartridge-Collector-Shooting/dp/B07NW1H8WF/?ie=UTF8&tag=giftable02-20)
 
-### [39\. Gun Safe with Fingerprint Identification](https://www.amazon.com/AWESAFE-Fingerprint-Identification-Biometric-Capacity/dp/B07TM45FRS?ie=UTF8&tag=avadalove-20)
+### [39\. Gun Safe with Fingerprint Identification](https://www.amazon.com/AWESAFE-Fingerprint-Identification-Biometric-Capacity/dp/B07TM45FRS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AWESAFE-Fingerprint-Identification-Biometric-Capacity/dp/B07TM45FRS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AWESAFE-Fingerprint-Identification-Biometric-Capacity/dp/B07TM45FRS?ie=UTF8&tag=giftable02-20)
 
 Safely stores two normal pistols or one larger pistol and extra ammunition in this gun safe; pistol safe with a digital keypad for further security. It's critical that your father secures his weaponry. It is a responsible method to properly store them in our Pistol Lock Box.
 
@@ -715,11 +715,11 @@ For durability and pistol protection, the handgun safe is built with strong stee
 
 ✔️ Easy setup and user-friendly interface for all
 
-[Buy from Amazon](https://www.amazon.com/AWESAFE-Fingerprint-Identification-Biometric-Capacity/dp/B07TM45FRS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AWESAFE-Fingerprint-Identification-Biometric-Capacity/dp/B07TM45FRS?ie=UTF8&tag=giftable02-20)
 
-### [40\. Firefly V2 Flashlight Laser Sight](https://www.amazon.com/Flashlight-Function-Magnetic-Charging-Green-Laser/dp/B07R7J3643?ie=UTF8&tag=avadalove-20)
+### [40\. Firefly V2 Flashlight Laser Sight](https://www.amazon.com/Flashlight-Function-Magnetic-Charging-Green-Laser/dp/B07R7J3643?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Flashlight-Function-Magnetic-Charging-Green-Laser/dp/B07R7J3643?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Flashlight-Function-Magnetic-Charging-Green-Laser/dp/B07R7J3643?ie=UTF8&tag=giftable02-20)
 
 Magnetic recharging allows your father to retain the product fastened to the pistol while charging so that the zero is not lost. This green laser and spotlight are extremely powerful, and they can be seen up to 100 meters away with the naked eye. This strobe-capable green laser lamp may be mounted on any handgun that has a Picatinny or Weaver rail.
 
@@ -733,11 +733,11 @@ This laser, like any other view or optic, can be adjusted and zeroed in by your 
 
 ✔️ deal tool for various outdoor and indoor tasks
 
-[Buy from Amazon](https://www.amazon.com/Flashlight-Function-Magnetic-Charging-Green-Laser/dp/B07R7J3643?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Flashlight-Function-Magnetic-Charging-Green-Laser/dp/B07R7J3643?ie=UTF8&tag=giftable02-20)
 
-### [41\. Vortex Optics Venom Red Dot Sights](https://www.amazon.com/Vortex-Optics-Venom-Red-Sight/dp/B00S2P2J90/?ie=UTF8&tag=avadalove-20)
+### [41\. Vortex Optics Venom Red Dot Sights](https://www.amazon.com/Vortex-Optics-Venom-Red-Sight/dp/B00S2P2J90/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vortex-Optics-Venom-Red-Sight/dp/B00S2P2J90/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vortex-Optics-Venom-Red-Sight/dp/B00S2P2J90/?ie=UTF8&tag=giftable02-20)
 
 The Venom Red Dot Sight-3 MOA allows for quick target acquisition while maintaining an accurate point of aim, allowing you to get rounds down range and on target quickly.
 
@@ -751,11 +751,11 @@ A crisp, broad field of view is provided by high-quality, completely multi-coate
 
 ✔️ Versatile sight suitable for different shooting scenarios
 
-[Buy from Amazon](https://www.amazon.com/Vortex-Optics-Venom-Red-Sight/dp/B00S2P2J90/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vortex-Optics-Venom-Red-Sight/dp/B00S2P2J90/?ie=UTF8&tag=giftable02-20)
 
-### [42\. Barska AC10380 Plinker](https://www.amazon.com/BARSKA-AC10380-3-9x32-Plinker-22-Riflescope/dp/B001JJCHWK?ie=UTF8&tag=avadalove-20)
+### [42\. Barska AC10380 Plinker](https://www.amazon.com/BARSKA-AC10380-3-9x32-Plinker-22-Riflescope/dp/B001JJCHWK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BARSKA-AC10380-3-9x32-Plinker-22-Riflescope/dp/B001JJCHWK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BARSKA-AC10380-3-9x32-Plinker-22-Riflescope/dp/B001JJCHWK?ie=UTF8&tag=giftable02-20)
 
 The BARKSA Plinker-22 Scope is designed to deliver outstanding performance with your dad's rifles and rimfires. The scope features a 30/30 crosshair reticle for quick target acquisition, making it excellent for any sort of shooting.
 
@@ -769,11 +769,11 @@ At 100 yards, the scope is parallax-free, making it simple to target at close ra
 
 ✔️ Easy adjustments ensure effortless aiming
 
-[Buy from Amazon](https://www.amazon.com/BARSKA-AC10380-3-9x32-Plinker-22-Riflescope/dp/B001JJCHWK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BARSKA-AC10380-3-9x32-Plinker-22-Riflescope/dp/B001JJCHWK?ie=UTF8&tag=giftable02-20)
 
-### [43\. Caldwell Lead Sled Weight Bag](https://www.amazon.com/Caldwell-Lead-Sled-Large-Weight/dp/B001OT82PQ/?ie=UTF8&tag=avadalove-20)
+### [43\. Caldwell Lead Sled Weight Bag](https://www.amazon.com/Caldwell-Lead-Sled-Large-Weight/dp/B001OT82PQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Caldwell-Lead-Sled-Large-Weight/dp/B001OT82PQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Caldwell-Lead-Sled-Large-Weight/dp/B001OT82PQ/?ie=UTF8&tag=giftable02-20)
 
 Caldwell's Lead Sled Weight Bag is built to fit snugly into the weight tray and comes with two hands for easy transport and positioning. It can also store lead shot, sand, or other weighted material and is compatible with most lead sled models.
 
@@ -787,11 +787,11 @@ This item is made of durable materials to ensure that it can resist transportati
 
 ✔️ Easy to assemble and transport to the range
 
-[Buy from Amazon](https://www.amazon.com/Caldwell-Lead-Sled-Large-Weight/dp/B001OT82PQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Caldwell-Lead-Sled-Large-Weight/dp/B001OT82PQ/?ie=UTF8&tag=giftable02-20)
 
-### [44\. Magpul MBUS Flip-Up Backup Sights](https://www.amazon.com/Magpul-Flip-Up-Backup-Sights-Black/dp/B004RR0N8Q/?ie=UTF8&tag=avadalove-20)
+### [44\. Magpul MBUS Flip-Up Backup Sights](https://www.amazon.com/Magpul-Flip-Up-Backup-Sights-Black/dp/B004RR0N8Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magpul-Flip-Up-Backup-Sights-Black/dp/B004RR0N8Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magpul-Flip-Up-Backup-Sights-Black/dp/B004RR0N8Q/?ie=UTF8&tag=giftable02-20)
 
 The Magpul MBUS Back-Up Sight is a low-cost, foldable backup sight that is color injection molded. It's made of a durable, impact-resistant polymer that's lightweight and resilient to abuse in the field. The spring-loaded flip-up sight is readily engaged by squeezing the top or from either side.
 
@@ -805,11 +805,11 @@ Under impact, the detent and spring pressure holds the sight erect while allowin
 
 ✔️ Sleek and low-profile design enhances aesthetics
 
-[Buy from Amazon](https://www.amazon.com/Magpul-Flip-Up-Backup-Sights-Black/dp/B004RR0N8Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magpul-Flip-Up-Backup-Sights-Black/dp/B004RR0N8Q/?ie=UTF8&tag=giftable02-20)
 
-### [45\. Bipod Adapter](https://www.amazon.com/CVLIFE-Adapter-T-Nuts-Screws-Wrench/dp/B09FQ1RKML?ie=UTF8&tag=avadalove-20)
+### [45\. Bipod Adapter](https://www.amazon.com/CVLIFE-Adapter-T-Nuts-Screws-Wrench/dp/B09FQ1RKML?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CVLIFE-Adapter-T-Nuts-Screws-Wrench/dp/B09FQ1RKML?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CVLIFE-Adapter-T-Nuts-Screws-Wrench/dp/B09FQ1RKML?ie=UTF8&tag=giftable02-20)
 
 The Bipod Adapter is composed of high-quality aluminum that has been anodized in a flat dark earth finish. It attaches on rails and works with the most popular bipods on the market. When the bipod is detached, it can also be used as a sling stud.
 
@@ -823,11 +823,11 @@ T-nuts have been upgraded to give wider support for the bipod. Two convex blocks
 
 ✔️ Sturdy build ensures stability during shooting
 
-[Buy from Amazon](https://www.amazon.com/CVLIFE-Adapter-T-Nuts-Screws-Wrench/dp/B09FQ1RKML?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CVLIFE-Adapter-T-Nuts-Screws-Wrench/dp/B09FQ1RKML?ie=UTF8&tag=giftable02-20)
 
-### [46\. Recoil Reducing Pad](https://www.amazon.com/Allen-Recoil-Eraser-Reducing-Shotguns/dp/B003C6PXKQ/?ie=UTF8&tag=avadalove-20)
+### [46\. Recoil Reducing Pad](https://www.amazon.com/Allen-Recoil-Eraser-Reducing-Shotguns/dp/B003C6PXKQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Allen-Recoil-Eraser-Reducing-Shotguns/dp/B003C6PXKQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Allen-Recoil-Eraser-Reducing-Shotguns/dp/B003C6PXKQ/?ie=UTF8&tag=giftable02-20)
 
 The high-tech recoil-reducing polymer in our Recoil Reducing Pad reduces felt recoil by up to 70%. To help lessen the danger of injury or suffering associated with gun recoil and shock, recoil pads for rifles and shotguns comprise hyper-absorbent visco-elastic gel.
 
@@ -841,11 +841,11 @@ This shotgun recoil pad offers extra steadiness for better follow-up shots, whet
 
 ✔️ Reduces shoulder fatigue for extended shooting sessions
 
-[Buy from Amazon](https://www.amazon.com/Allen-Recoil-Eraser-Reducing-Shotguns/dp/B003C6PXKQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Allen-Recoil-Eraser-Reducing-Shotguns/dp/B003C6PXKQ/?ie=UTF8&tag=giftable02-20)
 
-### [47\. Sig Romeo MSR Red Dot Sight](https://www.amazon.com/SIG-Romeo-MSR-RED-Sight/dp/B085B49JX1/?ie=UTF8&tag=avadalove-20)
+### [47\. Sig Romeo MSR Red Dot Sight](https://www.amazon.com/SIG-Romeo-MSR-RED-Sight/dp/B085B49JX1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SIG-Romeo-MSR-RED-Sight/dp/B085B49JX1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SIG-Romeo-MSR-RED-Sight/dp/B085B49JX1/?ie=UTF8&tag=giftable02-20)
 
 The Sig Romeo MSR Red Dot Sight is extremely adaptable and works with a broad range of firearms, including handguns and even air rifles. It has a fully sealed aluminum design that makes it a very sturdy alternative for any use scenario.
 
@@ -859,11 +859,11 @@ In any condition, it has high-performance lens coatings for exceptional light tr
 
 ✔️ Rugged design built to endure demanding environments
 
-[Buy from Amazon](https://www.amazon.com/SIG-Romeo-MSR-RED-Sight/dp/B085B49JX1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SIG-Romeo-MSR-RED-Sight/dp/B085B49JX1/?ie=UTF8&tag=giftable02-20)
 
-### [48\. Bipod with Picatinny Adapter](https://www.amazon.com/CVLIFE-Inches-Tactical-Adjustable-Adapter/dp/B01E4YVCOA/?ie=UTF8&tag=avadalove-20)
+### [48\. Bipod with Picatinny Adapter](https://www.amazon.com/CVLIFE-Inches-Tactical-Adjustable-Adapter/dp/B01E4YVCOA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CVLIFE-Inches-Tactical-Adjustable-Adapter/dp/B01E4YVCOA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CVLIFE-Inches-Tactical-Adjustable-Adapter/dp/B01E4YVCOA/?ie=UTF8&tag=giftable02-20)
 
 The bipod is equipped with a Picatinny adapter and may be rapidly connected or withdrawn using the swivel stud. With its adjustable leg length and return springs, your father could customize the length to match his hunting needs.
 
@@ -877,11 +877,11 @@ The bipod is also comprised of hardened steel and aluminum, with a non-rust blac
 
 ✔️ Perfect for various tactical and hunting applications
 
-[Buy from Amazon](https://www.amazon.com/CVLIFE-Inches-Tactical-Adjustable-Adapter/dp/B01E4YVCOA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CVLIFE-Inches-Tactical-Adjustable-Adapter/dp/B01E4YVCOA/?ie=UTF8&tag=giftable02-20)
 
-### [49\. BOG DeathGrip Tripods](https://www.amazon.com/DeathGrip-Aluminum-Lightweight-Hands-Free-Operation/dp/B07KMPCVMH/?ie=UTF8&tag=avadalove-20)
+### [49\. BOG DeathGrip Tripods](https://www.amazon.com/DeathGrip-Aluminum-Lightweight-Hands-Free-Operation/dp/B07KMPCVMH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DeathGrip-Aluminum-Lightweight-Hands-Free-Operation/dp/B07KMPCVMH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DeathGrip-Aluminum-Lightweight-Hands-Free-Operation/dp/B07KMPCVMH/?ie=UTF8&tag=giftable02-20)
 
 It has a 3-position leg lock that can safeguard any firearm for hands-free use in the prone, kneeling, sitting, and standing positions.
 
@@ -895,11 +895,11 @@ This solid shooting platform has a clamping head that pans 360 degrees and has t
 
 ✔️ Ideal for various activities like vlogging and filming
 
-[Buy from Amazon](https://www.amazon.com/DeathGrip-Aluminum-Lightweight-Hands-Free-Operation/dp/B07KMPCVMH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DeathGrip-Aluminum-Lightweight-Hands-Free-Operation/dp/B07KMPCVMH/?ie=UTF8&tag=giftable02-20)
 
-### [50\. Biometric Gun Safe for Pistols](https://www.amazon.com/ONNAIS-Gun-Safe-Quick-Access-Fingerprint/dp/B08J4G1HQZ/?ie=UTF8&tag=avadalove-20)
+### [50\. Biometric Gun Safe for Pistols](https://www.amazon.com/ONNAIS-Gun-Safe-Quick-Access-Fingerprint/dp/B08J4G1HQZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ONNAIS-Gun-Safe-Quick-Access-Fingerprint/dp/B08J4G1HQZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ONNAIS-Gun-Safe-Quick-Access-Fingerprint/dp/B08J4G1HQZ/?ie=UTF8&tag=giftable02-20)
 
 For a family, a fingerprint gun safe or a quick-access gun safe is essential. Whether it's to keep your father's firearms safe from kids or simply to keep his belongings out of reach while he's not around. This product is in charge of keeping them safe and protected in this pistol safe, just where he needs them.
 
@@ -913,11 +913,11 @@ Biometric fingerprint technology, which is a proven mechanism that is more preci
 
 ✔️ Provides peace of mind for gun owners
 
-[Buy from Amazon](https://www.amazon.com/ONNAIS-Gun-Safe-Quick-Access-Fingerprint/dp/B08J4G1HQZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ONNAIS-Gun-Safe-Quick-Access-Fingerprint/dp/B08J4G1HQZ/?ie=UTF8&tag=giftable02-20)
 
-### [51\. Glock Magazine Speed Loader](https://www.amazon.com/Glock-Magazine-Speed-Loader-357/dp/B004Y27DVY?ie=UTF8&tag=avadalove-20)
+### [51\. Glock Magazine Speed Loader](https://www.amazon.com/Glock-Magazine-Speed-Loader-357/dp/B004Y27DVY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Glock-Magazine-Speed-Loader-357/dp/B004Y27DVY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Glock-Magazine-Speed-Loader-357/dp/B004Y27DVY?ie=UTF8&tag=giftable02-20)
 
 Even with a larger number of bullets, the Glock loading aid included in the typical pistol set helps to load. It has a robust Glock polymer design that glides easily over the Glock magazine. The Glock rapid loader has a simple design but performs admirably.
 
@@ -931,11 +931,11 @@ It assists your dad get leverage to push down on the springs to make it simpler 
 
 ✔️ Must-have tool for Glock owners
 
-[Buy from Amazon](https://www.amazon.com/Glock-Magazine-Speed-Loader-357/dp/B004Y27DVY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Glock-Magazine-Speed-Loader-357/dp/B004Y27DVY?ie=UTF8&tag=giftable02-20)
 
-### [52\. Magpul Bipod for Hunting and Shooting](https://www.amazon.com/Magpul-Rifle-Bipod-Picatinny-Black/dp/B07DMBBXY5?ie=UTF8&tag=avadalove-20)
+### [52\. Magpul Bipod for Hunting and Shooting](https://www.amazon.com/Magpul-Rifle-Bipod-Picatinny-Black/dp/B07DMBBXY5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magpul-Rifle-Bipod-Picatinny-Black/dp/B07DMBBXY5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magpul-Rifle-Bipod-Picatinny-Black/dp/B07DMBBXY5?ie=UTF8&tag=giftable02-20)
 
 The Magpul Bipod was created with one-handed adjustability in mind. The Magpul Bipod is lighter than many more expensive bipods, at slightly over 11 ounces.
 
@@ -949,11 +949,11 @@ Spring-tension legs also stow neatly forward and snap down and lock into place w
 
 ✔️ Lightweight design without compromising durability
 
-[Buy from Amazon](https://www.amazon.com/Magpul-Rifle-Bipod-Picatinny-Black/dp/B07DMBBXY5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magpul-Rifle-Bipod-Picatinny-Black/dp/B07DMBBXY5?ie=UTF8&tag=giftable02-20)
 
-### [53\. Tactical 1 Offset Picatinny Rail Mount for Flashlights](https://www.amazon.com/Monstrum-Tactical-Offset-Picatinny-Flashlights/dp/B00JQNCMJO/?ie=UTF8&tag=avadalove-20)
+### [53\. Tactical 1 Offset Picatinny Rail Mount for Flashlights](https://www.amazon.com/Monstrum-Tactical-Offset-Picatinny-Flashlights/dp/B00JQNCMJO/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Monstrum-Tactical-Offset-Picatinny-Flashlights/dp/B00JQNCMJO/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Monstrum-Tactical-Offset-Picatinny-Flashlights/dp/B00JQNCMJO/?ie=UTF8&tag=giftable02-20)
 
 Offset rail mount for illumination on rifles and shotguns with rails. This item is made of lightweight, high-quality aluminum. The offset construction allows for a variety of positioning choices.
 
@@ -967,11 +967,11 @@ The mount has a diameter of 1" and can accommodate most typical tactical flashli
 
 ✔️ Versatile accessory for various tactical applications
 
-[Buy from Amazon](https://www.amazon.com/Monstrum-Tactical-Offset-Picatinny-Flashlights/dp/B00JQNCMJO/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Monstrum-Tactical-Offset-Picatinny-Flashlights/dp/B00JQNCMJO/?ie=UTF8&tag=giftable02-20)
 
-### [54\. Integrated Snap Cap for Dry Fire Training](https://www.amazon.com/Pink-Rhino-Laser-Training-Cartridge/dp/B07K34W265/?ie=UTF8&tag=avadalove-20)
+### [54\. Integrated Snap Cap for Dry Fire Training](https://www.amazon.com/Pink-Rhino-Laser-Training-Cartridge/dp/B07K34W265/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pink-Rhino-Laser-Training-Cartridge/dp/B07K34W265/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pink-Rhino-Laser-Training-Cartridge/dp/B07K34W265/?ie=UTF8&tag=giftable02-20)
 
 This product will amaze your father a lot. Its cartridge goes into an unloaded firearm's chamber like a regular cartridge and may be withdrawn by gently pressing it out with a cleaning rod – When dry firing, a built-in rubber snap cover protects the firing pin.
 
@@ -985,11 +985,11 @@ Fits any 9mm handgun, single or double action, and activates on the fall of the 
 
 ✔️ Convenient and cost-effective alternative to live ammo
 
-[Buy from Amazon](https://www.amazon.com/Pink-Rhino-Laser-Training-Cartridge/dp/B07K34W265/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pink-Rhino-Laser-Training-Cartridge/dp/B07K34W265/?ie=UTF8&tag=giftable02-20)
 
-### [55\. MakerShot Magazine Speed Loader](https://www.amazon.com/MakerShot-Custom-Magazine-Speedloader-Browning/dp/B01N2YR4D0/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+### [55\. MakerShot Magazine Speed Loader](https://www.amazon.com/MakerShot-Custom-Magazine-Speedloader-Browning/dp/B01N2YR4D0/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MakerShot-Custom-Magazine-Speedloader-Browning/dp/B01N2YR4D0/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MakerShot-Custom-Magazine-Speedloader-Browning/dp/B01N2YR4D0/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 Your dad can drop shots into each magazine using MakerShot fast loaders instead of painstakingly pressing each round with his thumbs. At the range, an easy load-assist will keep his fingers from getting sore. Load time is reduced thanks to excellent speed, ergonomics, and durability, allowing him to go back to firing.
 
@@ -1003,7 +1003,7 @@ There are no springs in this solid, compact design, which increases longevity an
 
 ✔️ Durable construction ensures reliable performance
 
-[Buy from Amazon](https://www.amazon.com/MakerShot-Custom-Magazine-Speedloader-Browning/dp/B01N2YR4D0/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MakerShot-Custom-Magazine-Speedloader-Browning/dp/B01N2YR4D0/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 ### [56\. You’re The Rerest Of Them Gun Gifts Dad Mug](https://loveable.ai/products/youre-the-rerest-of-them-all-well-done-medium-well-and-you-personalized-white-mug-best-gift-for-family-for-himher-fathers-day-gift-gift-for-dadmom-306ihpnpmu658?variant=44563805208808?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gun-gifts-for-dad-who-enjoys-hunting-and-shooting)
 

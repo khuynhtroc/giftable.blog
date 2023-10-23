@@ -35,9 +35,9 @@ This remarkable watch features a genuine leather strap, ensuring both comfort an
 
 [Buy from Loveable](https://loveable.ai/products/our-journey-is-an-amazing-ride-personalized-openwatch-best-gift-for-husband-grandpa-dad-208ihpthwa020?utm_source=avada&ranking=&utm_source=&utm_campaign=game-of-thrones-gifts-for-him-who-cant-get-enough-of-westeros)
 
-### [2\. Toilet Tag](https://www.amazon.com/Toilet-Tag-Hilarious-Adults-Share/dp/B07WJXCC66?ie=UTF8&tag=avadalove-20)
+### [2\. Toilet Tag](https://www.amazon.com/Toilet-Tag-Hilarious-Adults-Share/dp/B07WJXCC66?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toilet-Tag-Hilarious-Adults-Share/dp/B07WJXCC66?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toilet-Tag-Hilarious-Adults-Share/dp/B07WJXCC66?ie=UTF8&tag=giftable02-20)
 
 Toilet tag is a hilarious new game that takes two people on an unpredictable, revealing, and life changing journey against their potty partner, without ever leaving the bathroom.
 
@@ -51,7 +51,7 @@ It's a great conversation starter and a fun wedding/engagement or gag gift. The 
 
 ✔️ An element of excitement and thrill
 
-[Buy from Amazon](https://www.amazon.com/Toilet-Tag-Hilarious-Adults-Share/dp/B07WJXCC66?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toilet-Tag-Hilarious-Adults-Share/dp/B07WJXCC66?ie=UTF8&tag=giftable02-20)
 
 ### [3\. White Wolf Ring](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/861696684/925-silver-wolf-ring?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=White+Wolf+Ring&ref=sr_gallery-1-3&pro=1&frs=1&organic_search_click=1)
 
@@ -413,9 +413,9 @@ It provides a unique and immersive experience for fans who wish to explore the s
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/679779159/game-of-thrones-inspired-valentines-day)
 
-### [23\. Horn Mug](https://www.amazon.com/Thor-Horn-Drinking-Wooden-Base/dp/B07Y3BZWPY/?ie=UTF8&tag=avadalove-20)
+### [23\. Horn Mug](https://www.amazon.com/Thor-Horn-Drinking-Wooden-Base/dp/B07Y3BZWPY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thor-Horn-Drinking-Wooden-Base/dp/B07Y3BZWPY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thor-Horn-Drinking-Wooden-Base/dp/B07Y3BZWPY/?ie=UTF8&tag=giftable02-20)
 
 Your man can now enjoy the authentic design, giant mug and feeling of drinking beer like a proper Viking! It is a great Game of Thrones gift to give him to celebrate a special day.
 
@@ -429,11 +429,11 @@ Made from a solid piece of horn, it will feel just right in his hands and he sur
 
 ✔️ Show your love for the TV Series
 
-[Buy from Amazon](https://www.amazon.com/Thor-Horn-Drinking-Wooden-Base/dp/B07Y3BZWPY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thor-Horn-Drinking-Wooden-Base/dp/B07Y3BZWPY/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Whiskey Gift Set](https://www.amazon.com/Premium-Whiskey-Stones-Gift-Stainless-Steel/dp/B07NNYN4BW?ie=UTF8&tag=avadalove-20)
+### [24\. Whiskey Gift Set](https://www.amazon.com/Premium-Whiskey-Stones-Gift-Stainless-Steel/dp/B07NNYN4BW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Premium-Whiskey-Stones-Gift-Stainless-Steel/dp/B07NNYN4BW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Premium-Whiskey-Stones-Gift-Stainless-Steel/dp/B07NNYN4BW?ie=UTF8&tag=giftable02-20)
 
 Give him this luxurious **[whiskey](https://avada.io/loveable/whiskey-gifts-men/)** stone set to enjoy drinking his favorite wine with the fullest flavor!
 
@@ -447,11 +447,11 @@ The greater the surface area, the quicker the chilling. These extra-large chilli
 
 ✔️ Make your home bar more apealing
 
-[Buy from Amazon](https://www.amazon.com/Premium-Whiskey-Stones-Gift-Stainless-Steel/dp/B07NNYN4BW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Premium-Whiskey-Stones-Gift-Stainless-Steel/dp/B07NNYN4BW?ie=UTF8&tag=giftable02-20)
 
-### [25\. Sword Throne Mug](https://www.amazon.com/Pacific-Giftware-Legends-Thrones-Tankard/dp/B01N64QPSG/?ie=UTF8&tag=avadalove-20)
+### [25\. Sword Throne Mug](https://www.amazon.com/Pacific-Giftware-Legends-Thrones-Tankard/dp/B01N64QPSG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pacific-Giftware-Legends-Thrones-Tankard/dp/B01N64QPSG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pacific-Giftware-Legends-Thrones-Tankard/dp/B01N64QPSG/?ie=UTF8&tag=giftable02-20)
 
 Perfect merchandise gift for Game Of Thrones fans! Give this dragon sword mug to your beloved man as a special gift. He will absolutely fall in love with your gift at the first sight.
 
@@ -465,11 +465,11 @@ Made of designer quality composite resin and hand painted, its look is very fant
 
 ✔️ A touch of medieval charm and fantasy to any space
 
-[Buy from Amazon](https://www.amazon.com/Pacific-Giftware-Legends-Thrones-Tankard/dp/B01N64QPSG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pacific-Giftware-Legends-Thrones-Tankard/dp/B01N64QPSG/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Beer Glass](https://www.amazon.com/Drink-Things-Bottle-Opener-Casterly/dp/B0747HWLXX/?ie=UTF8&tag=avadalove-20)
+### [26\. Beer Glass](https://www.amazon.com/Drink-Things-Bottle-Opener-Casterly/dp/B0747HWLXX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Drink-Things-Bottle-Opener-Casterly/dp/B0747HWLXX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Drink-Things-Bottle-Opener-Casterly/dp/B0747HWLXX/?ie=UTF8&tag=giftable02-20)
 
 If your husband or boyfriend is a Game of Thrones fan, he will be obsessed with this beer glass along with the series’ symbol.
 
@@ -483,11 +483,11 @@ With this gift, your loved one will drink a beer like a real Lannister and feel 
 
 ✔️ Available in a large size
 
-[Buy from Amazon](https://www.amazon.com/Drink-Things-Bottle-Opener-Casterly/dp/B0747HWLXX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Drink-Things-Bottle-Opener-Casterly/dp/B0747HWLXX/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Viking Drinking Horn](https://www.amazon.com/Thor-Horn-Large-Viking-Drinking/dp/B07W819W8P?ie=UTF8&tag=avadalove-20)
+### [27\. Viking Drinking Horn](https://www.amazon.com/Thor-Horn-Large-Viking-Drinking/dp/B07W819W8P?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thor-Horn-Large-Viking-Drinking/dp/B07W819W8P?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thor-Horn-Large-Viking-Drinking/dp/B07W819W8P?ie=UTF8&tag=giftable02-20)
 
 Let your husband conquer the day like Vikings and feel great while guzzling beer with a Viking drinking horn.
 
@@ -501,11 +501,11 @@ It brings the age old traditions alive with a 20 oz large capacity beer horn whi
 
 ✔️ Distinctive and memorable gift for enthusiasts of Viking culture
 
-[Buy from Amazon](https://www.amazon.com/Thor-Horn-Large-Viking-Drinking/dp/B07W819W8P?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thor-Horn-Large-Viking-Drinking/dp/B07W819W8P?ie=UTF8&tag=giftable02-20)
 
-### [28\. Woven Throw Blanket](https://www.amazon.com/Potter-Gryffindor-Shield-Tapestry-Blanket/dp/B00BT17XQI?ie=UTF8&tag=avadalove-20)
+### [28\. Woven Throw Blanket](https://www.amazon.com/Potter-Gryffindor-Shield-Tapestry-Blanket/dp/B00BT17XQI?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Potter-Gryffindor-Shield-Tapestry-Blanket/dp/B00BT17XQI?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Potter-Gryffindor-Shield-Tapestry-Blanket/dp/B00BT17XQI?ie=UTF8&tag=giftable02-20)
 
 Are you looking for an impressive gift to give your man on special occasions? If he is a big fan of the famous series “Game of Thrones”, you had better get this woven throw blanket to give him.
 
@@ -519,11 +519,11 @@ This blanket is designed detailedly, featuring decorative fringes around all edg
 
 ✔️ Create a cozy and comforting atmosphere
 
-[Buy from Amazon](https://www.amazon.com/Potter-Gryffindor-Shield-Tapestry-Blanket/dp/B00BT17XQI?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Potter-Gryffindor-Shield-Tapestry-Blanket/dp/B00BT17XQI?ie=UTF8&tag=giftable02-20)
 
-### [29\. Funny Shirt](https://www.amazon.com/Paused-Funny-Gaming-Player-T-Shirt/dp/B07CYC7CDC/?ie=UTF8&tag=avadalove-20)
+### [29\. Funny Shirt](https://www.amazon.com/Paused-Funny-Gaming-Player-T-Shirt/dp/B07CYC7CDC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Paused-Funny-Gaming-Player-T-Shirt/dp/B07CYC7CDC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Paused-Funny-Gaming-Player-T-Shirt/dp/B07CYC7CDC/?ie=UTF8&tag=giftable02-20)
 
 A special gift to celebrate a special occasion with your boyfriend/husband/father? You can get this funny shirt to give him.
 
@@ -537,11 +537,11 @@ Since he is a fan of Game of Thrones, he will laugh out loud when knowing the me
 
 ✔️ Showcases a sense of humor
 
-[Buy from Amazon](https://www.amazon.com/Paused-Funny-Gaming-Player-T-Shirt/dp/B07CYC7CDC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Paused-Funny-Gaming-Player-T-Shirt/dp/B07CYC7CDC/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Wooden Music Box](https://www.amazon.com/Engraved-Decorations-Christmas-Valentines-Birthday/dp/B0892P4Y92?ie=UTF8&tag=avadalove-20)
+### [30\. Wooden Music Box](https://www.amazon.com/Engraved-Decorations-Christmas-Valentines-Birthday/dp/B0892P4Y92?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engraved-Decorations-Christmas-Valentines-Birthday/dp/B0892P4Y92?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engraved-Decorations-Christmas-Valentines-Birthday/dp/B0892P4Y92?ie=UTF8&tag=giftable02-20)
 
 This pretty wooden music box is absolutely a fantastic and romantic gift idea for your beloved man.
 
@@ -555,11 +555,11 @@ Keep cranking the handle, you will hear the theme song of Game of Thrones, which
 
 ✔️ Bring rustic vibe to your space
 
-[Buy from Amazon](https://www.amazon.com/Engraved-Decorations-Christmas-Valentines-Birthday/dp/B0892P4Y92?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engraved-Decorations-Christmas-Valentines-Birthday/dp/B0892P4Y92?ie=UTF8&tag=giftable02-20)
 
-### [31\. Dinner Is Coming Apron](https://www.amazon.com/ALIPOBO-Thrones-Kitchen-Adjustable-Gardening/dp/B07QG5S12M?ie=UTF8&tag=avadalove-20)
+### [31\. Dinner Is Coming Apron](https://www.amazon.com/ALIPOBO-Thrones-Kitchen-Adjustable-Gardening/dp/B07QG5S12M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ALIPOBO-Thrones-Kitchen-Adjustable-Gardening/dp/B07QG5S12M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ALIPOBO-Thrones-Kitchen-Adjustable-Gardening/dp/B07QG5S12M?ie=UTF8&tag=giftable02-20)
 
 Give your boyfriend or husband this pretty “Dinner is Coming” apron as a special surprising gift. He will scream out because he is happy when realizing the printed image is from the Game of Thrones series.
 
@@ -573,11 +573,11 @@ Made from premium quality 100% cotton, this cooking apron is machine washable, f
 
 ✔️ Remain clean and free from food debris
 
-[Buy from Amazon](https://www.amazon.com/ALIPOBO-Thrones-Kitchen-Adjustable-Gardening/dp/B07QG5S12M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ALIPOBO-Thrones-Kitchen-Adjustable-Gardening/dp/B07QG5S12M?ie=UTF8&tag=giftable02-20)
 
-### [32\. The Trivia Game](https://www.amazon.com/HBO-Game-Thrones-Trivia/dp/B018RFIVYG/?ie=UTF8&tag=avadalove-20)
+### [32\. The Trivia Game](https://www.amazon.com/HBO-Game-Thrones-Trivia/dp/B018RFIVYG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/HBO-Game-Thrones-Trivia/dp/B018RFIVYG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/HBO-Game-Thrones-Trivia/dp/B018RFIVYG/?ie=UTF8&tag=giftable02-20)
 
 To give your beloved man a special gift, if he is a big fan of the Game of Thrones series, you cannot miss this trivia game. Have a fun and relaxing time playing with him, he will very appreciate this thoughtful gift.
 
@@ -591,11 +591,11 @@ This trivia strategy game is applied for two to four players or two to four team
 
 ✔️ Bring your a lot of relaxing time
 
-[Buy from Amazon](https://www.amazon.com/HBO-Game-Thrones-Trivia/dp/B018RFIVYG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/HBO-Game-Thrones-Trivia/dp/B018RFIVYG/?ie=UTF8&tag=giftable02-20)
 
-### [33\. For The Throne Tumbler](https://www.amazon.com/Tervis-1325308-HBO-Game-Thrones/dp/B07NX8N59B?ie=UTF8&tag=avadalove-20)
+### [33\. For The Throne Tumbler](https://www.amazon.com/Tervis-1325308-HBO-Game-Thrones/dp/B07NX8N59B?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tervis-1325308-HBO-Game-Thrones/dp/B07NX8N59B?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tervis-1325308-HBO-Game-Thrones/dp/B07NX8N59B?ie=UTF8&tag=giftable02-20)
 
 Is your boyfriend a fan of Game of Thrones? If yse, then give him this Tervis triple tumbler on the special occasion. He will be very happy and excited to receive this special gift from you.
 
@@ -609,6 +609,6 @@ It is printed with eco-friendly plant-based inks or powder coated with BPA-free 
 
 ✔️ Perfect Temperature Control
 
-[Buy from Amazon](https://www.amazon.com/Tervis-1325308-HBO-Game-Thrones/dp/B07NX8N59B?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tervis-1325308-HBO-Game-Thrones/dp/B07NX8N59B?ie=UTF8&tag=giftable02-20)
 
 Summon the soul of the Seven Kingdoms with unforgettable Game of Thrones gifts for him. Ignite his warrior spirit with a replica Valyrian steel sword, a relic forged in fire and destined for glory. Envelop him in the embrace of House Stark with a luxurious direwolf cloak, a testament to his undying loyalty. From exquisite dragon cufflinks to ancient map-inspired leather journals, our collection brings forth the essence of Westeros, capturing his heart and immersing him in a world of legend. Choose a gift fit for a king, and let his dreams ascend to the Iron Throne  

@@ -89,9 +89,9 @@ The candle is safe for all audiences and all ages because it is made from 100% p
 
 [Buy from Loveable](https://loveable.ai/products/this-candle-wont-fix-everything-but-it-smells-fucking-great-scented-candle-9oz-candle-post-surgery-gift-for-himher-funny-gift-for-best-friend-bff-302icnvssc207?variant=44310294135016?utm_source=avada&ranking=&utm_source=&utm_campaign=best-post-surgery-gifts-for-him-to-help-speed-recovery-time)
 
-### [5\. Stress Relief Gift Self Care](https://www.amazon.com/UnboxMe-Package-Encouragement-Birthday-Sending/dp/B087FBHW9M?ie=UTF8&tag=avadalove-20)
+### [5\. Stress Relief Gift Self Care](https://www.amazon.com/UnboxMe-Package-Encouragement-Birthday-Sending/dp/B087FBHW9M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/UnboxMe-Package-Encouragement-Birthday-Sending/dp/B087FBHW9M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/UnboxMe-Package-Encouragement-Birthday-Sending/dp/B087FBHW9M?ie=UTF8&tag=giftable02-20)
 
 Unwind and show your care with the **[Stress Relief Gift](https://avada.io/loveable/stress-relief-gifts/)** Self Care set, the ultimate post-surgery gift for him. Combining the healing properties of Lemon Peel and Ginger Root, this tea offers a harmonious blend of flavors that soothes and rejuvenates.
 
@@ -107,7 +107,7 @@ Crafted from Fair Trade ingredients, it's a cup of love perfect for any occasion
 
 ✔️Hand-poured Sea Salt + Eucalyptus fragrance candle relieves tension
 
-[Buy from Amazon](https://www.amazon.com/UnboxMe-Package-Encouragement-Birthday-Sending/dp/B087FBHW9M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/UnboxMe-Package-Encouragement-Birthday-Sending/dp/B087FBHW9M?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Hug in a Mug Surgery Gifts for Him](https://loveable.ai/products/hug-in-a-mug-you-are-cared-for-supported-and-loved-pastel-watercolor-background-white-mug-ceramic-mug-11oz-15oz-mugs-post-surgery-gift-for-her-him-beloved-bff-positive-inspiring-present-302icnbnmu181?variant=44305926947048?utm_source=avada&ranking=&utm_source=&utm_campaign=best-post-surgery-gifts-for-him-to-help-speed-recovery-time)
 
@@ -493,9 +493,9 @@ Included in the Comfort Pack Gift Set is a specially designed A Warm Hug card, s
 
 [Buy from Esty](https://www.etsy.com/listing/988907319/get-well-soon-package-hospital-surgery)
 
-### [27\. Get Well Gift Box Basket](https://www.amazon.com/Get-Well-Gift-Box-Basket/dp/B01HDPQ7B0/?ie=UTF8&tag=avadalove-20)
+### [27\. Get Well Gift Box Basket](https://www.amazon.com/Get-Well-Gift-Box-Basket/dp/B01HDPQ7B0/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Get-Well-Gift-Box-Basket/dp/B01HDPQ7B0/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Get-Well-Gift-Box-Basket/dp/B01HDPQ7B0/?ie=UTF8&tag=giftable02-20)
 
 Delight them with the get well baskets for him after surgery, the Get Well Gift Box Basket, designed to bring comfort and joy during recovery. Packed with various thoughtful items, this gift box includes a charming glass vase, artificial white Dahlias for a touch of beauty, and a selection of carefully curated treats and essentials.
 
@@ -511,7 +511,7 @@ From Cheez-It crackers to Halls Honey Lemon Drops, Nestle Mini Marshmallows Hot 
 
 ✔️ Perfect for bringing cheer and support during the recovery journey
 
-[Buy from Amazon](https://www.amazon.com/Get-Well-Gift-Box-Basket/dp/B01HDPQ7B0/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Get-Well-Gift-Box-Basket/dp/B01HDPQ7B0/?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Post Mastectomy Pillow](https://www.etsy.com/listing/805608632/post-mastectomy-pillow-post-surgery)
 
@@ -661,9 +661,9 @@ Nurture their spirit with the Succulent Gift Box, a delightful choice for any oc
 
 [Buy from Esty](https://www.etsy.com/listing/988947481/thinking-of-you-succulent-gift-box)
 
-### [36\. Get Well Soon Jar Candle](https://www.amazon.com/Candle-Scented-Healing-Friends-Lavender/dp/B097QV2JPJ/?ie=UTF8&tag=avadalove-20)
+### [36\. Get Well Soon Jar Candle](https://www.amazon.com/Candle-Scented-Healing-Friends-Lavender/dp/B097QV2JPJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Candle-Scented-Healing-Friends-Lavender/dp/B097QV2JPJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Candle-Scented-Healing-Friends-Lavender/dp/B097QV2JPJ/?ie=UTF8&tag=giftable02-20)
 
 Illuminate their path to recovery with the Get Well Soon Jar Candle, a charming and distinctive gift for both him and her. This delightful lavender candle is a perfect idea to lift spirits and bring comfort as a get-well-soon gift. Its unique design makes it a memorable and heartwarming present to cheer up a sick friend or family member.
 
@@ -679,11 +679,11 @@ The elegant jar candles are thoughtfully crafted to complement any home decor, f
 
 ✔️ Versatile and complements any home decor
 
-[Buy from Amazon](https://www.amazon.com/Candle-Scented-Healing-Friends-Lavender/dp/B097QV2JPJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Candle-Scented-Healing-Friends-Lavender/dp/B097QV2JPJ/?ie=UTF8&tag=giftable02-20)
 
-### [37\. Fleece Healing Thoughts Blanket](https://www.amazon.com/Macevia-Inspirational-Healing-Thoughts-Blanket/dp/B08T14FX9K?ie=UTF8&tag=avadalove-20)
+### [37\. Fleece Healing Thoughts Blanket](https://www.amazon.com/Macevia-Inspirational-Healing-Thoughts-Blanket/dp/B08T14FX9K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Macevia-Inspirational-Healing-Thoughts-Blanket/dp/B08T14FX9K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Macevia-Inspirational-Healing-Thoughts-Blanket/dp/B08T14FX9K?ie=UTF8&tag=giftable02-20)
 
 Wrap your loved one in a comforting embrace with the Fleece Healing Thoughts Blanket, a heartfelt cancer gift for men. Infused with warmth, love, and care, this blanket serves as a source of physical, psychological, emotional, and spiritual support during the recovery process. Unlike flowers that wilt and fade, this gift is designed to be long-lasting, providing continuous warmth and comfort to patients. Each blanket bears uplifting words that inspire and encourage, creating a sense of unity and strength. Make a meaningful gesture by gifting this thoughtful product from Macevia.
 
@@ -697,11 +697,11 @@ Wrap your loved one in a comforting embrace with the Fleece Healing Thoughts Bla
 
 ✔️ Thoughtful gesture for expressing love and support
 
-[Buy from Amazon](https://www.amazon.com/Macevia-Inspirational-Healing-Thoughts-Blanket/dp/B08T14FX9K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Macevia-Inspirational-Healing-Thoughts-Blanket/dp/B08T14FX9K?ie=UTF8&tag=giftable02-20)
 
-### [38\. 20 Piece Unique Snack Stick Gift Bag](https://www.amazon.com/Jerky-Gift-Basket-Unique-Assorted/dp/B012BA0VSM?ie=UTF8&tag=avadalove-20)
+### [38\. 20 Piece Unique Snack Stick Gift Bag](https://www.amazon.com/Jerky-Gift-Basket-Unique-Assorted/dp/B012BA0VSM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jerky-Gift-Basket-Unique-Assorted/dp/B012BA0VSM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jerky-Gift-Basket-Unique-Assorted/dp/B012BA0VSM?ie=UTF8&tag=giftable02-20)
 
 Satisfy the cravings of the manly man in your life or surprise him with a post-surgery treat with the 20 Piece Unique Snack Stick Gift Bag. This carefully curated gift set is perfect for those who are hard to shop for.
 
@@ -717,11 +717,11 @@ Packed with an assortment of savory delights, including summer sausages, meat an
 
 ✔️ Perfect for the manly man or as a thoughtful post-surgery gift
 
-[Buy from Amazon](https://www.amazon.com/Jerky-Gift-Basket-Unique-Assorted/dp/B012BA0VSM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jerky-Gift-Basket-Unique-Assorted/dp/B012BA0VSM?ie=UTF8&tag=giftable02-20)
 
-### [39\. Package Snack Box](https://www.amazon.com/Healthy-Package-Students-Christmas-Military/dp/B017X09YUQ/?ie=UTF8&tag=avadalove-20)
+### [39\. Package Snack Box](https://www.amazon.com/Healthy-Package-Students-Christmas-Military/dp/B017X09YUQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Healthy-Package-Students-Christmas-Military/dp/B017X09YUQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Healthy-Package-Students-Christmas-Military/dp/B017X09YUQ/?ie=UTF8&tag=giftable02-20)
 
 Delight your loved one with the convenient and mouthwatering Package Snack Box, the ultimate post-surgery gift to brighten their day. This thoughtful gesture ensures they won't go to bed hungry and brings a smile to their face.
 
@@ -737,11 +737,11 @@ With this snack box, you can skip the hassle of navigating traffic, searching fo
 
 ✔️ Provides a variety of snacks to satisfy different cravings
 
-[Buy from Amazon](https://www.amazon.com/Healthy-Package-Students-Christmas-Military/dp/B017X09YUQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Healthy-Package-Students-Christmas-Military/dp/B017X09YUQ/?ie=UTF8&tag=giftable02-20)
 
-### [40\. Chocolate Gift Set](https://www.amazon.com/CHOCOLATE-Candy-Souvenir-Chocolate-BluePrime/dp/B07CP7S1Y9?ie=UTF8&tag=avadalove-20)
+### [40\. Chocolate Gift Set](https://www.amazon.com/CHOCOLATE-Candy-Souvenir-Chocolate-BluePrime/dp/B07CP7S1Y9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CHOCOLATE-Candy-Souvenir-Chocolate-BluePrime/dp/B07CP7S1Y9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CHOCOLATE-Candy-Souvenir-Chocolate-BluePrime/dp/B07CP7S1Y9?ie=UTF8&tag=giftable02-20)
 
 The delectable Chocolate Gift Set is ideal as a pick-me-up for him after surgery, satisfying his sweet tooth while also lifting his spirits. Gifts like this thoughtful set are sure to be appreciated by the recipient and their loved ones.
 
@@ -757,19 +757,19 @@ It's guaranteed to brighten their day with its delicious variety of soft chocola
 
 ✔️ Sturdy cardboard box with an extendable base for convenient storage
 
-[Buy from Amazon](https://www.amazon.com/CHOCOLATE-Candy-Souvenir-Chocolate-BluePrime/dp/B07CP7S1Y9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CHOCOLATE-Candy-Souvenir-Chocolate-BluePrime/dp/B07CP7S1Y9?ie=UTF8&tag=giftable02-20)
 
-### [41\. Gourmet Gift Basket](https://www.amazon.com/Sausagemans-Gourmet-Featuring-Original-Wisconsin/dp/B00GBB2QQI?ie=UTF8&tag=avadalove-20)
+### [41\. Gourmet Gift Basket](https://www.amazon.com/Sausagemans-Gourmet-Featuring-Original-Wisconsin/dp/B00GBB2QQI?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sausagemans-Gourmet-Featuring-Original-Wisconsin/dp/B00GBB2QQI?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sausagemans-Gourmet-Featuring-Original-Wisconsin/dp/B00GBB2QQI?ie=UTF8&tag=giftable02-20)
 
 This Pacific Northwest favorite makes an excellent **[hostess](https://avada.io/loveable/gifts-hostess/)** and **[housewarming gift](https://avada.io/loveable/housewarming-gifts/)**, as well as get well baskets for him after surgery or a sympathy gift! All of our foods, including our gluten-free sausage, are shelf stable, making them ideal for camping, hiking, road trips, and other outdoor activities. Dan's Original Summer Sausage (10 oz. ), Cheddar Cheese (6 oz. ), Elki Water Crackers, Elki Spring Onion Crackers, Honey Roasted Peanuts (3 oz. ), Dan's Sweet Hot Mustard (1.75 oz. ), Napa Valley Grainy Dijon Mustard (1.75 oz. ), Dilettante Chocolate Truffles (1.75 oz (2 pcs.)
 
-[Buy from Amazon](https://www.amazon.com/Sausagemans-Gourmet-Featuring-Original-Wisconsin/dp/B00GBB2QQI?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sausagemans-Gourmet-Featuring-Original-Wisconsin/dp/B00GBB2QQI?ie=UTF8&tag=giftable02-20)
 
-### [42\. Package Sick Bundle Mug](https://www.amazon.com/Package-Bundle-Emergen-C-Assorted-Snacks/dp/B0842D65TC/?ie=UTF8&tag=avadalove-20)
+### [42\. Package Sick Bundle Mug](https://www.amazon.com/Package-Bundle-Emergen-C-Assorted-Snacks/dp/B0842D65TC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Package-Bundle-Emergen-C-Assorted-Snacks/dp/B0842D65TC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Package-Bundle-Emergen-C-Assorted-Snacks/dp/B0842D65TC/?ie=UTF8&tag=giftable02-20)
 
 Whether you or a loved one is recovering from surgery, you can find solace and happiness in the Package Sick Bundle Mug. This package is a feast for the sense of taste, as it contains both sweet and savoury nibbles. The mug itself is a thoughtful addition, rounding off what is already a useful present. It's the best of all worlds: a bundle of all your favourite individually wrapped beverages, snacks, and treats at a price that won't break the bank.
 
@@ -783,11 +783,11 @@ Whether you or a loved one is recovering from surgery, you can find solace and h
 
 ✔️ The ideal present to cheer up a sick friend or family member
 
-[Buy from Amazon](https://www.amazon.com/Package-Bundle-Emergen-C-Assorted-Snacks/dp/B0842D65TC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Package-Bundle-Emergen-C-Assorted-Snacks/dp/B0842D65TC/?ie=UTF8&tag=giftable02-20)
 
-### [43\. Homesick Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-Texas-Version/dp/B088SGCCFW?ie=UTF8&tag=avadalove-20)
+### [43\. Homesick Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-Texas-Version/dp/B088SGCCFW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homesick-Scented-Candle-Texas-Version/dp/B088SGCCFW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homesick-Scented-Candle-Texas-Version/dp/B088SGCCFW?ie=UTF8&tag=giftable02-20)
 
 The Homesick Scented Candle will transport you back to familiar scents of home. Inhale deeply and allow the aromas to take you back to your most memorable experiences and places.
 
@@ -803,7 +803,7 @@ Whether you're remembering your time as a college student in Texas or spending t
 
 ✔️ Its familiar scents make it a great gift for someone recovering from surgery
 
-[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-Texas-Version/dp/B088SGCCFW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-Texas-Version/dp/B088SGCCFW?ie=UTF8&tag=giftable02-20)
 
 ### [44\. I Wish I Could Take Your Pain Plant Pot](https://loveable.ai/products/i-wish-i-could-take-your-pain-ceramic-plant-pot-motivational-gift-307ihpbnpo857?variant=44622440759528?utm_source=avada&ranking=&utm_source=&utm_campaign=best-post-surgery-gifts-for-him-to-help-speed-recovery-time)
 

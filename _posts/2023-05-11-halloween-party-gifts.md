@@ -35,9 +35,9 @@ This one-cup wine glass has a lid to keep out dust and insects and is designed t
 
 [Buy from Loveable](https://loveable.ai/products/ghost-every-love-story-is-bootiful-but-ours-is-my-favorite-best-personalized-wine-tumbler-gift-for-halloween-209ihpthtu189?variant=43834979713256?utm_source=avada&ranking=&utm_source=&utm_campaign=best-halloween-party-gifts-thatll-make-your-fun-more-insane)
 
-### [2\. Halloween Coloring Books for Kids](https://www.amazon.com/ArtCreativity-Halloween-Coloring-Booklets-Birthday/dp/B08G592TCC/?ie=UTF8&tag=avadalove-20)
+### [2\. Halloween Coloring Books for Kids](https://www.amazon.com/ArtCreativity-Halloween-Coloring-Booklets-Birthday/dp/B08G592TCC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ArtCreativity-Halloween-Coloring-Booklets-Birthday/dp/B08G592TCC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ArtCreativity-Halloween-Coloring-Booklets-Birthday/dp/B08G592TCC/?ie=UTF8&tag=giftable02-20)
 
 Treat the kiddos to some cute and spooky coloring fun this Halloween! These mini coloring books for kids are filled with Halloween themes that combine the magic of the holiday with fun creativity.
 
@@ -51,7 +51,7 @@ Each set includes 36 Halloween coloring books both boys and girls will love. Not
 
 ✔️ Compact 6 x 4-inch size perfect for little artists
 
-[Buy from Amazon](https://www.amazon.com/ArtCreativity-Halloween-Coloring-Booklets-Birthday/dp/B08G592TCC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ArtCreativity-Halloween-Coloring-Booklets-Birthday/dp/B08G592TCC/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Halloween Marshmallow stick](https://www.etsy.com/listing/1037521084/halloween-marshmallow-stick-chocolate)
 
@@ -377,9 +377,9 @@ From the hauntingly small to the grandly large, each sign is made with premium m
 
 [Buy from Esty](https://www.etsy.com/listing/1526392107/halloween-neon-sign-happy-halloween-neon)
 
-### [21\. ArtCreativity Eyeball Poppers](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=avadalove-20)
+### [21\. ArtCreativity Eyeball Poppers](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=giftable02-20)
 
 Embrace the spirit of Halloween with these quirky and entertaining favors that will leave your guests with wide-eyed excitement and laughter.
 
@@ -393,11 +393,11 @@ With 12 eyeball poppers in a set, you’ll have enough goodness to spread around
 
 ✔️ Assorted vibrant colors for a visual treat
 
-[Buy from Amazon](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ArtCreativity-Eyeball-Assorted-Birthday-Halloween/dp/B08VQF1H55/?ie=UTF8&tag=giftable02-20)
 
-### [22\. PartySticks Glow Party Pumpkin Kit](https://www.amazon.com/PartySticks-Decorations-Critters-Bracelet-Connectors/dp/B08CS4W7SM?th=1?ie=UTF8&tag=avadalove-20)
+### [22\. PartySticks Glow Party Pumpkin Kit](https://www.amazon.com/PartySticks-Decorations-Critters-Bracelet-Connectors/dp/B08CS4W7SM?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PartySticks-Decorations-Critters-Bracelet-Connectors/dp/B08CS4W7SM?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PartySticks-Decorations-Critters-Bracelet-Connectors/dp/B08CS4W7SM?th=1?ie=UTF8&tag=giftable02-20)
 
 Why don't you light up the dark pressure of Halloween with those colorful glow-sticks? Spice up your glow party with this 24-pack glow-in-the-dark party favors and decorations.
 
@@ -411,11 +411,11 @@ Break to activate the light stick, shake, and insert into the light-up toy wands
 
 ✔️ Includes LED bracelet for added fun and festive ambiance
 
-[Buy from Amazon](https://www.amazon.com/PartySticks-Decorations-Critters-Bracelet-Connectors/dp/B08CS4W7SM?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PartySticks-Decorations-Critters-Bracelet-Connectors/dp/B08CS4W7SM?th=1?ie=UTF8&tag=giftable02-20)
 
-### [23\. ArtCreativity Zombie with Pop Out Eyes](https://www.amazon.com/ArtCreativity-Halloween-Non-Candy-Supplies-Birthday/dp/B08JMDPPBW?ie=UTF8&tag=avadalove-20)
+### [23\. ArtCreativity Zombie with Pop Out Eyes](https://www.amazon.com/ArtCreativity-Halloween-Non-Candy-Supplies-Birthday/dp/B08JMDPPBW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ArtCreativity-Halloween-Non-Candy-Supplies-Birthday/dp/B08JMDPPBW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ArtCreativity-Halloween-Non-Candy-Supplies-Birthday/dp/B08JMDPPBW?ie=UTF8&tag=giftable02-20)
 
 Let's prank other people by squeezing a rubber head so that its eyes nearly fall out. Kind of scary, huh? But don't worry, it is a rubber toy. Stress relief has never looked so hilarious!
 
@@ -429,11 +429,11 @@ Squeeze these zombie toys and the eyes pop out in a rib-cracking fashion. Great 
 
 ✔️ Ideal for Halloween party favors and goody bags
 
-[Buy from Amazon](https://www.amazon.com/ArtCreativity-Halloween-Non-Candy-Supplies-Birthday/dp/B08JMDPPBW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ArtCreativity-Halloween-Non-Candy-Supplies-Birthday/dp/B08JMDPPBW?ie=UTF8&tag=giftable02-20)
 
-### [24\. 48 Stretchy Halloween Skeleton Toys](https://www.amazon.com/UpBrands-Stretchy-Skeleton-Halloween-Classroom/dp/B0778KWSSD/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. 48 Stretchy Halloween Skeleton Toys](https://www.amazon.com/UpBrands-Stretchy-Skeleton-Halloween-Classroom/dp/B0778KWSSD/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/UpBrands-Stretchy-Skeleton-Halloween-Classroom/dp/B0778KWSSD/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/UpBrands-Stretchy-Skeleton-Halloween-Classroom/dp/B0778KWSSD/?th=1?ie=UTF8&tag=giftable02-20)
 
 Great sensory fidget toys for school students' rewards. The skeletons are individually wrapped and will be the Perfect Halloween non-candy treats for kids. An excellent gift for kids.
 
@@ -447,11 +447,11 @@ Every skeleton measures 4 inches and stretches up to 24 inches. They are great g
 
 ✔️ Assorted colors add excitement and variety to playtime
 
-[Buy from Amazon](https://www.amazon.com/UpBrands-Stretchy-Skeleton-Halloween-Classroom/dp/B0778KWSSD/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/UpBrands-Stretchy-Skeleton-Halloween-Classroom/dp/B0778KWSSD/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. PartySticks Glow Party Skeleton](https://www.amazon.com/PartySticks-Glow-Party-Skeleton-Favors/dp/B08CS3FTKN?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. PartySticks Glow Party Skeleton](https://www.amazon.com/PartySticks-Glow-Party-Skeleton-Favors/dp/B08CS3FTKN?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PartySticks-Glow-Party-Skeleton-Favors/dp/B08CS3FTKN?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PartySticks-Glow-Party-Skeleton-Favors/dp/B08CS3FTKN?th=1?ie=UTF8&tag=giftable02-20)
 
 Snap to activate the light sticks, shake the sticks, and insert them into the light-up toy skeletons, create bracelets, and rings; vibrant-colored glow-in-the-dark sticks glow for hours.
 
@@ -465,11 +465,11 @@ Spice up your glow party with this 24-pack glow-in-the-dark party favors and dec
 
 ✔️ Non-toxic and safe materials for worry-free enjoyment
 
-[Buy from Amazon](https://www.amazon.com/PartySticks-Glow-Party-Skeleton-Favors/dp/B08CS3FTKN?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PartySticks-Glow-Party-Skeleton-Favors/dp/B08CS3FTKN?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Halloween Waterproof Water Bottle Stickers](https://www.amazon.com/Halloween-Waterproof-Skateboard-Scrapbook-Decoration/dp/B09GLXNVLF?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Halloween Waterproof Water Bottle Stickers](https://www.amazon.com/Halloween-Waterproof-Skateboard-Scrapbook-Decoration/dp/B09GLXNVLF?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Waterproof-Skateboard-Scrapbook-Decoration/dp/B09GLXNVLF?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Waterproof-Skateboard-Scrapbook-Decoration/dp/B09GLXNVLF?th=1?ie=UTF8&tag=giftable02-20)
 
 Let's stick these funny and scary stickers all-around your house as charms so that they can protect your water bottle or even your home from evil forces.
 
@@ -483,11 +483,11 @@ They has 65pcs/pack of 3 size (big,middle,small),around 1-4.5 inch. Include pump
 
 ✔️ Easy to apply and remove without leaving residue
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Waterproof-Skateboard-Scrapbook-Decoration/dp/B09GLXNVLF?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Waterproof-Skateboard-Scrapbook-Decoration/dp/B09GLXNVLF?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Halloween Foam Masks 12 Pack](https://www.amazon.com/Kangaroos-Halloween-Accessories-Foam-Masks/dp/B0756NKKCM?ie=UTF8&tag=avadalove-20)
+### [27\. Halloween Foam Masks 12 Pack](https://www.amazon.com/Kangaroos-Halloween-Accessories-Foam-Masks/dp/B0756NKKCM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kangaroos-Halloween-Accessories-Foam-Masks/dp/B0756NKKCM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kangaroos-Halloween-Accessories-Foam-Masks/dp/B0756NKKCM?ie=UTF8&tag=giftable02-20)
 
 HALLOWEEN IS COMING, THE MONSTERS ARE COMING. Let's dress up and fool them so that you will not be kidnapped by those evil forces of darkness.
 
@@ -501,11 +501,11 @@ These foam masks come in 6 unique and scary designs. They are Frankenstein, Duke
 
 ✔️ Lightweight and comfortable for extended wear
 
-[Buy from Amazon](https://www.amazon.com/Kangaroos-Halloween-Accessories-Foam-Masks/dp/B0756NKKCM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kangaroos-Halloween-Accessories-Foam-Masks/dp/B0756NKKCM?ie=UTF8&tag=giftable02-20)
 
-### [28\. Halloween Temporary Tattoos for Kids](https://www.amazon.com/Temporary-Assorted-Halloween-Waterproof-150Patterns/dp/B07V9VKZRB/?ie=UTF8&tag=avadalove-20)
+### [28\. Halloween Temporary Tattoos for Kids](https://www.amazon.com/Temporary-Assorted-Halloween-Waterproof-150Patterns/dp/B07V9VKZRB/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Temporary-Assorted-Halloween-Waterproof-150Patterns/dp/B07V9VKZRB/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Temporary-Assorted-Halloween-Waterproof-150Patterns/dp/B07V9VKZRB/?ie=UTF8&tag=giftable02-20)
 
 More cute and funny Halloween Temporary tattoos for kids bring you to have a different Halloween time.
 
@@ -519,11 +519,11 @@ These Halloween temporary tattoos for kids are made of high-quality safety and g
 
 ✔️ Waterproof and long-lasting for extended enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Temporary-Assorted-Halloween-Waterproof-150Patterns/dp/B07V9VKZRB/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Temporary-Assorted-Halloween-Waterproof-150Patterns/dp/B07V9VKZRB/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Glow Stick Bracelets Necklaces](https://www.amazon.com/Glowstick-Colorful-Christmas-Halloween-Accessories/dp/B081PN2PZQ/?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Glow Stick Bracelets Necklaces](https://www.amazon.com/Glowstick-Colorful-Christmas-Halloween-Accessories/dp/B081PN2PZQ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Glowstick-Colorful-Christmas-Halloween-Accessories/dp/B081PN2PZQ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Glowstick-Colorful-Christmas-Halloween-Accessories/dp/B081PN2PZQ/?th=1?ie=UTF8&tag=giftable02-20)
 
 Let's make the Halloween party more and more colorful with this item. Glow stick bracelets and necklaces.
 
@@ -537,11 +537,11 @@ Long-lasting and eye-catching. 10-14 hours of glow time with 7 colors so that yo
 
 ✔️ Includes accessories for creative and interactive play
 
-[Buy from Amazon](https://www.amazon.com/Glowstick-Colorful-Christmas-Halloween-Accessories/dp/B081PN2PZQ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Glowstick-Colorful-Christmas-Halloween-Accessories/dp/B081PN2PZQ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Halloween Decorations Eyeball Ghost Lights](https://www.amazon.com/Halloween-Decorations-Waterproof-Operated-Flickering/dp/B09B9MJYX6?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Halloween Decorations Eyeball Ghost Lights](https://www.amazon.com/Halloween-Decorations-Waterproof-Operated-Flickering/dp/B09B9MJYX6?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Decorations-Waterproof-Operated-Flickering/dp/B09B9MJYX6?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Decorations-Waterproof-Operated-Flickering/dp/B09B9MJYX6?th=1?ie=UTF8&tag=giftable02-20)
 
 Let's decorate your home with something a little scary but bright. Let's try this item.
 
@@ -555,11 +555,11 @@ Eyeball fairy lights are 10ft L, with 20 led lights installed in them, shining &
 
 ✔️ Ideal for Halloween decorations and haunted house themes
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Waterproof-Operated-Flickering/dp/B09B9MJYX6?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Decorations-Waterproof-Operated-Flickering/dp/B09B9MJYX6?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Halloween Hanging Swirl Decorations](https://www.amazon.com/Halloween-Hanging-Decorations-Colorful-Ornament/dp/B08HQJNL3Q?ie=UTF8&tag=avadalove-20)
+### [31\. Halloween Hanging Swirl Decorations](https://www.amazon.com/Halloween-Hanging-Decorations-Colorful-Ornament/dp/B08HQJNL3Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Hanging-Decorations-Colorful-Ornament/dp/B08HQJNL3Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Hanging-Decorations-Colorful-Ornament/dp/B08HQJNL3Q?ie=UTF8&tag=giftable02-20)
 
 Are you looking to decorate things for your home on the Halloween holiday? What about these items?
 
@@ -573,11 +573,11 @@ The package includes 36-piece Halloween hanging swirl decorations and contains 1
 
 ✔️ Lightweight and easy to hang for quick setup
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Hanging-Decorations-Colorful-Ornament/dp/B08HQJNL3Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Hanging-Decorations-Colorful-Ornament/dp/B08HQJNL3Q?ie=UTF8&tag=giftable02-20)
 
-### [32\. Invisible Ink Pen and Notebook](https://www.amazon.com/dp/B07TWRZPN8?ie=UTF8&tag=avadalove-20)
+### [32\. Invisible Ink Pen and Notebook](https://www.amazon.com/dp/B07TWRZPN8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07TWRZPN8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07TWRZPN8?ie=UTF8&tag=giftable02-20)
 
 Top Secret Pack spies include 16 sets of 1 x 5.11 in invisible ink pen with UV light (batteries included) and a small notepad.
 
@@ -591,11 +591,11 @@ There are a total of 16 magic pens in 8 different colors. With these fun pens fo
 
 ✔️ Compact size for easy portability and on-the-go use
 
-[Buy from Amazon](https://www.amazon.com/dp/B07TWRZPN8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07TWRZPN8?ie=UTF8&tag=giftable02-20)
 
-### [33\. PartySticks Glow Critters 50pk](https://www.amazon.com/Party-Sticks-Glow-Critters-50pk/dp/B08CS3CW8X?ie=UTF8&tag=avadalove-20)
+### [33\. PartySticks Glow Critters 50pk](https://www.amazon.com/Party-Sticks-Glow-Critters-50pk/dp/B08CS3CW8X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Party-Sticks-Glow-Critters-50pk/dp/B08CS3CW8X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Party-Sticks-Glow-Critters-50pk/dp/B08CS3CW8X?ie=UTF8&tag=giftable02-20)
 
 This 50-pack of light-up plastic fake bugs and insects for kids is full of tricky toys.
 
@@ -609,11 +609,11 @@ These glow party favors are powered by easy-to-activate and vibrant-colored mini
 
 ✔️ Safe and non-toxic materials for worry-free play
 
-[Buy from Amazon](https://www.amazon.com/Party-Sticks-Glow-Critters-50pk/dp/B08CS3CW8X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Party-Sticks-Glow-Critters-50pk/dp/B08CS3CW8X?ie=UTF8&tag=giftable02-20)
 
-### [34\. 58 Pack Halloween Sensory Pop Packs](https://www.amazon.com/Halloween-Sensory-Fidget-Simple-Miniatures/dp/B099MZT6MR?ie=UTF8&tag=avadalove-20)
+### [34\. 58 Pack Halloween Sensory Pop Packs](https://www.amazon.com/Halloween-Sensory-Fidget-Simple-Miniatures/dp/B099MZT6MR?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Sensory-Fidget-Simple-Miniatures/dp/B099MZT6MR?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Sensory-Fidget-Simple-Miniatures/dp/B099MZT6MR?ie=UTF8&tag=giftable02-20)
 
 The Halloween fidget packs are perfect for fun party favors, haunted houses, yards, courtyards, etc. Let's check this 58-pack Halloween Variety fidget toy.
 
@@ -627,11 +627,11 @@ All these fidget toys are made of non-toxic and durable silicone or high-quality
 
 ✔️ Assorted Halloween-themed designs add a festive touch
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Sensory-Fidget-Simple-Miniatures/dp/B099MZT6MR?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Sensory-Fidget-Simple-Miniatures/dp/B099MZT6MR?ie=UTF8&tag=giftable02-20)
 
-### [35\. 6 Packs Halloween Squishies Toys](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?ie=UTF8&tag=avadalove-20)
+### [35\. 6 Packs Halloween Squishies Toys](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?ie=UTF8&tag=giftable02-20)
 
 Halloween is coming and you are looking for gifts so that you can give them "your heart". Kind of scary and suitable with the Halloween theme, right? But, let's check this item.
 
@@ -645,11 +645,11 @@ This gift Box Includes 6 different Halloween-themed squishy toys Pumpkin, Ghost,
 
 ✔️ Includes pumpkin, vampire, and ghost designs for variety
 
-[Buy from Amazon](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MGparty-Halloween-Squishies-Pumpkin-Vampire/dp/B096K6Z1WV/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Halloween Party Favors Trinkets Kids](https://www.amazon.com/SWIRLLINE-Halloween-Party-Favors-Trinkets/dp/B07WRCTK33?th=1?ie=UTF8&tag=avadalove-20)
+### [36\. Halloween Party Favors Trinkets Kids](https://www.amazon.com/SWIRLLINE-Halloween-Party-Favors-Trinkets/dp/B07WRCTK33?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SWIRLLINE-Halloween-Party-Favors-Trinkets/dp/B07WRCTK33?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SWIRLLINE-Halloween-Party-Favors-Trinkets/dp/B07WRCTK33?th=1?ie=UTF8&tag=giftable02-20)
 
 Your kids love Halloween and so do you. Let's give them this set of toys. Ready-made solution for kids Halloween trinkets goodie bags and pinata fillers or treasure box prizes for the classroom, chest toys for school rewards.
 
@@ -663,11 +663,11 @@ Your kids love Halloween and so do you. Let's give them this set of toys. Ready-
 
 ✔️ Safe and suitable for kids and adults alike
 
-[Buy from Amazon](https://www.amazon.com/SWIRLLINE-Halloween-Party-Favors-Trinkets/dp/B07WRCTK33?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SWIRLLINE-Halloween-Party-Favors-Trinkets/dp/B07WRCTK33?th=1?ie=UTF8&tag=giftable02-20)
 
-### [37\. Max Fun 18pcs Halloween Toys Wind Up](https://www.amazon.com/Max-Fun-Halloween-Assortment-Favors/dp/B08B1B8ZPJ?ie=UTF8&tag=avadalove-20)
+### [37\. Max Fun 18pcs Halloween Toys Wind Up](https://www.amazon.com/Max-Fun-Halloween-Assortment-Favors/dp/B08B1B8ZPJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Max-Fun-Halloween-Assortment-Favors/dp/B08B1B8ZPJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Max-Fun-Halloween-Assortment-Favors/dp/B08B1B8ZPJ?ie=UTF8&tag=giftable02-20)
 
 Halloween-themed wind-up toys with bright colors will be sure to sparkle your Halloween party. Those wind up toys are smooth with no sharp edges to hurt your little ones.
 
@@ -681,7 +681,7 @@ Easy for little hands to grasp and play, the wind up toys can help to improve co
 
 ✔️ Safe and child-friendly materials for worry-free play
 
-[Buy from Amazon](https://www.amazon.com/Max-Fun-Halloween-Assortment-Favors/dp/B08B1B8ZPJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Max-Fun-Halloween-Assortment-Favors/dp/B08B1B8ZPJ?ie=UTF8&tag=giftable02-20)
 
 ## Conclusion
 

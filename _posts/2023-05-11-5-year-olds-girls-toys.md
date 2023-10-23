@@ -185,9 +185,9 @@ Utilizing cutting-edge 3D printing technology, the moon lamp is painstakingly cr
 
 [Buy from Loveable](https://loveable.ai/products/to-daughter-never-forget-your-way-back-home-personalized-3d-moon-lamp-best-gifts-for-your-daughter-on-birthday-christmas-congratulations-211ihplnll518?variant=44085327134952?utm_source=avada&ranking=&utm_source=&utm_campaign=best-toys-for-5-year-olds-girls-thatll-make-your-little-princess-smile-all-day-long)
 
-### [10\. Space Educational Stem Toy](https://www.amazon.com/jackinthebox-Educational-Activities-Creative-Learning/dp/B07B7JJCM3/?ie=UTF8&tag=avadalove-20)
+### [10\. Space Educational Stem Toy](https://www.amazon.com/jackinthebox-Educational-Activities-Creative-Learning/dp/B07B7JJCM3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/jackinthebox-Educational-Activities-Creative-Learning/dp/B07B7JJCM3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/jackinthebox-Educational-Activities-Creative-Learning/dp/B07B7JJCM3/?ie=UTF8&tag=giftable02-20)
 
 If you're looking for toys for 5 year olds girls that will keep them entertained, then this kit is perfect.
 
@@ -201,11 +201,11 @@ It includes 6 activities - making a solar system mobile, constellations streamer
 
 ✔️ Bring families together in shared exploration and discovery
 
-[Buy from Amazon](https://www.amazon.com/jackinthebox-Educational-Activities-Creative-Learning/dp/B07B7JJCM3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/jackinthebox-Educational-Activities-Creative-Learning/dp/B07B7JJCM3/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Unicorn Jewelry Box For Girls](https://www.amazon.com/Amiti%C3%A9-Lane-Unicorn-Jewelry-Girls/dp/B07YXFZDDK?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. Unicorn Jewelry Box For Girls](https://www.amazon.com/Amiti%C3%A9-Lane-Unicorn-Jewelry-Girls/dp/B07YXFZDDK?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amiti%C3%A9-Lane-Unicorn-Jewelry-Girls/dp/B07YXFZDDK?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amiti%C3%A9-Lane-Unicorn-Jewelry-Girls/dp/B07YXFZDDK?th=1?ie=UTF8&tag=giftable02-20)
 
 This is the gift that keeps on giving! The large mirror and spinning unicorn in this music box are sure to please, and the pull-out drawer is perfect for storing treasures.
 
@@ -219,11 +219,11 @@ Inside the box, you will also find a stunning unicorn charm bracelet with rhines
 
 ✔️ Sparks creativity and self-expression
 
-[Buy from Amazon](https://www.amazon.com/Amiti%C3%A9-Lane-Unicorn-Jewelry-Girls/dp/B07YXFZDDK?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amiti%C3%A9-Lane-Unicorn-Jewelry-Girls/dp/B07YXFZDDK?th=1?ie=UTF8&tag=giftable02-20)
 
-### [12\. Scratch Paper Art-Crafts Gift](https://www.amazon.com/ZMLM-Scratch-Paper-Art-Crafts-Notebook-Halloween/dp/B08HMHWXWG?ie=UTF8&tag=avadalove-20)
+### [12\. Scratch Paper Art-Crafts Gift](https://www.amazon.com/ZMLM-Scratch-Paper-Art-Crafts-Notebook-Halloween/dp/B08HMHWXWG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZMLM-Scratch-Paper-Art-Crafts-Notebook-Halloween/dp/B08HMHWXWG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZMLM-Scratch-Paper-Art-Crafts-Notebook-Halloween/dp/B08HMHWXWG?ie=UTF8&tag=giftable02-20)
 
 Learn about the magic and excitement of our Scratch Paper Art-Crafts Gift, where creativity comes to life with each scratch.
 
@@ -237,11 +237,11 @@ This complete set comes with everything your little one needs to create beautifu
 
 ✔️ Sparks creativity and self-expression
 
-[Buy from Amazon](https://www.amazon.com/ZMLM-Scratch-Paper-Art-Crafts-Notebook-Halloween/dp/B08HMHWXWG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZMLM-Scratch-Paper-Art-Crafts-Notebook-Halloween/dp/B08HMHWXWG?ie=UTF8&tag=giftable02-20)
 
-### [13\. Kids Makeup Kit for Girl](https://www.amazon.com/dp/B08LH66HZL?ie=UTF8&tag=avadalove-20)
+### [13\. Kids Makeup Kit for Girl](https://www.amazon.com/dp/B08LH66HZL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B08LH66HZL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B08LH66HZL?ie=UTF8&tag=giftable02-20)
 
 This fantastic assortment of cosmetics has been thoughtfully chosen to provide your child a secure and enchanted experience.
 
@@ -255,11 +255,11 @@ One of the most popular toys for 5-year-old girls is our Washable Kids Makeup Se
 
 ✔️ Sparks creativity and self-expression
 
-[Buy from Amazon](https://www.amazon.com/dp/B08LH66HZL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B08LH66HZL?ie=UTF8&tag=giftable02-20)
 
-### [14\. Marbling Paint Art Kit for Kids](https://www.amazon.com/Dan-Darci-Marbling-Paint-Kids/dp/B08CLVVJ8C?ie=UTF8&tag=avadalove-20)
+### [14\. Marbling Paint Art Kit for Kids](https://www.amazon.com/Dan-Darci-Marbling-Paint-Kids/dp/B08CLVVJ8C?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dan-Darci-Marbling-Paint-Kids/dp/B08CLVVJ8C?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dan-Darci-Marbling-Paint-Kids/dp/B08CLVVJ8C?ie=UTF8&tag=giftable02-20)
 
 The Marbling Paint Art Kit is the perfect gift for all ages. It comes with everything you need to create beautiful works of art.
 
@@ -273,7 +273,7 @@ The kit includes paint, brushes, and a Marble Painting Guide. The guide provides
 
 ✔️ Teach them the value of patience
 
-[Buy from Amazon](https://www.amazon.com/Dan-Darci-Marbling-Paint-Kids/dp/B08CLVVJ8C?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dan-Darci-Marbling-Paint-Kids/dp/B08CLVVJ8C?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Jewellery Making Kit for Girls](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1086696938/jewellery-making-kit-for-girls-toddler)
 
@@ -311,9 +311,9 @@ Glow Sketch is a perfect example of a toy that helps with creative thinking and 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/967557728/glow-sketch-glow-in-the-dark-doodle)
 
-### [17\. Binoculars for Kids](https://www.amazon.com/Binoculars-Kids-High-Resolution-8x21/dp/B081Z9GRBY?ie=UTF8&tag=avadalove-20)
+### [17\. Binoculars for Kids](https://www.amazon.com/Binoculars-Kids-High-Resolution-8x21/dp/B081Z9GRBY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Binoculars-Kids-High-Resolution-8x21/dp/B081Z9GRBY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Binoculars-Kids-High-Resolution-8x21/dp/B081Z9GRBY?ie=UTF8&tag=giftable02-20)
 
 Binoculars are perfect for kids who want to explore the world around them, and they make a great addition to any nature hike or camping trip.
 
@@ -327,11 +327,11 @@ Real toy binoculars are smaller, shock-resistant, and perfect for little hands. 
 
 ✔️ Promote Outdoor Play and Physical Activity
 
-[Buy from Amazon](https://www.amazon.com/Binoculars-Kids-High-Resolution-8x21/dp/B081Z9GRBY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Binoculars-Kids-High-Resolution-8x21/dp/B081Z9GRBY?ie=UTF8&tag=giftable02-20)
 
-### [18\. Soap & Bath Bomb Making Kit for Kids](https://www.amazon.com/Soap-Bath-Bomb-Making-Kids/dp/B07W3NVPD3?ie=UTF8&tag=avadalove-20)
+### [18\. Soap & Bath Bomb Making Kit for Kids](https://www.amazon.com/Soap-Bath-Bomb-Making-Kids/dp/B07W3NVPD3?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Soap-Bath-Bomb-Making-Kids/dp/B07W3NVPD3?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Soap-Bath-Bomb-Making-Kids/dp/B07W3NVPD3?ie=UTF8&tag=giftable02-20)
 
 With this Bath Bomb Making Kit, the whole family can have fun while creating beautiful and useful gifts that will be cherished for years to come.
 
@@ -345,11 +345,11 @@ Bath Bomb Making Kit for kids, 3-in-1 Spa Science Kit, Craft Gifts For Girls & B
 
 ✔️ A shared activity for kids and their parents
 
-[Buy from Amazon](https://www.amazon.com/Soap-Bath-Bomb-Making-Kids/dp/B07W3NVPD3?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Soap-Bath-Bomb-Making-Kids/dp/B07W3NVPD3?ie=UTF8&tag=giftable02-20)
 
-### [19\. Disney Princess Necklace Activity Set](https://www.amazon.com/Disney-Princess-Necklace-Activity-Set/dp/B0747ZGTTG/?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. Disney Princess Necklace Activity Set](https://www.amazon.com/Disney-Princess-Necklace-Activity-Set/dp/B0747ZGTTG/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Disney-Princess-Necklace-Activity-Set/dp/B0747ZGTTG/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Disney-Princess-Necklace-Activity-Set/dp/B0747ZGTTG/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Disney Princess Necklace Activity Set is the perfect toy for any little girl who loves to play dress up.
 
@@ -363,11 +363,11 @@ With this set, she can create her own unique jewelry designs that she can change
 
 ✔️ Develop Focus and Patience
 
-[Buy from Amazon](https://www.amazon.com/Disney-Princess-Necklace-Activity-Set/dp/B0747ZGTTG/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Disney-Princess-Necklace-Activity-Set/dp/B0747ZGTTG/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. Unicorn Family Carton with Surprise Playset](https://www.amazon.com/Hatchimals-CollEGGtibles-Surprise-Characters-Accessories/dp/B09BFXVY3L?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Unicorn Family Carton with Surprise Playset](https://www.amazon.com/Hatchimals-CollEGGtibles-Surprise-Characters-Accessories/dp/B09BFXVY3L?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hatchimals-CollEGGtibles-Surprise-Characters-Accessories/dp/B09BFXVY3L?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hatchimals-CollEGGtibles-Surprise-Characters-Accessories/dp/B09BFXVY3L?th=1?ie=UTF8&tag=giftable02-20)
 
 Kids will love styling the hair of their toys, and the comb and hair dryer is perfect for creating endless styles! This playset is sure to provide hours of fun for kids aged 5 and up.
 
@@ -381,11 +381,11 @@ The Unicorn Hair Stylists Family is the perfect addition to any Hatchimals colle
 
 ✔️ Figure out how to unlock or activate certain features
 
-[Buy from Amazon](https://www.amazon.com/Hatchimals-CollEGGtibles-Surprise-Characters-Accessories/dp/B09BFXVY3L?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hatchimals-CollEGGtibles-Surprise-Characters-Accessories/dp/B09BFXVY3L?th=1?ie=UTF8&tag=giftable02-20)
 
-### [21\. Flashing Cube Electronic Memory & Brain Game](https://www.amazon.com/Flashdash-4-1-Electronic-Cognition/dp/B07YSVBYHW/?ie=UTF8&tag=avadalove-20)
+### [21\. Flashing Cube Electronic Memory & Brain Game](https://www.amazon.com/Flashdash-4-1-Electronic-Cognition/dp/B07YSVBYHW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Flashdash-4-1-Electronic-Cognition/dp/B07YSVBYHW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Flashdash-4-1-Electronic-Cognition/dp/B07YSVBYHW/?ie=UTF8&tag=giftable02-20)
 
 The Flashdash is a great toy for five-year-old girls because it helps improve their brain skills and hand-eye coordination.
 
@@ -399,11 +399,11 @@ The Flashdash is a great toy for five-year-old girls. It helps improve brain ski
 
 ✔️ Improve hand-eye coordination
 
-[Buy from Amazon](https://www.amazon.com/Flashdash-4-1-Electronic-Cognition/dp/B07YSVBYHW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Flashdash-4-1-Electronic-Cognition/dp/B07YSVBYHW/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Kids Camera Toys](https://www.amazon.com/CIMELR-Digital-Chritmas-Birthday-Festival/dp/B09QZLHS6H/?ie=UTF8&tag=avadalove-20)
+### [22\. Kids Camera Toys](https://www.amazon.com/CIMELR-Digital-Chritmas-Birthday-Festival/dp/B09QZLHS6H/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CIMELR-Digital-Chritmas-Birthday-Festival/dp/B09QZLHS6H/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CIMELR-Digital-Chritmas-Birthday-Festival/dp/B09QZLHS6H/?ie=UTF8&tag=giftable02-20)
 
 Camera toys are not only great for taking pictures and videos, but they are also great for teaching kids about photography.
 
@@ -417,11 +417,11 @@ With a camera toy, your child will be able to learn how to take better pictures 
 
 ✔️ Capture and preserve precious memories
 
-[Buy from Amazon](https://www.amazon.com/CIMELR-Digital-Chritmas-Birthday-Festival/dp/B09QZLHS6H/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CIMELR-Digital-Chritmas-Birthday-Festival/dp/B09QZLHS6H/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Educational Learning Touchscreen Smart Watch](https://www.amazon.com/Jojo-Siwa-Touchscreen-Model-JOJ4128AZ/dp/B07T5GBT9W?th=1?ie=UTF8&tag=avadalove-20)
+### [23\. Educational Learning Touchscreen Smart Watch](https://www.amazon.com/Jojo-Siwa-Touchscreen-Model-JOJ4128AZ/dp/B07T5GBT9W?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jojo-Siwa-Touchscreen-Model-JOJ4128AZ/dp/B07T5GBT9W?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jojo-Siwa-Touchscreen-Model-JOJ4128AZ/dp/B07T5GBT9W?th=1?ie=UTF8&tag=giftable02-20)
 
 The Jojo Siwa kids smartwatch comes loaded with kid-friendly features for your child to enjoy smart wearables just like the grown-ups!
 
@@ -435,11 +435,11 @@ For instance, it includes a selfie cam so your child can take pictures of themse
 
 ✔️ Stimulate cognitive development
 
-[Buy from Amazon](https://www.amazon.com/Jojo-Siwa-Touchscreen-Model-JOJ4128AZ/dp/B07T5GBT9W?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jojo-Siwa-Touchscreen-Model-JOJ4128AZ/dp/B07T5GBT9W?th=1?ie=UTF8&tag=giftable02-20)
 
-### [24\. Crystal Flyers Pink Magical Flying Pixie Toy](https://www.amazon.com/EGG-Hatchimals-Flying-Pixie-GML/dp/B0848FJBVB/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Crystal Flyers Pink Magical Flying Pixie Toy](https://www.amazon.com/EGG-Hatchimals-Flying-Pixie-GML/dp/B0848FJBVB/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/EGG-Hatchimals-Flying-Pixie-GML/dp/B0848FJBVB/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/EGG-Hatchimals-Flying-Pixie-GML/dp/B0848FJBVB/?th=1?ie=UTF8&tag=giftable02-20)
 
 Do you believe in magic? With the Crystal Flyers Pink Magical Flying Pixie Toy, now you can bring a touch of magic into your home!
 
@@ -453,11 +453,11 @@ This enchanting little flying pixie is perfect for girls of all ages. The best p
 
 ✔️ Designed with safety in mind
 
-[Buy from Amazon](https://www.amazon.com/EGG-Hatchimals-Flying-Pixie-GML/dp/B0848FJBVB/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/EGG-Hatchimals-Flying-Pixie-GML/dp/B0848FJBVB/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Kids Makeup Kit for Girl](https://www.amazon.com/PERRYHOME-Washable-Cosmetic-Non-Toxic-Birthday/dp/B099K1KPX2?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Kids Makeup Kit for Girl](https://www.amazon.com/PERRYHOME-Washable-Cosmetic-Non-Toxic-Birthday/dp/B099K1KPX2?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PERRYHOME-Washable-Cosmetic-Non-Toxic-Birthday/dp/B099K1KPX2?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PERRYHOME-Washable-Cosmetic-Non-Toxic-Birthday/dp/B099K1KPX2?th=1?ie=UTF8&tag=giftable02-20)
 
 Children always dream of fairy tales, and we should protect the child's innocence and the princess's dream. The special blue makeup set is designed for your little princess. The safe and non-toxic ingredients in the kids' makeup kit are gentle on sensitive skin, and the washable makeup can be easily removed with warm water and soap. With 35 pieces of makeup included, your little girl will have everything she needs to play dress-up and imagine herself as a beautiful princess.
 
@@ -469,11 +469,11 @@ Children always dream of fairy tales, and we should protect the child's innocenc
 
 ✔️ Develop a positive self-image
 
-[Buy from Amazon](https://www.amazon.com/PERRYHOME-Washable-Cosmetic-Non-Toxic-Birthday/dp/B099K1KPX2?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PERRYHOME-Washable-Cosmetic-Non-Toxic-Birthday/dp/B099K1KPX2?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Light Up Tracing Pad Pink](https://www.amazon.com/Crayola-Light-up-Tracing-Coloring-Board/dp/B0084JUNVU/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Light Up Tracing Pad Pink](https://www.amazon.com/Crayola-Light-up-Tracing-Coloring-Board/dp/B0084JUNVU/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crayola-Light-up-Tracing-Coloring-Board/dp/B0084JUNVU/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crayola-Light-up-Tracing-Coloring-Board/dp/B0084JUNVU/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Crayola Light Up Tracing Pad is a great way to keep kids entertained and engaged.
 
@@ -487,11 +487,11 @@ The pad comes with a graphite pencil, 12 short colored pencils, 10 tracing sheet
 
 ✔️ Can be used for drawing or writing
 
-[Buy from Amazon](https://www.amazon.com/Crayola-Light-up-Tracing-Coloring-Board/dp/B0084JUNVU/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crayola-Light-up-Tracing-Coloring-Board/dp/B0084JUNVU/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [27\. Inflatable Sprinkler Pool for Kids](https://www.amazon.com/Inflatable-Sprinkler-Toddler-Unicorn-Backyard/dp/B08R9RDTV9?ie=UTF8&tag=avadalove-20)
+### [27\. Inflatable Sprinkler Pool for Kids](https://www.amazon.com/Inflatable-Sprinkler-Toddler-Unicorn-Backyard/dp/B08R9RDTV9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inflatable-Sprinkler-Toddler-Unicorn-Backyard/dp/B08R9RDTV9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inflatable-Sprinkler-Toddler-Unicorn-Backyard/dp/B08R9RDTV9?ie=UTF8&tag=giftable02-20)
 
 Trying to keep your 5-year-old entertained during the summer can be tough. Luckily, there are plenty of great toys that will keep them happy without costing a fortune. One of our favorites is the inflatable sprinkler pool.
 
@@ -505,11 +505,11 @@ It's perfect for hot days when they just want to cool off. Plus, it's super easy
 
 ✔️ Ideal for group play and social interaction
 
-[Buy from Amazon](https://www.amazon.com/Inflatable-Sprinkler-Toddler-Unicorn-Backyard/dp/B08R9RDTV9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inflatable-Sprinkler-Toddler-Unicorn-Backyard/dp/B08R9RDTV9?ie=UTF8&tag=giftable02-20)
 
-### [28\. ATM Piggy Bank for Real Money](https://www.amazon.com/MAGIBX-6-8-10-12-Christmas-Birthday-Machine/dp/B09H2ZFTG7?th=1?ie=UTF8&tag=avadalove-20)
+### [28\. ATM Piggy Bank for Real Money](https://www.amazon.com/MAGIBX-6-8-10-12-Christmas-Birthday-Machine/dp/B09H2ZFTG7?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MAGIBX-6-8-10-12-Christmas-Birthday-Machine/dp/B09H2ZFTG7?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MAGIBX-6-8-10-12-Christmas-Birthday-Machine/dp/B09H2ZFTG7?th=1?ie=UTF8&tag=giftable02-20)
 
 The ATM Piggy Bank is the perfect toy for 5-year-old girls who are starting to learn about money management.
 
@@ -523,11 +523,11 @@ With its easy-to-use deposit port, your child can easily store her cash and coin
 
 ✔️ Learn how to set goals for future purchases
 
-[Buy from Amazon](https://www.amazon.com/MAGIBX-6-8-10-12-Christmas-Birthday-Machine/dp/B09H2ZFTG7?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MAGIBX-6-8-10-12-Christmas-Birthday-Machine/dp/B09H2ZFTG7?th=1?ie=UTF8&tag=giftable02-20)
 
-### [29\. Dance Mixer Rhythm Step Play Mat](https://www.amazon.com/SUNLIN-Dance-Mat-Adjustable-Built/dp/B08PF4T8W1/?ie=UTF8&tag=avadalove-20)
+### [29\. Dance Mixer Rhythm Step Play Mat](https://www.amazon.com/SUNLIN-Dance-Mat-Adjustable-Built/dp/B08PF4T8W1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SUNLIN-Dance-Mat-Adjustable-Built/dp/B08PF4T8W1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SUNLIN-Dance-Mat-Adjustable-Built/dp/B08PF4T8W1/?ie=UTF8&tag=giftable02-20)
 
 The Dance Mat is a great way to get the whole family moving and grooving together!
 
@@ -541,11 +541,11 @@ This fun dance mat features LED lights, adjustable volume, and three different c
 
 ✔️ Expose individuals to various genres of music
 
-[Buy from Amazon](https://www.amazon.com/SUNLIN-Dance-Mat-Adjustable-Built/dp/B08PF4T8W1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SUNLIN-Dance-Mat-Adjustable-Built/dp/B08PF4T8W1/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Dance Mat](https://www.amazon.com/Kidzlane-Light-Dance-Mat-Technology/dp/B0779GRS9S/?ie=UTF8&tag=avadalove-20)
+### [30\. Dance Mat](https://www.amazon.com/Kidzlane-Light-Dance-Mat-Technology/dp/B0779GRS9S/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kidzlane-Light-Dance-Mat-Technology/dp/B0779GRS9S/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kidzlane-Light-Dance-Mat-Technology/dp/B0779GRS9S/?ie=UTF8&tag=giftable02-20)
 
 Dancing is a great way to get exercise, relieve stress, and have fun. However, most people don't have the time or space to go to a dance studio. That's where the Dance Mat comes in. This innovative new product provides an easy and convenient way to dance at home.
 
@@ -559,11 +559,11 @@ The mat is large and well-padded, making it comfortable to use. It also features
 
 ✔️ Stress Relief and Emotional Well-being
 
-[Buy from Amazon](https://www.amazon.com/Kidzlane-Light-Dance-Mat-Technology/dp/B0779GRS9S/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kidzlane-Light-Dance-Mat-Technology/dp/B0779GRS9S/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Rock Painting Kit for Kids with Unicorn Horns](https://www.amazon.com/Painting-Unicorn-Mermaid-Butterfly-Accessories/dp/B095W22V9H?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. Rock Painting Kit for Kids with Unicorn Horns](https://www.amazon.com/Painting-Unicorn-Mermaid-Butterfly-Accessories/dp/B095W22V9H?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Painting-Unicorn-Mermaid-Butterfly-Accessories/dp/B095W22V9H?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Painting-Unicorn-Mermaid-Butterfly-Accessories/dp/B095W22V9H?th=1?ie=UTF8&tag=giftable02-20)
 
 The Rock Painting Kit for Kids is the perfect way to ignite your child's creativity.
 
@@ -577,11 +577,11 @@ With over 150 accessories, they can create unicorns, mermaids, narwhals and so m
 
 ✔️ A calming and mindful activity for children
 
-[Buy from Amazon](https://www.amazon.com/Painting-Unicorn-Mermaid-Butterfly-Accessories/dp/B095W22V9H?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Painting-Unicorn-Mermaid-Butterfly-Accessories/dp/B095W22V9H?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Unicorn Pillow Kit](https://www.amazon.com/Pinwheel-Crafts-Unicorn-Pillow-Follow/dp/B07XQM4FW8/?ie=UTF8&tag=avadalove-20)
+### [32\. Unicorn Pillow Kit](https://www.amazon.com/Pinwheel-Crafts-Unicorn-Pillow-Follow/dp/B07XQM4FW8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pinwheel-Crafts-Unicorn-Pillow-Follow/dp/B07XQM4FW8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pinwheel-Crafts-Unicorn-Pillow-Follow/dp/B07XQM4FW8/?ie=UTF8&tag=giftable02-20)
 
 The unicorn pillow kit is the perfect gift for any Unicorn lover! It contains everything you need to make a magical, one-of-a-kind Unicorn pillow, including a no-sew fleece knot pillow and easy-to-follow instructions.
 
@@ -595,11 +595,11 @@ This Unicorn craft kit is perfect for girls ages 7-12 and makes a great addition
 
 ✔️ Learn to concentrate on the task at hand
 
-[Buy from Amazon](https://www.amazon.com/Pinwheel-Crafts-Unicorn-Pillow-Follow/dp/B07XQM4FW8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pinwheel-Crafts-Unicorn-Pillow-Follow/dp/B07XQM4FW8/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Water Bottle for Girls DIY Kits](https://www.amazon.com/PURPLE-LADYBUG-Water-Bottle-Stickers/dp/B09DT414VQ?th=1?ie=UTF8&tag=avadalove-20)
+### [33\. Water Bottle for Girls DIY Kits](https://www.amazon.com/PURPLE-LADYBUG-Water-Bottle-Stickers/dp/B09DT414VQ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PURPLE-LADYBUG-Water-Bottle-Stickers/dp/B09DT414VQ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PURPLE-LADYBUG-Water-Bottle-Stickers/dp/B09DT414VQ?th=1?ie=UTF8&tag=giftable02-20)
 
 Decorate Your Own Water Bottle for Girls DIY Kits - Cool Arts and Crafts for Kids Ages 6-8, Great Birthday Gifts for 8-Year-Old Girls - Little Girls Travel Toys 8-10 is super fun arts and crafts for kids!
 
@@ -613,11 +613,11 @@ They can decorate their own bottle with this teal kids' water bottle craft kit! 
 
 ✔️ Allow girls to customize their bottles according to their styles
 
-[Buy from Amazon](https://www.amazon.com/PURPLE-LADYBUG-Water-Bottle-Stickers/dp/B09DT414VQ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PURPLE-LADYBUG-Water-Bottle-Stickers/dp/B09DT414VQ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [34\. Charm Bracelet Making Kit](https://www.amazon.com/Bracelet-Jewelry-Supplies-Unicorn-Mermaid/dp/B0895MW2C9?ie=UTF8&tag=avadalove-20)
+### [34\. Charm Bracelet Making Kit](https://www.amazon.com/Bracelet-Jewelry-Supplies-Unicorn-Mermaid/dp/B0895MW2C9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bracelet-Jewelry-Supplies-Unicorn-Mermaid/dp/B0895MW2C9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bracelet-Jewelry-Supplies-Unicorn-Mermaid/dp/B0895MW2C9?ie=UTF8&tag=giftable02-20)
 
 Charm bracelets are a fun and stylish way to accessorize, and this Charm Bracelet Making Kit is the perfect way to create your own unique designs.
 
@@ -631,11 +631,11 @@ The kit includes 15 European-style big hole beads, 22 charms and pendants, 20 co
 
 ✔️ A reminder of special moments, loved ones, or personal milestone
 
-[Buy from Amazon](https://www.amazon.com/Bracelet-Jewelry-Supplies-Unicorn-Mermaid/dp/B0895MW2C9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bracelet-Jewelry-Supplies-Unicorn-Mermaid/dp/B0895MW2C9?ie=UTF8&tag=giftable02-20)
 
-### [35\. Fruit Scented Markers Set](https://www.amazon.com/Scented-Markers-Unicorn-Augmented-Experience/dp/B08JTQDZ76?ie=UTF8&tag=avadalove-20)
+### [35\. Fruit Scented Markers Set](https://www.amazon.com/Scented-Markers-Unicorn-Augmented-Experience/dp/B08JTQDZ76?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scented-Markers-Unicorn-Augmented-Experience/dp/B08JTQDZ76?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scented-Markers-Unicorn-Augmented-Experience/dp/B08JTQDZ76?ie=UTF8&tag=giftable02-20)
 
 The Fruit Scented Markers Set with Unicorn Pencil Case is a unique and fun way to encourage girls to get interested in STEM technology and education.
 
@@ -649,11 +649,11 @@ The set comes with a pencil case that can be scanned with the Itsy Unicorn's Wor
 
 ✔️ Can be used for school projects, art projects,and scrapbooking
 
-[Buy from Amazon](https://www.amazon.com/Scented-Markers-Unicorn-Augmented-Experience/dp/B08JTQDZ76?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scented-Markers-Unicorn-Augmented-Experience/dp/B08JTQDZ76?ie=UTF8&tag=giftable02-20)
 
-### [36\. Princess Castle Playhouse Tent](https://www.amazon.com/Orian-Princess-Castle-Playhouse-Lights/dp/B07TV8HCMT?ie=UTF8&tag=avadalove-20)
+### [36\. Princess Castle Playhouse Tent](https://www.amazon.com/Orian-Princess-Castle-Playhouse-Lights/dp/B07TV8HCMT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Orian-Princess-Castle-Playhouse-Lights/dp/B07TV8HCMT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Orian-Princess-Castle-Playhouse-Lights/dp/B07TV8HCMT?ie=UTF8&tag=giftable02-20)
 
 A castle playhouse is the perfect toy for any little girl who loves to imagine she's a princess.
 
@@ -667,11 +667,11 @@ This particular playhouse is large enough for multiple children to play in, and 
 
 ✔️ Develop emotional intelligence and empathy
 
-[Buy from Amazon](https://www.amazon.com/Orian-Princess-Castle-Playhouse-Lights/dp/B07TV8HCMT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Orian-Princess-Castle-Playhouse-Lights/dp/B07TV8HCMT?ie=UTF8&tag=giftable02-20)
 
-### [37\. Sprinkle Art Shaker](https://www.amazon.com/Crayola-Sprinkle-Shaker-Rainbow-Crafts/dp/B07MFW71SX?th=1?ie=UTF8&tag=avadalove-20)
+### [37\. Sprinkle Art Shaker](https://www.amazon.com/Crayola-Sprinkle-Shaker-Rainbow-Crafts/dp/B07MFW71SX?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crayola-Sprinkle-Shaker-Rainbow-Crafts/dp/B07MFW71SX?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crayola-Sprinkle-Shaker-Rainbow-Crafts/dp/B07MFW71SX?th=1?ie=UTF8&tag=giftable02-20)
 
 The Sprinkle Art Shaker is a unique and fun art set that allows kids to decorate line art or blank paper in a clean and safe way. No more sprinkles flying everywhere, this portable art set is perfect for rainy days or days when you want to spend time inside.
 
@@ -685,11 +685,11 @@ The shaker comes with different colors of sprinkles so your child can create the
 
 ✔️ A delightful activity for parents and children to enjoy together
 
-[Buy from Amazon](https://www.amazon.com/Crayola-Sprinkle-Shaker-Rainbow-Crafts/dp/B07MFW71SX?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crayola-Sprinkle-Shaker-Rainbow-Crafts/dp/B07MFW71SX?th=1?ie=UTF8&tag=giftable02-20)
 
-### [38\. Audio Player Starter Set with Elsa](https://www.amazon.com/Toniebox-Player-Starter-Cinderella-Playtime/dp/B09KGQJB8W?th=1?ie=UTF8&tag=avadalove-20)
+### [38\. Audio Player Starter Set with Elsa](https://www.amazon.com/Toniebox-Player-Starter-Cinderella-Playtime/dp/B09KGQJB8W?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toniebox-Player-Starter-Cinderella-Playtime/dp/B09KGQJB8W?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toniebox-Player-Starter-Cinderella-Playtime/dp/B09KGQJB8W?th=1?ie=UTF8&tag=giftable02-20)
 
 With the Imagination Building Audio Player Starter Set, screen-free fun is just a button press away!
 
@@ -703,7 +703,7 @@ This set comes with Elsa, Belle, Cinderella, Mulan, and Playtime Puppy – all o
 
 ✔️ A screen-free entertainment option for children
 
-[Buy from Amazon](https://www.amazon.com/Toniebox-Player-Starter-Cinderella-Playtime/dp/B09KGQJB8W?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toniebox-Player-Starter-Cinderella-Playtime/dp/B09KGQJB8W?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [39\. Snap Pop Beads for Girls](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1041235377/snap-pop-beads-for-girls-kid-crafts)
 
@@ -723,9 +723,9 @@ The kit includes beads with letters and numbers on them, so kids can learn as th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1041235377/snap-pop-beads-for-girls-kid-crafts)
 
-### [40\. Light-Up Unicorn Terrarium Kit for Kids](https://www.amazon.com/Light-Up-Unicorn-Terrarium-Kit-Kids/dp/B09GPY6J8K/?ie=UTF8&tag=avadalove-20)
+### [40\. Light-Up Unicorn Terrarium Kit for Kids](https://www.amazon.com/Light-Up-Unicorn-Terrarium-Kit-Kids/dp/B09GPY6J8K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Light-Up-Unicorn-Terrarium-Kit-Kids/dp/B09GPY6J8K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Light-Up-Unicorn-Terrarium-Kit-Kids/dp/B09GPY6J8K/?ie=UTF8&tag=giftable02-20)
 
 Every little girl dreams of owning a unicorn, and now that dream can come true with the Light-Up Unicorn Terrarium Kit.
 
@@ -739,7 +739,7 @@ This enchanting kit comes with everything needed to create a magical unicorn hab
 
 ✔️ Make children love nature
 
-[Buy from Amazon](https://www.amazon.com/Light-Up-Unicorn-Terrarium-Kit-Kids/dp/B09GPY6J8K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Light-Up-Unicorn-Terrarium-Kit-Kids/dp/B09GPY6J8K/?ie=UTF8&tag=giftable02-20)
 
 ### [41\. Birthday Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/963558448/birthday-necklace-girls-birthday-gift)
 

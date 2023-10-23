@@ -17,9 +17,9 @@ In this article, we venture into a candy wonderland filled with the most enchant
 
 Trick-or-treating might be a tradition for the young, but Halloween candy gifts are a treat for all ages. No matter if you're throwing a spooky soirée or sending a special surprise to a loved one far away, our gift guide offers the perfect assortment of candy treasures to make this Halloween extra special. From haunted house-themed gift boxes to ghoulishly delightful lollipop bouquets, these treats are not only delicious but also come beautifully wrapped to add a touch of spook-tastic charm.
 
-### [1\. Gummi Teeth Candy](https://www.amazon.com/Gummi-Teeth-Delicious-Flavors-Gummies/dp/B096LC5FPB?ie=UTF8&tag=avadalove-20)
+### [1\. Gummi Teeth Candy](https://www.amazon.com/Gummi-Teeth-Delicious-Flavors-Gummies/dp/B096LC5FPB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gummi-Teeth-Delicious-Flavors-Gummies/dp/B096LC5FPB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gummi-Teeth-Delicious-Flavors-Gummies/dp/B096LC5FPB?ie=UTF8&tag=giftable02-20)
 
 Trick-or-Treating on Halloween is innocent fun. It's a trendy candy in America from **[the Catholic tradition](/catholic-gifts-for-men/)** of eating and giving soul cakes (small round cakes) on Halloween.
 
@@ -33,7 +33,7 @@ In Irish folklore, the jack-o-lantern is said to be the guardian of Halloween. T
 
 ✔️ Unique dental-themed gummies for enjoyment
 
-[Buy from Amazon](https://www.amazon.com/Gummi-Teeth-Delicious-Flavors-Gummies/dp/B096LC5FPB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gummi-Teeth-Delicious-Flavors-Gummies/dp/B096LC5FPB?ie=UTF8&tag=giftable02-20)
 
 ### [2\. Marshmallows. Pumpkin. Skeleton](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/849486028/halloween-candy-marshmallows-pumpkin)
 
@@ -321,9 +321,9 @@ This is a perfect companion for children who enjoy carrying their treats in thes
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1501388874/glutton-ghost-candy-bowl-adorable-3d?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Cute+Ghost+Bowl&ref=sr_gallery-1-18&sts=1&organic_search_click=1)
 
-### [18\. Halloween Pumpkin Buckets](https://www.amazon.com/dp/B0995Y8J2J/ref=sspa_dk_detail_3?psc=1&pd_rd_i=B0995Y8J2J&pd_rd_w=eghGM&content-id=amzn1.sym.0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_p=0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_r=J9E2A0H2X5K6Q2QAFV40&pd_rd_wg=IGuVO&pd_rd_r=366027a8-1d78-4e9a-bdc3-b76134d2f5a5&s=toys-and-games&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWwy?ie=UTF8&tag=avadalove-20)
+### [18\. Halloween Pumpkin Buckets](https://www.amazon.com/dp/B0995Y8J2J/ref=sspa_dk_detail_3?psc=1&pd_rd_i=B0995Y8J2J&pd_rd_w=eghGM&content-id=amzn1.sym.0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_p=0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_r=J9E2A0H2X5K6Q2QAFV40&pd_rd_wg=IGuVO&pd_rd_r=366027a8-1d78-4e9a-bdc3-b76134d2f5a5&s=toys-and-games&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWwy?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0995Y8J2J/ref=sspa_dk_detail_3?psc=1&pd_rd_i=B0995Y8J2J&pd_rd_w=eghGM&content-id=amzn1.sym.0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_p=0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_r=J9E2A0H2X5K6Q2QAFV40&pd_rd_wg=IGuVO&pd_rd_r=366027a8-1d78-4e9a-bdc3-b76134d2f5a5&s=toys-and-games&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWwy?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0995Y8J2J/ref=sspa_dk_detail_3?psc=1&pd_rd_i=B0995Y8J2J&pd_rd_w=eghGM&content-id=amzn1.sym.0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_p=0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_r=J9E2A0H2X5K6Q2QAFV40&pd_rd_wg=IGuVO&pd_rd_r=366027a8-1d78-4e9a-bdc3-b76134d2f5a5&s=toys-and-games&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWwy?ie=UTF8&tag=giftable02-20)
 
 The Deluxe Kids Art Set from the provided Amazon link is a dream come true for every young artist.
 
@@ -337,7 +337,7 @@ Inside the colorful and sturdy case, you'll find a treasure trove of art supplie
 
 ✔️ Compact and portable design for art on-the-go
 
-[Buy from Amazon](https://www.amazon.com/dp/B0995Y8J2J/ref=sspa_dk_detail_3?psc=1&pd_rd_i=B0995Y8J2J&pd_rd_w=eghGM&content-id=amzn1.sym.0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_p=0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_r=J9E2A0H2X5K6Q2QAFV40&pd_rd_wg=IGuVO&pd_rd_r=366027a8-1d78-4e9a-bdc3-b76134d2f5a5&s=toys-and-games&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWwy?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0995Y8J2J/ref=sspa_dk_detail_3?psc=1&pd_rd_i=B0995Y8J2J&pd_rd_w=eghGM&content-id=amzn1.sym.0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_p=0d1092dc-81bb-493f-8769-d5c802257e94&pf_rd_r=J9E2A0H2X5K6Q2QAFV40&pd_rd_wg=IGuVO&pd_rd_r=366027a8-1d78-4e9a-bdc3-b76134d2f5a5&s=toys-and-games&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWwy?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Candy Corn Cabochons](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1042665195/candy-corn-cabochons-flatback-resin)
 
@@ -409,9 +409,9 @@ These are perfect for shelves, display stands, hutches, and coffee tables. These
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1070500916/halloween-candy-faux-halloween-candy)
 
-### [23\. Halloween Treat Bags](https://www.amazon.com/Halloween-Treats-Bags-Party-Favors/dp/B089W45B7L/ref=sr_1_7?crid=IE5V0K4TX7ZB&keywords=Halloween+Treat+Bags&qid=1690386560&sprefix=halloween+treat+bags%2Caps%2C352&sr=8-7?ie=UTF8&tag=avadalove-20)
+### [23\. Halloween Treat Bags](https://www.amazon.com/Halloween-Treats-Bags-Party-Favors/dp/B089W45B7L/ref=sr_1_7?crid=IE5V0K4TX7ZB&keywords=Halloween+Treat+Bags&qid=1690386560&sprefix=halloween+treat+bags%2Caps%2C352&sr=8-7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Treats-Bags-Party-Favors/dp/B089W45B7L/ref=sr_1_7?crid=IE5V0K4TX7ZB&keywords=Halloween+Treat+Bags&qid=1690386560&sprefix=halloween+treat+bags%2Caps%2C352&sr=8-7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Treats-Bags-Party-Favors/dp/B089W45B7L/ref=sr_1_7?crid=IE5V0K4TX7ZB&keywords=Halloween+Treat+Bags&qid=1690386560&sprefix=halloween+treat+bags%2Caps%2C352&sr=8-7?ie=UTF8&tag=giftable02-20)
 
 This cookie jar is perfect for any small treats. Whether you love Halloween or not, this one is a must-have.
 
@@ -425,7 +425,7 @@ There are 10 different themes and it comes in various colors so you can find the
 
 ✔️ Ideal for candy, small toys, and surprises
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Treats-Bags-Party-Favors/dp/B089W45B7L/ref=sr_1_7?crid=IE5V0K4TX7ZB&keywords=Halloween+Treat+Bags&qid=1690386560&sprefix=halloween+treat+bags%2Caps%2C352&sr=8-7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Treats-Bags-Party-Favors/dp/B089W45B7L/ref=sr_1_7?crid=IE5V0K4TX7ZB&keywords=Halloween+Treat+Bags&qid=1690386560&sprefix=halloween+treat+bags%2Caps%2C352&sr=8-7?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Pumpkin Ceramic Candy Bowl](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1275203229/halloween-candy-bowl-pumpkin-ceramic?click_key=9bba67c787196b2dc3725e2eac2bd1f8a1c086b5%3A1275203229&click_sum=b3189a0e&ref=sold_out-21&sts=1)
 
@@ -517,9 +517,9 @@ If you're looking for the perfect Halloween prop for your haunted house, check o
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1083781962/vintage-general-foam-black-cauldron?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Black+Plastic+Cauldrons&ref=sr_gallery-1-19&frs=1&sts=1&organic_search_click=1)
 
-### [29\. SOUR PATCH KIDS](https://www.amazon.com/SOUR-PATCH-Orange-Chewy-Candy/dp/B07ZPG44B8/ref=sr_1_4?crid=1VM6MRN93U189&keywords=SOUR+PATCH+KIDS+Orange+Soft+%26+Chewy+Candy&qid=1690387302&s=grocery&sprefix=sour+patch+kids+orange+soft+%26+chewy+candy%2Cgrocery%2C331&sr=1-4?ie=UTF8&tag=avadalove-20)
+### [29\. SOUR PATCH KIDS](https://www.amazon.com/SOUR-PATCH-Orange-Chewy-Candy/dp/B07ZPG44B8/ref=sr_1_4?crid=1VM6MRN93U189&keywords=SOUR+PATCH+KIDS+Orange+Soft+%26+Chewy+Candy&qid=1690387302&s=grocery&sprefix=sour+patch+kids+orange+soft+%26+chewy+candy%2Cgrocery%2C331&sr=1-4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SOUR-PATCH-Orange-Chewy-Candy/dp/B07ZPG44B8/ref=sr_1_4?crid=1VM6MRN93U189&keywords=SOUR+PATCH+KIDS+Orange+Soft+%26+Chewy+Candy&qid=1690387302&s=grocery&sprefix=sour+patch+kids+orange+soft+%26+chewy+candy%2Cgrocery%2C331&sr=1-4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SOUR-PATCH-Orange-Chewy-Candy/dp/B07ZPG44B8/ref=sr_1_4?crid=1VM6MRN93U189&keywords=SOUR+PATCH+KIDS+Orange+Soft+%26+Chewy+Candy&qid=1690387302&s=grocery&sprefix=sour+patch+kids+orange+soft+%26+chewy+candy%2Cgrocery%2C331&sr=1-4?ie=UTF8&tag=giftable02-20)
 
 This is a bag of candy that tastes just like oranges. Kids love it. Have a Sweet Sour Candy Party! Googly eyes are a great way to make your sour candy sweet.
 
@@ -533,11 +533,11 @@ Use these googly eyes to decorate the top of your candy. Sweet and chewy candies
 
 ✔️ Vibrant orange color adds fun to desserts
 
-[Buy from Amazon](https://www.amazon.com/SOUR-PATCH-Orange-Chewy-Candy/dp/B07ZPG44B8/ref=sr_1_4?crid=1VM6MRN93U189&keywords=SOUR+PATCH+KIDS+Orange+Soft+%26+Chewy+Candy&qid=1690387302&s=grocery&sprefix=sour+patch+kids+orange+soft+%26+chewy+candy%2Cgrocery%2C331&sr=1-4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SOUR-PATCH-Orange-Chewy-Candy/dp/B07ZPG44B8/ref=sr_1_4?crid=1VM6MRN93U189&keywords=SOUR+PATCH+KIDS+Orange+Soft+%26+Chewy+Candy&qid=1690387302&s=grocery&sprefix=sour+patch+kids+orange+soft+%26+chewy+candy%2Cgrocery%2C331&sr=1-4?ie=UTF8&tag=giftable02-20)
 
-### [30\. Mysterious Chocolate Assortments](https://www.amazon.com/Halloween-Mysterious-Chocolate-Assortments-Certified/dp/B08LHL6RYB?ie=UTF8&tag=avadalove-20)
+### [30\. Mysterious Chocolate Assortments](https://www.amazon.com/Halloween-Mysterious-Chocolate-Assortments-Certified/dp/B08LHL6RYB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Mysterious-Chocolate-Assortments-Certified/dp/B08LHL6RYB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Mysterious-Chocolate-Assortments-Certified/dp/B08LHL6RYB?ie=UTF8&tag=giftable02-20)
 
 Halloween is one of the spookiest days of the year, and these milk chocolate assortments are perfect for Halloween Parties, Pirate Parties, and all Spooky entertainment.
 
@@ -551,11 +551,11 @@ These festive Party Favor boxes are filled with bite-sized treats perfect for yo
 
 ✔️ Indulge in a mysterious and delicious chocolate journey
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Mysterious-Chocolate-Assortments-Certified/dp/B08LHL6RYB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Mysterious-Chocolate-Assortments-Certified/dp/B08LHL6RYB?ie=UTF8&tag=giftable02-20)
 
-### [31\. Clear Candy Apple Box](https://www.amazon.com/Caramel-Ornaments-Transparent-Wedding-Standard/dp/B08CXJ6NJ7/?ie=UTF8&tag=avadalove-20)
+### [31\. Clear Candy Apple Box](https://www.amazon.com/Caramel-Ornaments-Transparent-Wedding-Standard/dp/B08CXJ6NJ7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Caramel-Ornaments-Transparent-Wedding-Standard/dp/B08CXJ6NJ7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Caramel-Ornaments-Transparent-Wedding-Standard/dp/B08CXJ6NJ7/?ie=UTF8&tag=giftable02-20)
 
 This transparent candy box is made of high-quality pet plastic, which is more transparent than PVC and is not easy to tear.
 
@@ -569,11 +569,11 @@ If you tear off this protective film, the box will be more high-definition and t
 
 ✔️ Standard size for easy incorporation into decor
 
-[Buy from Amazon](https://www.amazon.com/Caramel-Ornaments-Transparent-Wedding-Standard/dp/B08CXJ6NJ7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Caramel-Ornaments-Transparent-Wedding-Standard/dp/B08CXJ6NJ7/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Halloween Chocolate Candy](https://www.amazon.com/MUSKETEERS-Halloween-Chocolate-77-58-Ounce-250-Piece/dp/B089F7W3Q7/ref=sr_1_6?crid=34P8IUWSU1UWP&keywords=M%26M%27S%2C+SNICKERS%2C+TWIX%2C+MILKY+WAY+%26+3+MUSKETEERS+Bulk+Halloween+Candy+Assortment&qid=1690387560&s=grocery&sprefix=m%26m%27s%2C+snickers%2C+twix%2C+milky+way+%26+3+musketeers+bulk+halloween+candy+assortment+%2Cgrocery%2C411&sr=1-6?ie=UTF8&tag=avadalove-20)
+### [32\. Halloween Chocolate Candy](https://www.amazon.com/MUSKETEERS-Halloween-Chocolate-77-58-Ounce-250-Piece/dp/B089F7W3Q7/ref=sr_1_6?crid=34P8IUWSU1UWP&keywords=M%26M%27S%2C+SNICKERS%2C+TWIX%2C+MILKY+WAY+%26+3+MUSKETEERS+Bulk+Halloween+Candy+Assortment&qid=1690387560&s=grocery&sprefix=m%26m%27s%2C+snickers%2C+twix%2C+milky+way+%26+3+musketeers+bulk+halloween+candy+assortment+%2Cgrocery%2C411&sr=1-6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MUSKETEERS-Halloween-Chocolate-77-58-Ounce-250-Piece/dp/B089F7W3Q7/ref=sr_1_6?crid=34P8IUWSU1UWP&keywords=M%26M%27S%2C+SNICKERS%2C+TWIX%2C+MILKY+WAY+%26+3+MUSKETEERS+Bulk+Halloween+Candy+Assortment&qid=1690387560&s=grocery&sprefix=m%26m%27s%2C+snickers%2C+twix%2C+milky+way+%26+3+musketeers+bulk+halloween+candy+assortment+%2Cgrocery%2C411&sr=1-6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MUSKETEERS-Halloween-Chocolate-77-58-Ounce-250-Piece/dp/B089F7W3Q7/ref=sr_1_6?crid=34P8IUWSU1UWP&keywords=M%26M%27S%2C+SNICKERS%2C+TWIX%2C+MILKY+WAY+%26+3+MUSKETEERS+Bulk+Halloween+Candy+Assortment&qid=1690387560&s=grocery&sprefix=m%26m%27s%2C+snickers%2C+twix%2C+milky+way+%26+3+musketeers+bulk+halloween+candy+assortment+%2Cgrocery%2C411&sr=1-6?ie=UTF8&tag=giftable02-20)
 
 This special edition is filled with three of your favorite Halloween candy bar flavors: Milk, Milky Way, and Snickers.
 
@@ -587,11 +587,11 @@ Give it away as part of a special Halloween treat for your friends and neighbors
 
 ✔️ High-quality and fresh chocolates for delightful taste
 
-[Buy from Amazon](https://www.amazon.com/MUSKETEERS-Halloween-Chocolate-77-58-Ounce-250-Piece/dp/B089F7W3Q7/ref=sr_1_6?crid=34P8IUWSU1UWP&keywords=M%26M%27S%2C+SNICKERS%2C+TWIX%2C+MILKY+WAY+%26+3+MUSKETEERS+Bulk+Halloween+Candy+Assortment&qid=1690387560&s=grocery&sprefix=m%26m%27s%2C+snickers%2C+twix%2C+milky+way+%26+3+musketeers+bulk+halloween+candy+assortment+%2Cgrocery%2C411&sr=1-6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MUSKETEERS-Halloween-Chocolate-77-58-Ounce-250-Piece/dp/B089F7W3Q7/ref=sr_1_6?crid=34P8IUWSU1UWP&keywords=M%26M%27S%2C+SNICKERS%2C+TWIX%2C+MILKY+WAY+%26+3+MUSKETEERS+Bulk+Halloween+Candy+Assortment&qid=1690387560&s=grocery&sprefix=m%26m%27s%2C+snickers%2C+twix%2C+milky+way+%26+3+musketeers+bulk+halloween+candy+assortment+%2Cgrocery%2C411&sr=1-6?ie=UTF8&tag=giftable02-20)
 
-### [33\. Halloween Candy Bags](https://www.amazon.com/Halloween-Bags-Goody-Bags-Halloween-Sweet-Goodie-Bags-Decorations/dp/B089QB7S9V?ie=UTF8&tag=avadalove-20)
+### [33\. Halloween Candy Bags](https://www.amazon.com/Halloween-Bags-Goody-Bags-Halloween-Sweet-Goodie-Bags-Decorations/dp/B089QB7S9V?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Bags-Goody-Bags-Halloween-Sweet-Goodie-Bags-Decorations/dp/B089QB7S9V?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Bags-Goody-Bags-Halloween-Sweet-Goodie-Bags-Decorations/dp/B089QB7S9V?ie=UTF8&tag=giftable02-20)
 
 Each party bag is made of high-quality material which can use multiple times. The handle of the Halloween candy bag is designed so that it can be tied with the attached ribbon for convenient carry.
 
@@ -605,11 +605,11 @@ This is an ideal Halloween treat bag to hold sweets, Halloween stamps, and other
 
 ✔️ Add festive flair to Halloween decorations
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Bags-Goody-Bags-Halloween-Sweet-Goodie-Bags-Decorations/dp/B089QB7S9V?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Bags-Goody-Bags-Halloween-Sweet-Goodie-Bags-Decorations/dp/B089QB7S9V?ie=UTF8&tag=giftable02-20)
 
-### [34\. Candy Bags Treats Bags](https://www.amazon.com/Halloween-Treats-Cellophane-Supplies-Goodies/dp/B092J6VDQG?ie=UTF8&tag=avadalove-20)
+### [34\. Candy Bags Treats Bags](https://www.amazon.com/Halloween-Treats-Cellophane-Supplies-Goodies/dp/B092J6VDQG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Treats-Cellophane-Supplies-Goodies/dp/B092J6VDQG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Treats-Cellophane-Supplies-Goodies/dp/B092J6VDQG?ie=UTF8&tag=giftable02-20)
 
 Halloween treat bags that have a cute Halloween-themed design are sure to make Halloween just a little sweeter. These fun, playful, and spooky Halloween treat bags will help you to trick-or-treat in style!
 
@@ -623,11 +623,11 @@ This Candy bag set is perfect for Halloween favors, candy bags, or little treats
 
 ✔️ Enhance the Halloween spirit with themed bags
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Treats-Cellophane-Supplies-Goodies/dp/B092J6VDQG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Treats-Cellophane-Supplies-Goodies/dp/B092J6VDQG?ie=UTF8&tag=giftable02-20)
 
-### [35\. Halloween Candy Kettle Bucket](https://www.amazon.com/Sewroro-Halloween-Candy-Kettle-Bucket/dp/B0B8NJM3XR/ref=sr_1_14?keywords=Skull+White+Bucket&qid=1690387926&sr=8-14?ie=UTF8&tag=avadalove-20)
+### [35\. Halloween Candy Kettle Bucket](https://www.amazon.com/Sewroro-Halloween-Candy-Kettle-Bucket/dp/B0B8NJM3XR/ref=sr_1_14?keywords=Skull+White+Bucket&qid=1690387926&sr=8-14?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sewroro-Halloween-Candy-Kettle-Bucket/dp/B0B8NJM3XR/ref=sr_1_14?keywords=Skull+White+Bucket&qid=1690387926&sr=8-14?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sewroro-Halloween-Candy-Kettle-Bucket/dp/B0B8NJM3XR/ref=sr_1_14?keywords=Skull+White+Bucket&qid=1690387926&sr=8-14?ie=UTF8&tag=giftable02-20)
 
 This Halloween candy gift skull bucket is perfect for trick-or-treating! It includes Haribo Gold Bears, Skittles, Sour Patch Kids, Swedish Fish, and more.
 
@@ -641,11 +641,11 @@ The perfect variety of tasty and fun Halloween gifts, and comes in a Halloween-t
 
 ✔️ Durable and versatile Halloween accessory
 
-[Buy from Amazon](https://www.amazon.com/Sewroro-Halloween-Candy-Kettle-Bucket/dp/B0B8NJM3XR/ref=sr_1_14?keywords=Skull+White+Bucket&qid=1690387926&sr=8-14?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sewroro-Halloween-Candy-Kettle-Bucket/dp/B0B8NJM3XR/ref=sr_1_14?keywords=Skull+White+Bucket&qid=1690387926&sr=8-14?ie=UTF8&tag=giftable02-20)
 
-### [36\. Care Package Gift Basket](https://www.amazon.com/Halloween-Package-Assortment-Children-Students/dp/B09BP379Q8/ref=pd_vtp_h_pd_vtp_h_sccl_4/144-9514720-0892102?pd_rd_w=9OzK8&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=BTVNNS78ETSP0ZXG1R4C&pd_rd_wg=DG1tm&pd_rd_r=d1076a27-1ed7-47ac-811c-d0461eb2c4c8&pd_rd_i=B09BP379Q8&psc=1?ie=UTF8&tag=avadalove-20)
+### [36\. Care Package Gift Basket](https://www.amazon.com/Halloween-Package-Assortment-Children-Students/dp/B09BP379Q8/ref=pd_vtp_h_pd_vtp_h_sccl_4/144-9514720-0892102?pd_rd_w=9OzK8&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=BTVNNS78ETSP0ZXG1R4C&pd_rd_wg=DG1tm&pd_rd_r=d1076a27-1ed7-47ac-811c-d0461eb2c4c8&pd_rd_i=B09BP379Q8&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Halloween-Package-Assortment-Children-Students/dp/B09BP379Q8/ref=pd_vtp_h_pd_vtp_h_sccl_4/144-9514720-0892102?pd_rd_w=9OzK8&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=BTVNNS78ETSP0ZXG1R4C&pd_rd_wg=DG1tm&pd_rd_r=d1076a27-1ed7-47ac-811c-d0461eb2c4c8&pd_rd_i=B09BP379Q8&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Halloween-Package-Assortment-Children-Students/dp/B09BP379Q8/ref=pd_vtp_h_pd_vtp_h_sccl_4/144-9514720-0892102?pd_rd_w=9OzK8&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=BTVNNS78ETSP0ZXG1R4C&pd_rd_wg=DG1tm&pd_rd_r=d1076a27-1ed7-47ac-811c-d0461eb2c4c8&pd_rd_i=B09BP379Q8&psc=1?ie=UTF8&tag=giftable02-20)
 
 These adorable candy are just what the party needs to get spooky this Halloween! It’s so simple.
 
@@ -659,7 +659,7 @@ Just mix all ingredients together in a food processor until the mixture comes to
 
 ✔️ Enjoy the convenience of a ready-made gift
 
-[Buy from Amazon](https://www.amazon.com/Halloween-Package-Assortment-Children-Students/dp/B09BP379Q8/ref=pd_vtp_h_pd_vtp_h_sccl_4/144-9514720-0892102?pd_rd_w=9OzK8&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=BTVNNS78ETSP0ZXG1R4C&pd_rd_wg=DG1tm&pd_rd_r=d1076a27-1ed7-47ac-811c-d0461eb2c4c8&pd_rd_i=B09BP379Q8&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Halloween-Package-Assortment-Children-Students/dp/B09BP379Q8/ref=pd_vtp_h_pd_vtp_h_sccl_4/144-9514720-0892102?pd_rd_w=9OzK8&content-id=amzn1.sym.e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_p=e16c7d1a-0497-4008-b7be-636e59b1dfaf&pf_rd_r=BTVNNS78ETSP0ZXG1R4C&pd_rd_wg=DG1tm&pd_rd_r=d1076a27-1ed7-47ac-811c-d0461eb2c4c8&pd_rd_i=B09BP379Q8&psc=1?ie=UTF8&tag=giftable02-20)
 
 ## Final Words
 

@@ -33,9 +33,9 @@ You may use this premium matte canvas to bring color and vitality to any room. I
 
 [Buy from Loveable](https://loveable.ai/products/lgbt-this-is-us-personalized-canvas-poster-wall-art-home-decor-gifts-for-lgbt-couple-209ihpthca227?variant=43851046027496?utm_source=avada&ranking=&utm_source=&utm_campaign=best-pride-gifts-to-show-support-to-our-lgbtq-friends)
 
-### [2\. Gift Card for Any Amount In A Reveal](https://www.amazon.com/Amazon-com-Gift-Pride-Rainbow-Reveal/dp/B09T21RYQC/?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. Gift Card for Any Amount In A Reveal](https://www.amazon.com/Amazon-com-Gift-Pride-Rainbow-Reveal/dp/B09T21RYQC/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Gift-Pride-Rainbow-Reveal/dp/B09T21RYQC/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Gift-Pride-Rainbow-Reveal/dp/B09T21RYQC/?th=1?ie=UTF8&tag=giftable02-20)
 
 Even with the most supportive family and friends, coming out is a very personal process for each member of the LGBTQIA+ community and can be difficult.
 
@@ -49,11 +49,11 @@ Being recognized and accepted for who you are is a euphoric sensation for many, 
 
 ✔️ Unwrapping smiles, endless possibilities
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Pride-Rainbow-Reveal/dp/B09T21RYQC/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Pride-Rainbow-Reveal/dp/B09T21RYQC/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Hooded Sweatshirt Casual Pockets](https://www.amazon.com/pinata-Pattern-Printed-Drawstring-Sweatshirts/dp/B07HJ5H52M/?th=1?ie=UTF8&tag=avadalove-20)
+### [3\. Hooded Sweatshirt Casual Pockets](https://www.amazon.com/pinata-Pattern-Printed-Drawstring-Sweatshirts/dp/B07HJ5H52M/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/pinata-Pattern-Printed-Drawstring-Sweatshirts/dp/B07HJ5H52M/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/pinata-Pattern-Printed-Drawstring-Sweatshirts/dp/B07HJ5H52M/?th=1?ie=UTF8&tag=giftable02-20)
 
 It's no surprise that so many LGBTQIA+ people are also knowledgeable about their charts because both the queer community and astrology enthusiasts have a strong desire to understand themselves and express that identity.
 
@@ -67,11 +67,11 @@ Consider these pockets. The hoodie's surface is free of any attachments and is m
 
 ✔️ Pockets of joy, your perfect escape
 
-[Buy from Amazon](https://www.amazon.com/pinata-Pattern-Printed-Drawstring-Sweatshirts/dp/B07HJ5H52M/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/pinata-Pattern-Printed-Drawstring-Sweatshirts/dp/B07HJ5H52M/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [4\. Pride Handmade Braided Bracelet](https://www.amazon.com/Nanafast-Titanium-Stainless-Rainbow-Bracelet/dp/B010MFKWSC/?ie=UTF8&tag=avadalove-20)
+### [4\. Pride Handmade Braided Bracelet](https://www.amazon.com/Nanafast-Titanium-Stainless-Rainbow-Bracelet/dp/B010MFKWSC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nanafast-Titanium-Stainless-Rainbow-Bracelet/dp/B010MFKWSC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nanafast-Titanium-Stainless-Rainbow-Bracelet/dp/B010MFKWSC/?ie=UTF8&tag=giftable02-20)
 
 There are various hues available; pick the one that works best for you or your spouse. You can have the confidence to show your loved ones that you care about them regardless of their gender if you wear an LGBT pride rainbow bracelet.
 
@@ -85,7 +85,7 @@ It is made of soft, durable, high-quality PU leather that is tightly woven and c
 
 ✔️ Empowering hearts, embracing diversity
 
-[Buy from Amazon](https://www.amazon.com/Nanafast-Titanium-Stainless-Rainbow-Bracelet/dp/B010MFKWSC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nanafast-Titanium-Stainless-Rainbow-Bracelet/dp/B010MFKWSC/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Personalized Gay Flag Pocket Knife](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1222405919/personalized-gay-pride-flag-pocket-knife)
 
@@ -285,9 +285,9 @@ It might also be the ideal option for a novel gift, a gift for a new house, or a
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1007896634/macrame-rainbow-wall-hanging-wall-decor?g)
 
-### [16\. Gay Lesbian Pride Rainbow Ring](https://www.amazon.com/VNOX-Lesbian-Rainbow-Spinner-Friendship/dp/B091XZW3C8?th=1?ie=UTF8&tag=avadalove-20)
+### [16\. Gay Lesbian Pride Rainbow Ring](https://www.amazon.com/VNOX-Lesbian-Rainbow-Spinner-Friendship/dp/B091XZW3C8?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VNOX-Lesbian-Rainbow-Spinner-Friendship/dp/B091XZW3C8?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VNOX-Lesbian-Rainbow-Spinner-Friendship/dp/B091XZW3C8?th=1?ie=UTF8&tag=giftable02-20)
 
 The ring is exquisitely made and useful for wearing to parades, fundraisers, and pride events every day! Additionally, it might produce matching wedding rings, engagement rings, promise rings, and regular band rings.
 
@@ -301,11 +301,11 @@ The ring is constructed of high-quality 316L stainless steel, which is more robu
 
 ✔️ Rainbow promise, embracing diverse love
 
-[Buy from Amazon](https://www.amazon.com/VNOX-Lesbian-Rainbow-Spinner-Friendship/dp/B091XZW3C8?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VNOX-Lesbian-Rainbow-Spinner-Friendship/dp/B091XZW3C8?th=1?ie=UTF8&tag=giftable02-20)
 
-### [17\. Rainbow Headbands](https://www.amazon.com/Suddora-Rainbow-Wide-Headband-Sweatband/dp/B08BK89PT2?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Rainbow Headbands](https://www.amazon.com/Suddora-Rainbow-Wide-Headband-Sweatband/dp/B08BK89PT2?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Suddora-Rainbow-Wide-Headband-Sweatband/dp/B08BK89PT2?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Suddora-Rainbow-Wide-Headband-Sweatband/dp/B08BK89PT2?th=1?ie=UTF8&tag=giftable02-20)
 
 Each headband is comprised of our Performance Blend material, which allows for optimal ventilation and helps to wick away perspiration. Even during the most strenuous physical activity, you can maintain your composure.
 
@@ -319,11 +319,11 @@ Headbands with rainbow prints are ideal for Pride parades and showing support fo
 
 ✔️ Headbands of joy, adding hues to days
 
-[Buy from Amazon](https://www.amazon.com/Suddora-Rainbow-Wide-Headband-Sweatband/dp/B08BK89PT2?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Suddora-Rainbow-Wide-Headband-Sweatband/dp/B08BK89PT2?th=1?ie=UTF8&tag=giftable02-20)
 
-### [18\. LGBT Equality Shirts](https://www.amazon.com/BANGELY-Rainbow-Summer-Vacation-Lesbian/dp/B07T336HCB/?th=1?ie=UTF8&tag=avadalove-20)
+### [18\. LGBT Equality Shirts](https://www.amazon.com/BANGELY-Rainbow-Summer-Vacation-Lesbian/dp/B07T336HCB/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BANGELY-Rainbow-Summer-Vacation-Lesbian/dp/B07T336HCB/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BANGELY-Rainbow-Summer-Vacation-Lesbian/dp/B07T336HCB/?th=1?ie=UTF8&tag=giftable02-20)
 
 Queer people will have to continue navigating the reality of a world that isn't always so kind until we get to a position of full equality and acceptance. This T-shirt, in addition to help from friends and family, can be a helpful way to process and think back on difficult emotions.
 
@@ -337,11 +337,11 @@ The fabric has a slight amount of stretch and is quite soft. The tone of lavende
 
 ✔️ Fashion's support, promoting love and unity
 
-[Buy from Amazon](https://www.amazon.com/BANGELY-Rainbow-Summer-Vacation-Lesbian/dp/B07T336HCB/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BANGELY-Rainbow-Summer-Vacation-Lesbian/dp/B07T336HCB/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. Striped Side Jogger Sweatpants](http://amazon.com/SweatyRocks-Drawstring-Striped-Sweatpants-Pockets/dp/B07C3S5Q6B?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. Striped Side Jogger Sweatpants](http://amazon.com/SweatyRocks-Drawstring-Striped-Sweatpants-Pockets/dp/B07C3S5Q6B?th=1?ie=UTF8&tag=giftable02-20)
 
-[](http://amazon.com/SweatyRocks-Drawstring-Striped-Sweatpants-Pockets/dp/B07C3S5Q6B?th=1?ie=UTF8&tag=avadalove-20)
+[](http://amazon.com/SweatyRocks-Drawstring-Striped-Sweatpants-Pockets/dp/B07C3S5Q6B?th=1?ie=UTF8&tag=giftable02-20)
 
 Polyester, rayon, and spandex were used to make the pants. The fabric is smooth and comfortable, with slight elasticity. These juniors' and women's striped tape side drawstring sweatpants are perfect pride gifts.
 
@@ -355,11 +355,11 @@ This athletic pant with a slightly tapered ankle has ribbed cuffs and an adjusta
 
 ✔️ Sweatpants with stripes, comfort meets trend
 
-[Buy from Amazon](http://amazon.com/SweatyRocks-Drawstring-Striped-Sweatpants-Pockets/dp/B07C3S5Q6B?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](http://amazon.com/SweatyRocks-Drawstring-Striped-Sweatpants-Pockets/dp/B07C3S5Q6B?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. Disposable Face Mask](https://www.amazon.com/sckang-Disposable-Comfortable-Earloop-Multicolor/dp/B08J3VYBM4/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+### [20\. Disposable Face Mask](https://www.amazon.com/sckang-Disposable-Comfortable-Earloop-Multicolor/dp/B08J3VYBM4/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/sckang-Disposable-Comfortable-Earloop-Multicolor/dp/B08J3VYBM4/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/sckang-Disposable-Comfortable-Earloop-Multicolor/dp/B08J3VYBM4/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
 The masks include an ear loop closure and are composed of brand-new nonwoven fabric. Three layers of premium non-woven cloth make up the mask. For ultimate comfort, the extra-soft elastic ear loops remove pressure from the ears.
 
@@ -373,11 +373,11 @@ For added comfort and wellbeing, it can be utilized with mask strap extenders an
 
 ✔️ Face mask of caution, health's top priority
 
-[Buy from Amazon](https://www.amazon.com/sckang-Disposable-Comfortable-Earloop-Multicolor/dp/B08J3VYBM4/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/sckang-Disposable-Comfortable-Earloop-Multicolor/dp/B08J3VYBM4/?th=1&psc=1?ie=UTF8&tag=giftable02-20)
 
-### [21\. Cute Rainbow Light Signs](https://www.amazon.com/Rainbow-Bedroom-Christmas-Birthday-Wedding/dp/B07CHMNMW2/?ie=UTF8&tag=avadalove-20)
+### [21\. Cute Rainbow Light Signs](https://www.amazon.com/Rainbow-Bedroom-Christmas-Birthday-Wedding/dp/B07CHMNMW2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Rainbow-Bedroom-Christmas-Birthday-Wedding/dp/B07CHMNMW2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Rainbow-Bedroom-Christmas-Birthday-Wedding/dp/B07CHMNMW2/?ie=UTF8&tag=giftable02-20)
 
 The light is battery-operated, secure, and practical with an ON/OFF switch or USB cord for charging. It has built-in hook holes for easy hanging or can just be set on a mantle, shelf, table, or dresser.
 
@@ -391,11 +391,11 @@ It can be used to exhibit a lighting work by itself or in combination with other
 
 ✔️ Rainbow's glow, a sight to cherish
 
-[Buy from Amazon](https://www.amazon.com/Rainbow-Bedroom-Christmas-Birthday-Wedding/dp/B07CHMNMW2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Rainbow-Bedroom-Christmas-Birthday-Wedding/dp/B07CHMNMW2/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Women’s Cute Ankle Socks](https://www.amazon.com/Kikiya-Socks-pairs-Womens-Rainbow/dp/B07QDPVST6?ie=UTF8&tag=avadalove-20)
+### [22\. Women’s Cute Ankle Socks](https://www.amazon.com/Kikiya-Socks-pairs-Womens-Rainbow/dp/B07QDPVST6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kikiya-Socks-pairs-Womens-Rainbow/dp/B07QDPVST6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kikiya-Socks-pairs-Womens-Rainbow/dp/B07QDPVST6?ie=UTF8&tag=giftable02-20)
 
 These socks are ideal if you want to wear them for both sporty and fashionable purposes. It comes with six different pairings in total. They go well with work boots, walking shoes, rain boots, and even athletic boots.
 
@@ -409,11 +409,11 @@ You'll discover that it has a long lifespan, and we promise a solid grip with ju
 
 ✔️ Cute comfort, a treat for your feet
 
-[Buy from Amazon](https://www.amazon.com/Kikiya-Socks-pairs-Womens-Rainbow/dp/B07QDPVST6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kikiya-Socks-pairs-Womens-Rainbow/dp/B07QDPVST6?ie=UTF8&tag=giftable02-20)
 
-### [23\. Pride Rainbow Necklace](https://www.amazon.com/AIKESIWAI-Lesbian-Necklace-Rectangular-Stainless/dp/B08T9Y7N41/?ie=UTF8&tag=avadalove-20)
+### [23\. Pride Rainbow Necklace](https://www.amazon.com/AIKESIWAI-Lesbian-Necklace-Rectangular-Stainless/dp/B08T9Y7N41/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AIKESIWAI-Lesbian-Necklace-Rectangular-Stainless/dp/B08T9Y7N41/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AIKESIWAI-Lesbian-Necklace-Rectangular-Stainless/dp/B08T9Y7N41/?ie=UTF8&tag=giftable02-20)
 
 This **[necklace](/personalized-necklaces/)** features a rectangular vertical card pendant that is made in the hues of the rainbow. It is the primary output of the rainbow neighborhood. The primary item is 13.6g in weight, 10mm (0.4 inches) wide, and is 40mm (1.58 inches) in length (0.03 lbs).
 
@@ -427,11 +427,11 @@ Gays and lesbians can proudly display their identities. The rainbow's color sche
 
 ✔️ Symbol of acceptance, shining with inclusivity
 
-[Buy from Amazon](https://www.amazon.com/AIKESIWAI-Lesbian-Necklace-Rectangular-Stainless/dp/B08T9Y7N41/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AIKESIWAI-Lesbian-Necklace-Rectangular-Stainless/dp/B08T9Y7N41/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Stainless Steel Enamel Rainbow LGBT Pride Ring](https://www.amazon.com/Nanafast-Stainless-Rainbow-Lesbian-Engagement/dp/B072XJNGDM/?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Stainless Steel Enamel Rainbow LGBT Pride Ring](https://www.amazon.com/Nanafast-Stainless-Rainbow-Lesbian-Engagement/dp/B072XJNGDM/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nanafast-Stainless-Rainbow-Lesbian-Engagement/dp/B072XJNGDM/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nanafast-Stainless-Rainbow-Lesbian-Engagement/dp/B072XJNGDM/?th=1?ie=UTF8&tag=giftable02-20)
 
 Something as simple as telling someone you care about that you see them and love them might mean the world if they have recently come out and you want to express your support.
 
@@ -445,11 +445,11 @@ For a small action that has a huge impact, try this pride ring that is construct
 
 ✔️ Ring of love, embracing diversity with pride
 
-[Buy from Amazon](https://www.amazon.com/Nanafast-Stainless-Rainbow-Lesbian-Engagement/dp/B072XJNGDM/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nanafast-Stainless-Rainbow-Lesbian-Engagement/dp/B072XJNGDM/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Wall Decoration Tapestry](https://www.amazon.com/Decoration-Tapestry-Mysterious-Hanging-Accessories/dp/B08TBTGTC5?ie=UTF8&tag=avadalove-20)
+### [25\. Wall Decoration Tapestry](https://www.amazon.com/Decoration-Tapestry-Mysterious-Hanging-Accessories/dp/B08TBTGTC5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decoration-Tapestry-Mysterious-Hanging-Accessories/dp/B08TBTGTC5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decoration-Tapestry-Mysterious-Hanging-Accessories/dp/B08TBTGTC5?ie=UTF8&tag=giftable02-20)
 
 This brand-new wall hanging tapestry is made of polyester, which is strong, breathable, and quick to dry. Digital printing technology is used in the tapestry. High-definition patterns and vibrant colors make the tapestry a perfect work of art and provide visual pleasure.
 
@@ -463,11 +463,11 @@ This is not merely a wall hanging. It can also be used as a beach wrap-around, b
 
 ✔️ Tapestry of expression, stories woven in fabric
 
-[Buy from Amazon](https://www.amazon.com/Decoration-Tapestry-Mysterious-Hanging-Accessories/dp/B08TBTGTC5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decoration-Tapestry-Mysterious-Hanging-Accessories/dp/B08TBTGTC5?ie=UTF8&tag=giftable02-20)
 
-### [26\. Rainbow Tissue Paper](https://www.amazon.com/Whaline-Rainbow-Colorful-Wrapping-Birthday/dp/B08SC68PRC?ie=UTF8&tag=avadalove-20)
+### [26\. Rainbow Tissue Paper](https://www.amazon.com/Whaline-Rainbow-Colorful-Wrapping-Birthday/dp/B08SC68PRC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whaline-Rainbow-Colorful-Wrapping-Birthday/dp/B08SC68PRC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whaline-Rainbow-Colorful-Wrapping-Birthday/dp/B08SC68PRC?ie=UTF8&tag=giftable02-20)
 
 There are 100 sheets of tissue paper in the bundle, which is sufficient to cover all of your requirements for gift bag and art project embellishments.
 
@@ -481,11 +481,11 @@ The tissue paper is bright and vibrant, like the colors of the rainbow, with hue
 
 ✔️ Rainbow's embrace, adding delight to presents
 
-[Buy from Amazon](https://www.amazon.com/Whaline-Rainbow-Colorful-Wrapping-Birthday/dp/B08SC68PRC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whaline-Rainbow-Colorful-Wrapping-Birthday/dp/B08SC68PRC?ie=UTF8&tag=giftable02-20)
 
-### [27\. Snapback Hats](https://www.amazon.com/Negi-American-Snapback-Adjustable-Baseball/dp/B08ML73FGY/?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Snapback Hats](https://www.amazon.com/Negi-American-Snapback-Adjustable-Baseball/dp/B08ML73FGY/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Negi-American-Snapback-Adjustable-Baseball/dp/B08ML73FGY/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Negi-American-Snapback-Adjustable-Baseball/dp/B08ML73FGY/?th=1?ie=UTF8&tag=giftable02-20)
 
 The hat is made of breathable cotton fabric that is light, strong, and comfy. It has a built-in belt for absorbing sweat. The gay pride hat can signify UV protection and sun protection.
 
@@ -499,11 +499,11 @@ The pride hat is ideal for keeping cool. With the adjustable elastic back strap 
 
 ✔️ Snapback flair, topping off your look
 
-[Buy from Amazon](https://www.amazon.com/Negi-American-Snapback-Adjustable-Baseball/dp/B08ML73FGY/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Negi-American-Snapback-Adjustable-Baseball/dp/B08ML73FGY/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\. Pride Rainbow Drawstring Bag](https://www.amazon.com/Pride-Drawstring-Backpack-Lightweight-Accessories/dp/B09WVMJQMS?th=1?ie=UTF8&tag=avadalove-20)
+### [28\. Pride Rainbow Drawstring Bag](https://www.amazon.com/Pride-Drawstring-Backpack-Lightweight-Accessories/dp/B09WVMJQMS?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pride-Drawstring-Backpack-Lightweight-Accessories/dp/B09WVMJQMS?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pride-Drawstring-Backpack-Lightweight-Accessories/dp/B09WVMJQMS?th=1?ie=UTF8&tag=giftable02-20)
 
 This bag is made of waterproof honeycomb polyester fiber, which is sturdy, light, and resistant to daily use and abrasion. In addition to keeping the colors vibrant, high-definition digital printing technology can also successfully prevent fading.
 
@@ -517,11 +517,11 @@ It is simple to use, and you may pick and store stuff without worrying about los
 
 ✔️ Bag of love, celebrating LGBTQ+ equality
 
-[Buy from Amazon](https://www.amazon.com/Pride-Drawstring-Backpack-Lightweight-Accessories/dp/B09WVMJQMS?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pride-Drawstring-Backpack-Lightweight-Accessories/dp/B09WVMJQMS?th=1?ie=UTF8&tag=giftable02-20)
 
-### [29\. Pride Rainbow Heart Glass Ornament](https://www.amazon.com/Kurt-Adler-NOBLE-RAINBOW-ORNAMENT/dp/B072LLQC2N?ie=UTF8&tag=avadalove-20)
+### [29\. Pride Rainbow Heart Glass Ornament](https://www.amazon.com/Kurt-Adler-NOBLE-RAINBOW-ORNAMENT/dp/B072LLQC2N?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kurt-Adler-NOBLE-RAINBOW-ORNAMENT/dp/B072LLQC2N?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kurt-Adler-NOBLE-RAINBOW-ORNAMENT/dp/B072LLQC2N?ie=UTF8&tag=giftable02-20)
 
 This glass love rainbow ornament from Noble Gems makes a lovely addition to your holiday or home decor. A rainbow-hued heart with colored glitter accents is the focal point of this ornament.
 
@@ -535,11 +535,11 @@ This glass love rainbow ornament from Noble Gems makes a lovely addition to your
 
 ✔️ Ornament of unity, celebrating diversity's grace
 
-[Buy from Amazon](https://www.amazon.com/Kurt-Adler-NOBLE-RAINBOW-ORNAMENT/dp/B072LLQC2N?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kurt-Adler-NOBLE-RAINBOW-ORNAMENT/dp/B072LLQC2N?ie=UTF8&tag=giftable02-20)
 
-### [30\. Rainbow Pride Flag Tumbler](http://amazon.com/Rainbow-Pansexual-Awareness-Stainless-Insulated/dp/B09XF3JFSS/?ie=UTF8&tag=avadalove-20)
+### [30\. Rainbow Pride Flag Tumbler](http://amazon.com/Rainbow-Pansexual-Awareness-Stainless-Insulated/dp/B09XF3JFSS/?ie=UTF8&tag=giftable02-20)
 
-[](http://amazon.com/Rainbow-Pansexual-Awareness-Stainless-Insulated/dp/B09XF3JFSS/?ie=UTF8&tag=avadalove-20)
+[](http://amazon.com/Rainbow-Pansexual-Awareness-Stainless-Insulated/dp/B09XF3JFSS/?ie=UTF8&tag=giftable02-20)
 
 This rainbow-colored cup is primarily comprised of odorless, robust, high-quality stainless steel with excellent workmanship. It is simple to wash and carry, but difficult to break or fade.
 
@@ -553,11 +553,11 @@ It might assist you in maintaining the beverage at the proper temperature. Your 
 
 ✔️ Pride flag in hand, colorful hydration on the go
 
-[Buy from Amazon](http://amazon.com/Rainbow-Pansexual-Awareness-Stainless-Insulated/dp/B09XF3JFSS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](http://amazon.com/Rainbow-Pansexual-Awareness-Stainless-Insulated/dp/B09XF3JFSS/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Rainbow Brooch Lapel Pin](https://www.amazon.com/Backpacks-Rainbow-Clothing-Decoration-Students/dp/B09WMXG5TQ/?ie=UTF8&tag=avadalove-20)
+### [31\. Rainbow Brooch Lapel Pin](https://www.amazon.com/Backpacks-Rainbow-Clothing-Decoration-Students/dp/B09WMXG5TQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Backpacks-Rainbow-Clothing-Decoration-Students/dp/B09WMXG5TQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Backpacks-Rainbow-Clothing-Decoration-Students/dp/B09WMXG5TQ/?ie=UTF8&tag=giftable02-20)
 
 These Pride pins, which have an appropriate art pin diameter of 1.57 inches and stand for complete trust, are a one-of-a-kind design that adds style and color to your attire as well as a splash of color to your otherwise monotonous job.
 
@@ -571,11 +571,11 @@ These adorable enamel pins are constructed of premium metal and hand-painted wit
 
 ✔️ Pin of diversity, celebrating love and acceptance
 
-[Buy from Amazon](https://www.amazon.com/Backpacks-Rainbow-Clothing-Decoration-Students/dp/B09WMXG5TQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Backpacks-Rainbow-Clothing-Decoration-Students/dp/B09WMXG5TQ/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Rainbow Flag Decorations](https://www.amazon.com/JennyGems-LGBT-Love-Story/dp/B08JQNQQHY/?th=1?ie=UTF8&tag=avadalove-20)
+### [32\. Rainbow Flag Decorations](https://www.amazon.com/JennyGems-LGBT-Love-Story/dp/B08JQNQQHY/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JennyGems-LGBT-Love-Story/dp/B08JQNQQHY/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JennyGems-LGBT-Love-Story/dp/B08JQNQQHY/?th=1?ie=UTF8&tag=giftable02-20)
 
 This robust wooden sign may hang on a wall using the integrated slot or stand upright on a tabletop using the provided dowel. For everyone who loves the LGBT and LGBTQ+ community, this is the perfect pride gift.
 
@@ -589,7 +589,7 @@ With this rainbow flag sign that honors the variety of the LGBT community, you c
 
 ✔️ Rainbow's charm, adding joy to festivities
 
-[Buy from Amazon](https://www.amazon.com/JennyGems-LGBT-Love-Story/dp/B08JQNQQHY/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JennyGems-LGBT-Love-Story/dp/B08JQNQQHY/?th=1?ie=UTF8&tag=giftable02-20)
 
 ## Conclusion
 

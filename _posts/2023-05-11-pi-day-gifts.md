@@ -47,11 +47,11 @@ Each Pi blanket is customized-made-to-order and handcrafted to the top-quality s
 
 [Buy from Esty](https://www.etsy.com/listing/1173763424/pi-day-blanket-throw-blanket-fleece)
 
-### [3\. Short Sleeve Graphic T-shirt](https://www.amazon.com/Hanes-Humor-Graphic-T-Shirt-Lover/dp/B072LVFT6B/?ie=UTF8&tag=avadalove-20)
+### [3\. Short Sleeve Graphic T-shirt](https://www.amazon.com/Hanes-Humor-Graphic-T-Shirt-Lover/dp/B072LVFT6B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hanes-Humor-Graphic-T-Shirt-Lover/dp/B072LVFT6B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hanes-Humor-Graphic-T-Shirt-Lover/dp/B072LVFT6B/?ie=UTF8&tag=giftable02-20)
 
-Men’s Short Sleeve Graphic T-shirt is made of 100% Fibers which is super soft and comfortable for your beloved to wear. If your friend, family member, or **[teacher love math](https://avada.io/loveable/gifts-for-math-teachers/)** and Pi - the mathematical constant, this T-shirt is a perfect gift for them to express your love and appreciation. It can be put in a machine wash without any harm or damage.
+Men’s Short Sleeve Graphic T-shirt is made of 100% Fibers which is super soft and comfortable for your beloved to wear. If your friend, family member, or **[teacher love math](/gifts-for-math-teachers/)** and Pi - the mathematical constant, this T-shirt is a perfect gift for them to express your love and appreciation. It can be put in a machine wash without any harm or damage.
 
 **Pros:**
 
@@ -61,7 +61,7 @@ Men’s Short Sleeve Graphic T-shirt is made of 100% Fibers which is super soft 
 
 ✔️ Many different colors for you to choose
 
-[Buy from Amazon](https://www.amazon.com/Hanes-Humor-Graphic-T-Shirt-Lover/dp/B072LVFT6B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hanes-Humor-Graphic-T-Shirt-Lover/dp/B072LVFT6B/?ie=UTF8&tag=giftable02-20)
 
 ### [4\. 14k Gold Pi Necklace](https://www.etsy.com/listing/984832700/14k-gold-pi-necklace-math-pendant-math)
 
@@ -111,9 +111,9 @@ Let everyone knows you love math and the mathematical constant Pi! This might be
 
 [Buy from Esty](https://www.etsy.com/listing/97321588/best-seller-pi-please-pie-pi-plate-314)
 
-### [7\. Pi Seball Game Alien Socks](https://www.amazon.com/Novelty-Gifts-Symbol-Student-Teacher/dp/B07RFKXK9G/?ie=UTF8&tag=avadalove-20)
+### [7\. Pi Seball Game Alien Socks](https://www.amazon.com/Novelty-Gifts-Symbol-Student-Teacher/dp/B07RFKXK9G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Novelty-Gifts-Symbol-Student-Teacher/dp/B07RFKXK9G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Novelty-Gifts-Symbol-Student-Teacher/dp/B07RFKXK9G/?ie=UTF8&tag=giftable02-20)
 
 Whether you are a math nerd or struggling to pass the maths class, these funny maths socks are sure to make you comfortable. These socks can be a great gift for teachers who are math lovers or gifts for your friend to wish them luck in their math tests.
 
@@ -125,7 +125,7 @@ Whether you are a math nerd or struggling to pass the maths class, these funny m
 
 ✔️ Stay colorful and soft after many times of washing
 
-[Buy from Amazon](https://www.amazon.com/Novelty-Gifts-Symbol-Student-Teacher/dp/B07RFKXK9G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Novelty-Gifts-Symbol-Student-Teacher/dp/B07RFKXK9G/?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Pi Symbol Desk](https://www.etsy.com/listing/1144457672/pi-symbol-desk-set-with-pi-to-20-digits)
 
@@ -175,9 +175,9 @@ Looking for the best gift set ever to celebrate Pi Day of March 14? This gift se
 
 [Buy from Esty](https://www.etsy.com/listing/512983469/aoii-alpha-omicron-pi-build-your-own)
 
-### [11\. Happy Pi Day to You Book](https://www.amazon.com/Happy-Day-Hats-Learning-Library/dp/0525579931/?ie=UTF8&tag=avadalove-20)
+### [11\. Happy Pi Day to You Book](https://www.amazon.com/Happy-Day-Hats-Learning-Library/dp/0525579931/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Happy-Day-Hats-Learning-Library/dp/0525579931/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Happy-Day-Hats-Learning-Library/dp/0525579931/?ie=UTF8&tag=giftable02-20)
 
 Written in a simple rhyme, the Happy Pi Day book is a perfect choice for celebrating Pi Day (on March 14), and for nurturing a kid's interest in mathematics. Reading a book to find the explanation of how to calculate pi and measure circles in animal insights and lovely way (absolutely easy-to-read and easy-to-understand book). Besides, This book also includes information about the history of a famous Pi Pioneers (Archimedes)!
 
@@ -189,7 +189,7 @@ Written in a simple rhyme, the Happy Pi Day book is a perfect choice for celebra
 
 ✔️ Perfect for Pi Day, birthdays, Christmas gift
 
-[Buy from Amazon](https://www.amazon.com/Happy-Day-Hats-Learning-Library/dp/0525579931/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Happy-Day-Hats-Learning-Library/dp/0525579931/?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Pi Day Engraved Cutting Board](https://www.etsy.com/listing/226333016/pi-day-engraved-cutting-board-or-serving)
 
@@ -223,9 +223,9 @@ Using this pencil at school or in your office to sketch the plan and write down 
 
 [Buy from Esty](https://www.etsy.com/listing/124082245/the-pi-pencil-pi-day-class-pack-30-or)
 
-### [14\. Cookie Cutters Pi Symbol](https://www.amazon.com/Ann-Clark-Cookie-Cutters-Symbol/dp/B07N46VWWP/?ie=UTF8&tag=avadalove-20)
+### [14\. Cookie Cutters Pi Symbol](https://www.amazon.com/Ann-Clark-Cookie-Cutters-Symbol/dp/B07N46VWWP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ann-Clark-Cookie-Cutters-Symbol/dp/B07N46VWWP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ann-Clark-Cookie-Cutters-Symbol/dp/B07N46VWWP/?ie=UTF8&tag=giftable02-20)
 
 Wanna make Pi cakes for your mathematics-lover friend? Try this special Cookie Cutters Pi Symbol! Let's celebrate Pi Day with this fun STEM-inspired cookie-cutter shape. It is made in the USA with the certificated standard. If you want to use the microwave for baking your lovely cakes, feel free to do it. There is no harm or leakage. Making fun shapes with biscuits, cookie dough, cakes, or brownies.
 
@@ -237,7 +237,7 @@ Wanna make Pi cakes for your mathematics-lover friend? Try this special Cookie C
 
 ✔️ Have fun STEM-inspired shape
 
-[Buy from Amazon](https://www.amazon.com/Ann-Clark-Cookie-Cutters-Symbol/dp/B07N46VWWP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ann-Clark-Cookie-Cutters-Symbol/dp/B07N46VWWP/?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Pi Men Tie Clip](https://www.etsy.com/listing/515207622/number-pi-men-tie-clip-teacher-gift-pi)
 
@@ -287,9 +287,9 @@ This Pi Tie Bar and Cuff Link Set is a perfect gift for your lovely math enthusi
 
 [Buy from Esty](https://www.etsy.com/listing/225313261/pi-tie-bar-and-cuff-link-set-hand)
 
-### [18\. Embroidered Baseball Cap](https://www.amazon.com/Trendy-Apparel-Shop-Embroidered-Baseball/dp/B01F4YHUP4/?ie=UTF8&tag=avadalove-20)
+### [18\. Embroidered Baseball Cap](https://www.amazon.com/Trendy-Apparel-Shop-Embroidered-Baseball/dp/B01F4YHUP4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Trendy-Apparel-Shop-Embroidered-Baseball/dp/B01F4YHUP4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Trendy-Apparel-Shop-Embroidered-Baseball/dp/B01F4YHUP4/?ie=UTF8&tag=giftable02-20)
 
 This Pi Embroidered Baseball Cap is made of 35% Cotton and 65% Polyester, which is absolutely durable. With the snap closure, you should only use the hand wash to assure its shape. There are 4 rows stitched on the visor keeping the letter Pi will never peel off. You get to know your friend or family's interest in mathematics and want to help them to show off their interest to everyone. This Baseball Cap could be the most special and suitable gift for them on some occasions.
 
@@ -301,7 +301,7 @@ This Pi Embroidered Baseball Cap is made of 35% Cotton and 65% Polyester, which 
 
 ✔️ 4 rows stitched on the visor
 
-[Buy from Amazon](https://www.amazon.com/Trendy-Apparel-Shop-Embroidered-Baseball/dp/B01F4YHUP4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Trendy-Apparel-Shop-Embroidered-Baseball/dp/B01F4YHUP4/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Pi Symbol Keychain](https://www.etsy.com/listing/185962429/pi-symbol-key-chain-pi-symbol-mirror)
 

@@ -427,9 +427,9 @@ This board is crafted from high-quality wood and features a beautifully hand-pai
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1041358034/mother-effin-homeownertequila-flight)
 
-### [26\. Handmade Bamboo Toothpicks](https://www.amazon.com/PuTwo-Cocktail-Picks-Handmade-Toothpicks/dp/B078NPD5LF?ie=UTF8&tag=avadalove-20)
+### [26\. Handmade Bamboo Toothpicks](https://www.amazon.com/PuTwo-Cocktail-Picks-Handmade-Toothpicks/dp/B078NPD5LF?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PuTwo-Cocktail-Picks-Handmade-Toothpicks/dp/B078NPD5LF?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PuTwo-Cocktail-Picks-Handmade-Toothpicks/dp/B078NPD5LF?ie=UTF8&tag=giftable02-20)
 
 Spice up your tequila nights with a touch of Mexican flair! Your amigos will be amazed by these unique and colorful toothpicks that take their tequila experience to the next level.
 
@@ -443,11 +443,11 @@ Each set includes bamboo toothpicks in either red or green, adding a splash of c
 
 ✔️ Your tequila-loving friends will be raving about them for days to come!
 
-[Buy from Amazon](https://www.amazon.com/PuTwo-Cocktail-Picks-Handmade-Toothpicks/dp/B078NPD5LF?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PuTwo-Cocktail-Picks-Handmade-Toothpicks/dp/B078NPD5LF?ie=UTF8&tag=giftable02-20)
 
-### [27\. Bubly Sparkling Water](https://www.amazon.com/bubly-Sparkling-Water-Flavor-Variety/dp/B08NTN6Y1F/?ie=UTF8&tag=avadalove-20)
+### [27\. Bubly Sparkling Water](https://www.amazon.com/bubly-Sparkling-Water-Flavor-Variety/dp/B08NTN6Y1F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/bubly-Sparkling-Water-Flavor-Variety/dp/B08NTN6Y1F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/bubly-Sparkling-Water-Flavor-Variety/dp/B08NTN6Y1F/?ie=UTF8&tag=giftable02-20)
 
 It's time to give your tequila-loving friends a gift that's as sparkling as their personality!
 
@@ -461,11 +461,11 @@ Introducing the Sparkling Water Gift Set - a unique and refreshing way to indulg
 
 ✔️ Sure to impress any tequila lover
 
-[Buy from Amazon](https://www.amazon.com/bubly-Sparkling-Water-Flavor-Variety/dp/B08NTN6Y1F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/bubly-Sparkling-Water-Flavor-Variety/dp/B08NTN6Y1F/?ie=UTF8&tag=giftable02-20)
 
-### [28\. BigMouth Margarita Bottle Glass](https://www.amazon.com/Bigmouth-Inc-Margarita-Bottle-Glass/dp/B07WKRWR7J/?ie=UTF8&tag=avadalove-20)
+### [28\. BigMouth Margarita Bottle Glass](https://www.amazon.com/Bigmouth-Inc-Margarita-Bottle-Glass/dp/B07WKRWR7J/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bigmouth-Inc-Margarita-Bottle-Glass/dp/B07WKRWR7J/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bigmouth-Inc-Margarita-Bottle-Glass/dp/B07WKRWR7J/?ie=UTF8&tag=giftable02-20)
 
 Nothing screams "I love tequila" quite like a big-mouth bottle glass. And with its bold black color, this glass is sure to make your tequila-loving buddy green with envy. Plus, it comes with a built-in ice mold to ensure the coldest sips ever.
 
@@ -479,11 +479,11 @@ Made from durable plastic and BPA-free material, this unique bottle is the perfe
 
 ✔️ This bottle is versatile
 
-[Buy from Amazon](https://www.amazon.com/Bigmouth-Inc-Margarita-Bottle-Glass/dp/B07WKRWR7J/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bigmouth-Inc-Margarita-Bottle-Glass/dp/B07WKRWR7J/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Margarita Glass Insulated Gel Chiller](https://www.amazon.com/Margarita-FREEZE-Cooling-Cups-HOST/dp/B01LWP349M/?ie=UTF8&tag=avadalove-20)
+### [29\. Margarita Glass Insulated Gel Chiller](https://www.amazon.com/Margarita-FREEZE-Cooling-Cups-HOST/dp/B01LWP349M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Margarita-FREEZE-Cooling-Cups-HOST/dp/B01LWP349M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Margarita-FREEZE-Cooling-Cups-HOST/dp/B01LWP349M/?ie=UTF8&tag=giftable02-20)
 
 Nothing beats the feeling of sipping on chilled tequila while enjoying the warmth of the sun. However, the last thing anyone wants is a watered-down drink that fails to meet their expectations.
 
@@ -497,11 +497,11 @@ Say hello to the plastic double-wall frozen cocktail cup, the ideal companion fo
 
 ✔️ Allows anyone to enjoy their tequila with the perfect amount of chill
 
-[Buy from Amazon](https://www.amazon.com/Margarita-FREEZE-Cooling-Cups-HOST/dp/B01LWP349M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Margarita-FREEZE-Cooling-Cups-HOST/dp/B01LWP349M/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Cocktail Recipe Glass](https://www.amazon.com/Fred-MEASURE-Cocktail-Recipe-Tequila/dp/B01LYTOOP6/?ie=UTF8&tag=avadalove-20)
+### [30\. Cocktail Recipe Glass](https://www.amazon.com/Fred-MEASURE-Cocktail-Recipe-Tequila/dp/B01LYTOOP6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fred-MEASURE-Cocktail-Recipe-Tequila/dp/B01LYTOOP6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fred-MEASURE-Cocktail-Recipe-Tequila/dp/B01LYTOOP6/?ie=UTF8&tag=giftable02-20)
 
 Raise your glass, because, with the Fred Good Measure Cocktail Recipe Glass, you'll be tequila-ready and on the rocks!
 
@@ -515,11 +515,11 @@ You can choose between two elegant shapes, a straight and a curved glass, each o
 
 ✔️ Make their cocktails look like they've been crafted by a pro
 
-[Buy from Amazon](https://www.amazon.com/Fred-MEASURE-Cocktail-Recipe-Tequila/dp/B01LYTOOP6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fred-MEASURE-Cocktail-Recipe-Tequila/dp/B01LYTOOP6/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Mud Pie Lime and Salt Rimmer Margarita Set](https://www.amazon.com/Mud-Pie-Rimmer-Margarita-White/dp/B01NCPUCQP/?ie=UTF8&tag=avadalove-20)
+### [31\. Mud Pie Lime and Salt Rimmer Margarita Set](https://www.amazon.com/Mud-Pie-Rimmer-Margarita-White/dp/B01NCPUCQP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mud-Pie-Rimmer-Margarita-White/dp/B01NCPUCQP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mud-Pie-Rimmer-Margarita-White/dp/B01NCPUCQP/?ie=UTF8&tag=giftable02-20)
 
 Say goodbye to complicated margarita recipes and hello to easy entertaining with this set.
 
@@ -533,4 +533,4 @@ With just a few simple steps, you can whip up a delicious margarita that's sure 
 
 ✔️ It's a gift that keeps on giving
 
-[Buy from Amazon](https://www.amazon.com/Mud-Pie-Rimmer-Margarita-White/dp/B01NCPUCQP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mud-Pie-Rimmer-Margarita-White/dp/B01NCPUCQP/?ie=UTF8&tag=giftable02-20)

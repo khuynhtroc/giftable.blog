@@ -19,8 +19,6 @@ You can choose from a variety of great gifts for your beloved wife, such as neck
 
 In this post, we've compiled a selection of the best leather anniversary presents for women so you can show her how much you love her. Let's get started and explore what gifts we have to offer, as well as how our gift collection might inspire you.
 
-**Related Collection:** **[Wooden Anniversary Gifts](/wooden-anniversary-gifts/)** For Your 5th Anniversary
-
 ### [1\. Personalized To My Badass Wife Necklace](https://loveable.ai/products/to-my-badass-wifegirlfriend-personalized-christmas-gift-for-herwife-best-meaningful-gift-for-your-lovers-white-gold-necklace-for-christmas-210ihpnpje413?variant=43994194673896?utm_source=avada&ranking=&utm_source=&utm_campaign=uncommon-leather-gifts-for-wife-to-show-your-love)
 
 [](https://loveable.ai/products/to-my-badass-wifegirlfriend-personalized-christmas-gift-for-herwife-best-meaningful-gift-for-your-lovers-white-gold-necklace-for-christmas-210ihpnpje413?variant=43994194673896?utm_source=avada&ranking=&utm_source=&utm_campaign=uncommon-leather-gifts-for-wife-to-show-your-love)

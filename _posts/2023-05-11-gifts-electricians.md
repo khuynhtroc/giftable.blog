@@ -303,9 +303,9 @@ Your electric experts will love how comfy it is and will want to wear it all day
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/735649689/electrician-t-shirt-funny-electrician)
 
-### [17\. Diagonal Cutting Pliers](https://www.amazon.com/Klein-Tools-J2000-48-Diagonal-Cutters/dp/B0006M6Y8O?ie=UTF8&tag=avadalove-20)
+### [17\. Diagonal Cutting Pliers](https://www.amazon.com/Klein-Tools-J2000-48-Diagonal-Cutters/dp/B0006M6Y8O?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Klein-Tools-J2000-48-Diagonal-Cutters/dp/B0006M6Y8O?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Klein-Tools-J2000-48-Diagonal-Cutters/dp/B0006M6Y8O?ie=UTF8&tag=giftable02-20)
 
 Diagonal Cutters with an angled head are ideal for working in tight spaces. This cutter has a high-leverage design, and the rivet is closer to the cutting edge than other plier designs, giving it 36 percent more cutting force.
 
@@ -319,11 +319,11 @@ Short jaws and beveled cutting edges allow for tight wire cutting. The electrici
 
 ✔️ Trusted by professionals for high-quality performance
 
-[Buy from Amazon](https://www.amazon.com/Klein-Tools-J2000-48-Diagonal-Cutters/dp/B0006M6Y8O?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Klein-Tools-J2000-48-Diagonal-Cutters/dp/B0006M6Y8O?ie=UTF8&tag=giftable02-20)
 
-### [18\. Funny Saying Hats](https://www.amazon.com/Saying-Baseball-Things-Fashionable-Adjustable/dp/B0BZYSL24C/ref=sr_1_68?content-id=amzn1.sym.9575273b-ecd8-4648-9bf0-15f20c657e0a&keywords=tool+hats+for+men&pd_rd_r=7fad6f7d-4e34-475c-a0a1-5ec4746f4e88&pd_rd_w=nmrdf&pd_rd_wg=XSyZJ&pf_rd_p=9575273b-ecd8-4648-9bf0-15f20c657e0a&pf_rd_r=7X2M9XT92W62YJSA1KFT&qid=1689675467&sr=8-68?ie=UTF8&tag=avadalove-20) 
+### [18\. Funny Saying Hats](https://www.amazon.com/Saying-Baseball-Things-Fashionable-Adjustable/dp/B0BZYSL24C/ref=sr_1_68?content-id=amzn1.sym.9575273b-ecd8-4648-9bf0-15f20c657e0a&keywords=tool+hats+for+men&pd_rd_r=7fad6f7d-4e34-475c-a0a1-5ec4746f4e88&pd_rd_w=nmrdf&pd_rd_wg=XSyZJ&pf_rd_p=9575273b-ecd8-4648-9bf0-15f20c657e0a&pf_rd_r=7X2M9XT92W62YJSA1KFT&qid=1689675467&sr=8-68?ie=UTF8&tag=giftable02-20) 
 
-[](https://www.amazon.com/Saying-Baseball-Things-Fashionable-Adjustable/dp/B0BZYSL24C/ref=sr_1_68?content-id=amzn1.sym.9575273b-ecd8-4648-9bf0-15f20c657e0a&keywords=tool+hats+for+men&pd_rd_r=7fad6f7d-4e34-475c-a0a1-5ec4746f4e88&pd_rd_w=nmrdf&pd_rd_wg=XSyZJ&pf_rd_p=9575273b-ecd8-4648-9bf0-15f20c657e0a&pf_rd_r=7X2M9XT92W62YJSA1KFT&qid=1689675467&sr=8-68?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Saying-Baseball-Things-Fashionable-Adjustable/dp/B0BZYSL24C/ref=sr_1_68?content-id=amzn1.sym.9575273b-ecd8-4648-9bf0-15f20c657e0a&keywords=tool+hats+for+men&pd_rd_r=7fad6f7d-4e34-475c-a0a1-5ec4746f4e88&pd_rd_w=nmrdf&pd_rd_wg=XSyZJ&pf_rd_p=9575273b-ecd8-4648-9bf0-15f20c657e0a&pf_rd_r=7X2M9XT92W62YJSA1KFT&qid=1689675467&sr=8-68?ie=UTF8&tag=giftable02-20)
 
 The Funny Saying Hats is made of the highest-quality materials available. It's perfect for any occasion, but especially for the electricians in your life.
 
@@ -337,11 +337,11 @@ This lovely hat is extremely soft and warm. It's ideal for a morning walk or run
 
 ✔️ Suitable for both indoor and outdoor use
 
-[Buy from Amazon](https://www.amazon.com/Saying-Baseball-Things-Fashionable-Adjustable/dp/B0BZYSL24C/ref=sr_1_68?content-id=amzn1.sym.9575273b-ecd8-4648-9bf0-15f20c657e0a&keywords=tool+hats+for+men&pd_rd_r=7fad6f7d-4e34-475c-a0a1-5ec4746f4e88&pd_rd_w=nmrdf&pd_rd_wg=XSyZJ&pf_rd_p=9575273b-ecd8-4648-9bf0-15f20c657e0a&pf_rd_r=7X2M9XT92W62YJSA1KFT&qid=1689675467&sr=8-68?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Saying-Baseball-Things-Fashionable-Adjustable/dp/B0BZYSL24C/ref=sr_1_68?content-id=amzn1.sym.9575273b-ecd8-4648-9bf0-15f20c657e0a&keywords=tool+hats+for+men&pd_rd_r=7fad6f7d-4e34-475c-a0a1-5ec4746f4e88&pd_rd_w=nmrdf&pd_rd_wg=XSyZJ&pf_rd_p=9575273b-ecd8-4648-9bf0-15f20c657e0a&pf_rd_r=7X2M9XT92W62YJSA1KFT&qid=1689675467&sr=8-68?ie=UTF8&tag=giftable02-20)
 
-### [19\. Escape Ladder](https://www.amazon.com/Kidde-468093-Two-Story-Anti-Slip-13-Foot/dp/B00005OU7B/?ie=UTF8&tag=avadalove-20)
+### [19\. Escape Ladder](https://www.amazon.com/Kidde-468093-Two-Story-Anti-Slip-13-Foot/dp/B00005OU7B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kidde-468093-Two-Story-Anti-Slip-13-Foot/dp/B00005OU7B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kidde-468093-Two-Story-Anti-Slip-13-Foot/dp/B00005OU7B/?ie=UTF8&tag=giftable02-20)
 
 Kidde Escape Ladders are tangle-free and attach quickly to most windows, stretching out to form a flame-resistant, resilient, and sturdy ladder capable of supporting up to 1,000 pounds.
 
@@ -355,11 +355,11 @@ Each ladder is small enough to fit under a bed or in a closet near a window. It'
 
 ✔️ Anti-slip rungs ensure secure footing
 
-[Buy from Amazon](https://www.amazon.com/Kidde-468093-Two-Story-Anti-Slip-13-Foot/dp/B00005OU7B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kidde-468093-Two-Story-Anti-Slip-13-Foot/dp/B00005OU7B/?ie=UTF8&tag=giftable02-20)
 
-### [20\. Crew Tube Socks](https://www.amazon.com/Packsjap-Electrician-Athletic-Colorful-Novelty/dp/B07MWSG77C?ie=UTF8&tag=avadalove-20)
+### [20\. Crew Tube Socks](https://www.amazon.com/Packsjap-Electrician-Athletic-Colorful-Novelty/dp/B07MWSG77C?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Packsjap-Electrician-Athletic-Colorful-Novelty/dp/B07MWSG77C?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Packsjap-Electrician-Athletic-Colorful-Novelty/dp/B07MWSG77C?ie=UTF8&tag=giftable02-20)
 
 These IT code socks will make any serious electric technician smile. 3D printed socks reduce the need to sort and pair socks and are perfect for your electricians.
 
@@ -373,11 +373,11 @@ Sassy socks come in a variety of styles that may be worn with both casual and fo
 
 ✔️ Available in a one-size-fits-most design
 
-[Buy from Amazon](https://www.amazon.com/Packsjap-Electrician-Athletic-Colorful-Novelty/dp/B07MWSG77C?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Packsjap-Electrician-Athletic-Colorful-Novelty/dp/B07MWSG77C?ie=UTF8&tag=giftable02-20)
 
-### [21\. Electrician Screwdriver Set](https://www.amazon.com/Insulated-Electrician-Screwdriver-Professional-13-Pieces/dp/B07R6QR67X?ie=UTF8&tag=avadalove-20)
+### [21\. Electrician Screwdriver Set](https://www.amazon.com/Insulated-Electrician-Screwdriver-Professional-13-Pieces/dp/B07R6QR67X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Insulated-Electrician-Screwdriver-Professional-13-Pieces/dp/B07R6QR67X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Insulated-Electrician-Screwdriver-Professional-13-Pieces/dp/B07R6QR67X?ie=UTF8&tag=giftable02-20)
 
 The Electrician Screwdriver Set allows your electric specialists to operate with less effort and improve efficiency thanks to its lightweight and proper proportions.
 
@@ -391,11 +391,11 @@ The screwdriver is built of quality steel for added strength and has an easy-to-
 
 ✔️ Comes with a convenient carrying case
 
-[Buy from Amazon](https://www.amazon.com/Insulated-Electrician-Screwdriver-Professional-13-Pieces/dp/B07R6QR67X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Insulated-Electrician-Screwdriver-Professional-13-Pieces/dp/B07R6QR67X?ie=UTF8&tag=giftable02-20)
 
-### [22\. Lighted Technician’s Tool Bag](https://www.amazon.com/DEWALT-DGL573-Lighted-Technicians-Tool/dp/B00QNTVV6Y/ref=sr_1_6?keywords=Lighted+Technician%E2%80%99s+Tool+Bag&qid=1689675885&sr=8-6?ie=UTF8&tag=avadalove-20)
+### [22\. Lighted Technician’s Tool Bag](https://www.amazon.com/DEWALT-DGL573-Lighted-Technicians-Tool/dp/B00QNTVV6Y/ref=sr_1_6?keywords=Lighted+Technician%E2%80%99s+Tool+Bag&qid=1689675885&sr=8-6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DEWALT-DGL573-Lighted-Technicians-Tool/dp/B00QNTVV6Y/ref=sr_1_6?keywords=Lighted+Technician%E2%80%99s+Tool+Bag&qid=1689675885&sr=8-6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DEWALT-DGL573-Lighted-Technicians-Tool/dp/B00QNTVV6Y/ref=sr_1_6?keywords=Lighted+Technician%E2%80%99s+Tool+Bag&qid=1689675885&sr=8-6?ie=UTF8&tag=giftable02-20)
 
 This tool bag has three levels of light output that can be adjusted for wide-area illumination or close-up work, with a maximum light output of 39 lumens.
 
@@ -409,11 +409,11 @@ For increased comfort, this tool bag has padded web carrying handles, adjustable
 
 ✔️ Adjustable straps ensure a personalized fit
 
-[Buy from Amazon](https://www.amazon.com/DEWALT-DGL573-Lighted-Technicians-Tool/dp/B00QNTVV6Y/ref=sr_1_6?keywords=Lighted+Technician%E2%80%99s+Tool+Bag&qid=1689675885&sr=8-6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DEWALT-DGL573-Lighted-Technicians-Tool/dp/B00QNTVV6Y/ref=sr_1_6?keywords=Lighted+Technician%E2%80%99s+Tool+Bag&qid=1689675885&sr=8-6?ie=UTF8&tag=giftable02-20)
 
-### [23\. Magnetic Wrist Band](https://www.amazon.com/BINYATOOLS-Wristband-Flashlight-Boyfriends-Electrician/dp/B096ZM9F4N/?ie=UTF8&tag=avadalove-20)
+### [23\. Magnetic Wrist Band](https://www.amazon.com/BINYATOOLS-Wristband-Flashlight-Boyfriends-Electrician/dp/B096ZM9F4N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BINYATOOLS-Wristband-Flashlight-Boyfriends-Electrician/dp/B096ZM9F4N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BINYATOOLS-Wristband-Flashlight-Boyfriends-Electrician/dp/B096ZM9F4N/?ie=UTF8&tag=giftable02-20)
 
 This magnetic wristband for holding screws is lightweight, comfy, and adaptable around the wrist or belt.
 
@@ -427,11 +427,11 @@ The inside layer is comprised of a mesh cloth that is soft, pleasant, and breath
 
 ✔️ Features a powerful LED flashlight
 
-[Buy from Amazon](https://www.amazon.com/BINYATOOLS-Wristband-Flashlight-Boyfriends-Electrician/dp/B096ZM9F4N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BINYATOOLS-Wristband-Flashlight-Boyfriends-Electrician/dp/B096ZM9F4N/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Screwdriver Keychain](https://www.amazon.com/Keychain-Screwdriver-Christmas-Electrician-Boyfriend/dp/B08HL2NRY7/?ie=UTF8&tag=avadalove-20)
+### [24\. Screwdriver Keychain](https://www.amazon.com/Keychain-Screwdriver-Christmas-Electrician-Boyfriend/dp/B08HL2NRY7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Screwdriver-Christmas-Electrician-Boyfriend/dp/B08HL2NRY7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Screwdriver-Christmas-Electrician-Boyfriend/dp/B08HL2NRY7/?ie=UTF8&tag=giftable02-20)
 
 This versatile keychain screwdriver is the ideal gift for electricians in your life, combining the most regularly used screwdriver bit and nut shape.
 
@@ -445,11 +445,11 @@ This screwdriver is very convenient to take around due to its small size and lig
 
 ✔️ Convenient for on-the-go tool access
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Screwdriver-Christmas-Electrician-Boyfriend/dp/B08HL2NRY7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Screwdriver-Christmas-Electrician-Boyfriend/dp/B08HL2NRY7/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Sketcher Boots](https://www.amazon.com/Skechers-Burgin-Tarlac-Industrial-embossed-leather/dp/B073WHN7GT?ie=UTF8&tag=avadalove-20)
+### [25\. Sketcher Boots](https://www.amazon.com/Skechers-Burgin-Tarlac-Industrial-embossed-leather/dp/B073WHN7GT?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Skechers-Burgin-Tarlac-Industrial-embossed-leather/dp/B073WHN7GT?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Skechers-Burgin-Tarlac-Industrial-embossed-leather/dp/B073WHN7GT?ie=UTF8&tag=giftable02-20)
 
 The electric technician in your life will appreciate a good pair of boots because they can be used for so many purposes. They are, for example, functional for the colder seasons while still being a fashion staple that everyone should own.
 
@@ -463,11 +463,11 @@ Tumbled leather work boot with mesh interior and a contrast cushioned collar and
 
 ✔️ Slip-resistant rubber outsole for safety
 
-[Buy from Amazon](https://www.amazon.com/Skechers-Burgin-Tarlac-Industrial-embossed-leather/dp/B073WHN7GT?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Skechers-Burgin-Tarlac-Industrial-embossed-leather/dp/B073WHN7GT?ie=UTF8&tag=giftable02-20)
 
-### [26\. Unisex Lighted Beanie Hat](https://www.amazon.com/Etsfmoa-Rechargeable-Lighted-Headlight-Headlamp/dp/B07YNDHSR7/?ie=UTF8&tag=avadalove-20)
+### [26\. Unisex Lighted Beanie Hat](https://www.amazon.com/Etsfmoa-Rechargeable-Lighted-Headlight-Headlamp/dp/B07YNDHSR7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Etsfmoa-Rechargeable-Lighted-Headlight-Headlamp/dp/B07YNDHSR7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Etsfmoa-Rechargeable-Lighted-Headlight-Headlamp/dp/B07YNDHSR7/?ie=UTF8&tag=giftable02-20)
 
 This unisex lit beanie cap gives great hands-free lighting so your electricians can get on with things on cold days, plus the beanie hat is comfy, cozy, and washable.
 
@@ -481,11 +481,11 @@ The ultra-soft acrylic blend of this one-size-fits-all beanie cap with light giv
 
 ✔️ Provides 8 hours of high-intensity light
 
-[Buy from Amazon](https://www.amazon.com/Etsfmoa-Rechargeable-Lighted-Headlight-Headlamp/dp/B07YNDHSR7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Etsfmoa-Rechargeable-Lighted-Headlight-Headlamp/dp/B07YNDHSR7/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Electrician Coffee Mug](https://www.amazon.com/Funny-Electrician-Coffee-Novelty-Meaning/dp/B07K3VSBSR?ie=UTF8&tag=avadalove-20)
+### [27\. Electrician Coffee Mug](https://www.amazon.com/Funny-Electrician-Coffee-Novelty-Meaning/dp/B07K3VSBSR?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Electrician-Coffee-Novelty-Meaning/dp/B07K3VSBSR?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Electrician-Coffee-Novelty-Meaning/dp/B07K3VSBSR?ie=UTF8&tag=giftable02-20)
 
 This witty sarcastic electrician coffee mug is the ideal present for any electrician. This black ceramic mug's high-quality sublimation printing makes it the ideal present for any true coffee, tea, or hot chocolate enthusiast. Ceramic mugs are durable, shiny, and have vibrant prints.
 
@@ -499,11 +499,11 @@ This coffee mug will also serve as a terrific conversation starter, causing ever
 
 ✔️ Quality ceramic for durability
 
-[Buy from Amazon](https://www.amazon.com/Funny-Electrician-Coffee-Novelty-Meaning/dp/B07K3VSBSR?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Electrician-Coffee-Novelty-Meaning/dp/B07K3VSBSR?ie=UTF8&tag=giftable02-20)
 
-### [28\. Electricians Pocket Knife](https://www.amazon.com/SOG-Electrician-Knife-Electricians-Stripping/dp/B003Z77ZP8?ie=UTF8&tag=avadalove-20)
+### [28\. Electricians Pocket Knife](https://www.amazon.com/SOG-Electrician-Knife-Electricians-Stripping/dp/B003Z77ZP8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SOG-Electrician-Knife-Electricians-Stripping/dp/B003Z77ZP8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SOG-Electrician-Knife-Electricians-Stripping/dp/B003Z77ZP8?ie=UTF8&tag=giftable02-20)
 
 A folding pocket knife with a clip and a UTP wire stripper is housed in the handle of this electrician multi-tool. This knife is a must-have gadget for electricians and tradesmen in your life.
 
@@ -517,7 +517,7 @@ A clip-point blade with a satin finish and a laser-etched bespoke design makes f
 
 ✔️ Features a wire-stripping notch
 
-[Buy from Amazon](https://www.amazon.com/SOG-Electrician-Knife-Electricians-Stripping/dp/B003Z77ZP8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SOG-Electrician-Knife-Electricians-Stripping/dp/B003Z77ZP8?ie=UTF8&tag=giftable02-20)
 
 ### [29\. LED Night Lamp](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1170558201/electricians-gift-light-up-personalized)
 

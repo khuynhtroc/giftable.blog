@@ -145,11 +145,11 @@ Unlike normal toys, this handmade stuffed bear is unique because it is crocheted
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1154439001/crochet-bear-with-heart-handmade-stuffed)
 
-### [9\. Handmade Heart Block](https://www.amazon.com/Heart-keepsake-Unique-loved-ones/dp/B074KJJPT5/?ie=UTF8&tag=avadalove-20)
+### [9\. Handmade Heart Block](https://www.amazon.com/Heart-keepsake-Unique-loved-ones/dp/B074KJJPT5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Heart-keepsake-Unique-loved-ones/dp/B074KJJPT5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Heart-keepsake-Unique-loved-ones/dp/B074KJJPT5/?ie=UTF8&tag=giftable02-20)
 
-Your lover will be thrilled to receive this handmade heart block this upcoming Valentine's day, as it is so beautiful. The item is an art piece created from amazing craftsmanship and is a **[unique home decor item](https://avada.io/loveable/home-decor-gifts/)** for all spaces.
+Your lover will be thrilled to receive this handmade heart block this upcoming Valentine's day, as it is so beautiful. The item is an art piece created from amazing craftsmanship and is a **[unique home decor item](/home-decor-gifts/)** for all spaces.
 
 **Pros:**
 
@@ -161,7 +161,7 @@ Your lover will be thrilled to receive this handmade heart block this upcoming V
 
 ✔️ Durable
 
-[Buy from Amazon](https://www.amazon.com/Heart-keepsake-Unique-loved-ones/dp/B074KJJPT5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Heart-keepsake-Unique-loved-ones/dp/B074KJJPT5/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Treasure Cookie Boxes](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/955086047/deluxe-kit-scalloped-treasure-cookie)
 
@@ -259,9 +259,9 @@ This handmade Valentine's sock Gnome will make your beloved surprised by how wel
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1137291438/handmade-valentine-sock-gnome-valentie)
 
-### [16\. Succulent Plant](https://www.amazon.com/Succulent-Succulents-Decoration-Projects-Cult/dp/B0B17R6GM4/?ie=UTF8&tag=avadalove-20)
+### [16\. Succulent Plant](https://www.amazon.com/Succulent-Succulents-Decoration-Projects-Cult/dp/B0B17R6GM4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Succulent-Succulents-Decoration-Projects-Cult/dp/B0B17R6GM4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Succulent-Succulents-Decoration-Projects-Cult/dp/B0B17R6GM4/?ie=UTF8&tag=giftable02-20)
 
 A succulent plant is always a wonderful gift regardless of the occasion, as it has a unique meaning. As a gift for Valentine's day, we are introducing you to a special plant with heart-shaped leaves that are so adorable and easy to grow.
 
@@ -273,11 +273,11 @@ A succulent plant is always a wonderful gift regardless of the occasion, as it h
 
 ✔️ Beautiful home decor
 
-[Buy from Amazon](https://www.amazon.com/Succulent-Succulents-Decoration-Projects-Cult/dp/B0B17R6GM4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Succulent-Succulents-Decoration-Projects-Cult/dp/B0B17R6GM4/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Puzzle Paper Cut Art](https://www.amazon.com/fit-together-Puzzle-Paper-Cut/dp/B083FFDF3G/?ie=UTF8&tag=avadalove-20)
+### [17\. Puzzle Paper Cut Art](https://www.amazon.com/fit-together-Puzzle-Paper-Cut/dp/B083FFDF3G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/fit-together-Puzzle-Paper-Cut/dp/B083FFDF3G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/fit-together-Puzzle-Paper-Cut/dp/B083FFDF3G/?ie=UTF8&tag=giftable02-20)
 
 This puzzle paper cut art is a symbol of love and so meaningful to show how much of your love for him/her. The item is a recommended Valentine's gift for not only lovers but also friends because the two pieces of the puzzle are set to show the fit between you two.
 
@@ -289,7 +289,7 @@ This puzzle paper cut art is a symbol of love and so meaningful to show how much
 
 ✔️ Long-lasting use
 
-[Buy from Amazon](https://www.amazon.com/fit-together-Puzzle-Paper-Cut/dp/B083FFDF3G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/fit-together-Puzzle-Paper-Cut/dp/B083FFDF3G/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Set of 10 Heart Soap Favors](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/659838822/valentine-soap-favors-heart-soap-favors)
 
@@ -343,7 +343,7 @@ Anyone who receives this Valentine's countdown calendar will have an amazing pie
 
 [](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/747807031/pickle-labels-canning-jar-labels-canning)
 
-If your beloved one is a **[cooking lover](https://avada.io/loveable/cooking-gifts/)**, these pickle labels will satisfy him/her this upcoming Valentine's day for sure. The way these labels are personalized is amazing with a custom font, custom color, and custom text; all will become a great addition to the kitchen space.
+If your beloved one is a **[cooking lover](/cooking-gifts/)**, these pickle labels will satisfy him/her this upcoming Valentine's day for sure. The way these labels are personalized is amazing with a custom font, custom color, and custom text; all will become a great addition to the kitchen space.
 
 **Pros:**
 

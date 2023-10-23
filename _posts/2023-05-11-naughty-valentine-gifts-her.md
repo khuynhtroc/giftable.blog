@@ -213,9 +213,9 @@ This game for couples will help spice up your relationship, and you'll soon be l
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/769546864/sexy-anniversary-gift-with-erotic-photos)
 
-### [12\. Avidlove Lingerie for Women Lace Babydoll Sleepwear](https://www.amazon.com/Avidlove-Lingerie-Babydoll-Sleepwear-Chemise/dp/B07413HYP1/?ie=UTF8&tag=avadalove-20)
+### [12\. Avidlove Lingerie for Women Lace Babydoll Sleepwear](https://www.amazon.com/Avidlove-Lingerie-Babydoll-Sleepwear-Chemise/dp/B07413HYP1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Avidlove-Lingerie-Babydoll-Sleepwear-Chemise/dp/B07413HYP1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Avidlove-Lingerie-Babydoll-Sleepwear-Chemise/dp/B07413HYP1/?ie=UTF8&tag=giftable02-20)
 
 Make Valentine's special with Lace babydoll lingerie.
 
@@ -229,7 +229,7 @@ These lingeries will definitely be a hit, even with the toughest guys, to spice 
 
 ✔️ Perfect for a special night with your partner
 
-[Buy from Amazon](https://www.amazon.com/Avidlove-Lingerie-Babydoll-Sleepwear-Chemise/dp/B07413HYP1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Avidlove-Lingerie-Babydoll-Sleepwear-Chemise/dp/B07413HYP1/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. After Sex Towel for Her](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/935214986/funny-valentines-day-gift-for-boyfriend)
 

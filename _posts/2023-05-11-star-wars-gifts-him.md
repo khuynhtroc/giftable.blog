@@ -17,9 +17,9 @@ Finding the ideal gift can be challenging in a galaxy with countless Star Wars c
 
 Whether he's a Jedi Knight or a Sith Lord at heart, our expert recommendations will help you find the perfect gift for him. So, get ready to embark on a journey through the stars and discover the ultimate **Star Wars gifts for him**!
 
-### [1\. Bluetooth Speaker](https://www.amazon.com/Star-Wars-Li-B33-FMv7-Bluetooth-Speaker/dp/B014CP1CKA/?ie=UTF8&tag=avadalove-20)
+### [1\. Bluetooth Speaker](https://www.amazon.com/Star-Wars-Li-B33-FMv7-Bluetooth-Speaker/dp/B014CP1CKA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Star-Wars-Li-B33-FMv7-Bluetooth-Speaker/dp/B014CP1CKA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Li-B33-FMv7-Bluetooth-Speaker/dp/B014CP1CKA/?ie=UTF8&tag=giftable02-20)
 
 Awaken the force of music with the Star Wars Light Sabre Bluetooth speaker. This Bluetooth speaker is more than just a means to listen to your favourite tunes—it's also your ticket to exciting experiences in a galaxy far, far away. With its Aux-In connector and Bluetooth connectivity, you can plug into the Star Wars universe like never before.
 
@@ -33,11 +33,11 @@ Awaken the force of music with the Star Wars Light Sabre Bluetooth speaker. This
 
 ✔️ Perfect star wars gifts for men who want to enhance their audio setup
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Li-B33-FMv7-Bluetooth-Speaker/dp/B014CP1CKA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Li-B33-FMv7-Bluetooth-Speaker/dp/B014CP1CKA/?ie=UTF8&tag=giftable02-20)
 
-### [2\. MONOPOLY](https://www.amazon.com/dp/B07QBVWFSP?ie=UTF8&tag=avadalove-20)
+### [2\. MONOPOLY](https://www.amazon.com/dp/B07QBVWFSP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07QBVWFSP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07QBVWFSP?ie=UTF8&tag=giftable02-20)
 
 Embark on an intergalactic adventure with MONOPOLY: Star Wars Edition. This unique twist on the classic board game transports Star Wars enthusiasts to a galaxy far, far away, allowing them to immerse themselves in the epic saga spanning all 9 movie episodes. With cards, dice, game boards, collectible miniatures, stickers, and a bonus playmat, this special edition offers endless hours of fun and strategic gameplay.
 
@@ -51,11 +51,11 @@ Embark on an intergalactic adventure with MONOPOLY: Star Wars Edition. This uniq
 
 ✔️ Perfect **[gift for board game enthusiasts](/gifts-board-game-lovers/)** and Star Wars aficionados
 
-[Buy from Amazon](https://www.amazon.com/dp/B07QBVWFSP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07QBVWFSP?ie=UTF8&tag=giftable02-20)
 
-### [3\. Star Wars Darth Vader Bluetooth Speaker](https://www.amazon.com/dp/B081QYKS8V?ie=UTF8&tag=avadalove-20)
+### [3\. Star Wars Darth Vader Bluetooth Speaker](https://www.amazon.com/dp/B081QYKS8V?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B081QYKS8V?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B081QYKS8V?ie=UTF8&tag=giftable02-20)
 
 Bring the Force to your music with the Star Wars Darth Vader Bluetooth Speaker. This sleek and powerful speaker can go anywhere with you and still provide high-quality sound. It is equally at home indoors or out because of its resistance to water and general wear and tear. This Bluetooth speaker is perfect for when he wants to listen to music or view films with friends.
 
@@ -69,11 +69,11 @@ Bring the Force to your music with the Star Wars Darth Vader Bluetooth Speaker. 
 
 ✔️ Turns any room into a party with its impressive sound performance
 
-[Buy from Amazon](https://www.amazon.com/dp/B081QYKS8V?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B081QYKS8V?ie=UTF8&tag=giftable02-20)
 
-### [4\. Saber Chop Sticks](https://www.amazon.com/dp/B08235NJ61/?ie=UTF8&tag=avadalove-20)
+### [4\. Saber Chop Sticks](https://www.amazon.com/dp/B08235NJ61/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B08235NJ61/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B08235NJ61/?ie=UTF8&tag=giftable02-20)
 
 Illuminate your dining experience with our Saber Chop Sticks, the ultimate accessory for Star Wars enthusiasts. These BPA-free plastic chopsticks feature LED lights that mimic the iconic lightsabers from the beloved franchise. With two pairs in each set, they can be used as both functional utensils and eye-catching decorations for your home or office. Whether you're hosting a Star Wars-themed dinner party or simply want to add a touch of galactic flair to your meals, these saber chopsticks are a must-have.
 
@@ -87,7 +87,7 @@ Illuminate your dining experience with our Saber Chop Sticks, the ultimate acces
 
 ✔️ Ideal gift for Star Wars fans and collectors
 
-[Buy from Amazon](https://www.amazon.com/dp/B08235NJ61/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B08235NJ61/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Replica Star Wars Sith Holocron](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/590187642/replica-star-wars-sith-holocron-dark)
 
@@ -105,9 +105,9 @@ Unlock the power of the Dark Side with our Replica Star Wars Sith Holocron, an e
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/590187642/replica-star-wars-sith-holocron-dark)
 
-### [6\. LEGO Star Wars Boba Fett Helmet](https://www.amazon.com/LEGO-Helmet-Building-Collectible-Character/dp/B083JX5M79/?ie=UTF8&tag=avadalove-20)
+### [6\. LEGO Star Wars Boba Fett Helmet](https://www.amazon.com/LEGO-Helmet-Building-Collectible-Character/dp/B083JX5M79/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEGO-Helmet-Building-Collectible-Character/dp/B083JX5M79/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEGO-Helmet-Building-Collectible-Character/dp/B083JX5M79/?ie=UTF8&tag=giftable02-20)
 
 Looking for star wars gifts for boyfriend? The LEGO Star Wars Boba Fett helmet will let him channel his inner power. The legendary Star Wars bounty hunter Boba Fett's distinctive helmet is brought to life in this spectacular limited-edition LEGO kit. This helmet, made with painstaking accuracy, perfectly captures the spirit of the character and transports him into the Star Wars narrative. It's an essential present that will spark his interest in the Star Wars universe.
 
@@ -121,11 +121,11 @@ Looking for star wars gifts for boyfriend? The LEGO Star Wars Boba Fett helmet w
 
 ✔️ Clear plastic visor fits any LEGO Star Wars figure
 
-[Buy from Amazon](https://www.amazon.com/LEGO-Helmet-Building-Collectible-Character/dp/B083JX5M79/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEGO-Helmet-Building-Collectible-Character/dp/B083JX5M79/?ie=UTF8&tag=giftable02-20)
 
-### [7\. The Child Chia Pet Floating Edition](https://www.amazon.com/dp/B08DRBZB1K?ie=UTF8&tag=avadalove-20)
+### [7\. The Child Chia Pet Floating Edition](https://www.amazon.com/dp/B08DRBZB1K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B08DRBZB1K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B08DRBZB1K?ie=UTF8&tag=giftable02-20)
 
 Bring the enchanting world of Baby Yoda to life with The Child Chia Pet Floating Edition. This delightful and functional floating bassinet will capture the imagination of any Star Wars fan. Fill it with plants, seed packets, and additional Chia Pet figures to create a lush and green display that will provide fresh greens throughout the day. It's the perfect gift for those who can't get enough of the new movie.
 
@@ -139,7 +139,7 @@ Bring the enchanting world of Baby Yoda to life with The Child Chia Pet Floating
 
 ✔️ Ideal gift for fans of The **[Mandalorian](/mandalorian-gifts/)** and **[Baby Yoda](/baby-yoda-gifts/)**
 
-[Buy from Amazon](https://www.amazon.com/dp/B08DRBZB1K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B08DRBZB1K?ie=UTF8&tag=giftable02-20)
 
 ### [8\. Lightsaber Water Bottle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1044067375/32oz-star-wars-lightsaber-water-bottle)
 
@@ -305,9 +305,9 @@ The Darth Vader Pen Holder is an essential piece of merchandise for every self-r
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/710765385/darth-vader-pen-holder-star-wars)
 
-### [17\. Kotobukiya Star Wars](https://www.amazon.com/dp/B005FP4286?ie=UTF8&tag=avadalove-20)
+### [17\. Kotobukiya Star Wars](https://www.amazon.com/dp/B005FP4286?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B005FP4286?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B005FP4286?ie=UTF8&tag=giftable02-20)
 
 Make your Star Wars party an unforgettable event with the Kotobukiya Star Wars Silicone Trays. These versatile trays allow you to create custom-shaped ice cubes, chocolates, or even jellies in the iconic form of Han Solo frozen in Carbonite from "The Empire Strikes Back" and "Return of the Jedi." Let your imagination run wild as you bring this beloved Star Wars character to life in delicious and unique ways. This Kotobukiya product is sure to add a touch of excitement and creativity to your family table.
 
@@ -321,11 +321,11 @@ Make your Star Wars party an unforgettable event with the Kotobukiya Star Wars S
 
 ✔️ Adds a fun and unique element to your culinary creations
 
-[Buy from Amazon](https://www.amazon.com/dp/B005FP4286?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B005FP4286?ie=UTF8&tag=giftable02-20)
 
-### [18\. Star Wars: Galaxy’s Edge](https://www.amazon.com/dp/1683837983?ie=UTF8&tag=avadalove-20)
+### [18\. Star Wars: Galaxy’s Edge](https://www.amazon.com/dp/1683837983?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/1683837983?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/1683837983?ie=UTF8&tag=giftable02-20)
 
 The official Star Wars: Galaxy's Edge cookbook will take you on a gastronomic adventure to the Black Spire Outpost and beyond. Explore the cuisine and culture of the famed Star Wars zone at Disneyland and Walt Disney World with this enticing cookbook. You'll be whisked away to a galaxy far, far away as you delve into the more than 300 pages of breathtaking photographs, riveting stories, interesting information, and an abundance of recipes.
 
@@ -341,11 +341,11 @@ Enjoy the chance to make sweets and other foods that pay homage to the beautiful
 
 ✔️ Perfect for Star Wars enthusiasts, food lovers, and aspiring chefs
 
-[Buy from Amazon](https://www.amazon.com/dp/1683837983?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/1683837983?ie=UTF8&tag=giftable02-20)
 
-### [19\. Boba Fett Argyle Socks](https://www.amazon.com/dp/B07NCTKQ3B?ie=UTF8&tag=avadalove-20)
+### [19\. Boba Fett Argyle Socks](https://www.amazon.com/dp/B07NCTKQ3B?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07NCTKQ3B?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07NCTKQ3B?ie=UTF8&tag=giftable02-20)
 
 Step into the realm of fashion and fandom with the Boba Fett Argyle Socks. These stylish socks are a perfect blend of sophistication and Star Wars flair. Crafted from soft cotton, they showcase the iconic Boba Fett design in a captivating argyle pattern. With their stretchy and comfortable fit, these 100% cotton socks are a must-have accessory for any Star Wars enthusiast. Don't miss the opportunity to surprise your male friends with this fabulous Star Wars gift for him.
 
@@ -359,11 +359,11 @@ Step into the realm of fashion and fandom with the Boba Fett Argyle Socks. These
 
 ✔️ Ideal gift for male Star Wars fans and fashion enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/dp/B07NCTKQ3B?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07NCTKQ3B?ie=UTF8&tag=giftable02-20)
 
-### [20\. Mos Eisley Cantina Tatooine T-Shirt](https://www.amazon.com/dp/B07Q9HQNXM?ie=UTF8&tag=avadalove-20)
+### [20\. Mos Eisley Cantina Tatooine T-Shirt](https://www.amazon.com/dp/B07Q9HQNXM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07Q9HQNXM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07Q9HQNXM?ie=UTF8&tag=giftable02-20)
 
 Transport yourself to the iconic Mos Eisley Cantina with the Mos Eisley Cantina Tatooine T-Shirt. This stellar Star Wars-themed tee is a must-have for anyone seeking a unique and stylish addition to their wardrobe. With its range of captivating designs inspired by the Star Wars universe, this men's graphic t-shirt is the ideal gift for fans of the franchise. Surprise your friends or family members with this exceptional piece of apparel.
 
@@ -377,7 +377,7 @@ Transport yourself to the iconic Mos Eisley Cantina with the Mos Eisley Cantina 
 
 ✔️ Perfect for expressing love for Star Wars in a stylish and unique way
 
-[Buy from Amazon](https://www.amazon.com/dp/B07Q9HQNXM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07Q9HQNXM?ie=UTF8&tag=giftable02-20)
 
 ### [21\. Amazing Journey Ride Watch](https://loveable.ai/products/our-journey-is-an-amazing-ride-personalized-openwatch-best-gift-for-husband-grandpa-dad-208ihpthwa020?utm_source=avada&ranking=&utm_source=&utm_campaign=best-star-wars-gifts-for-him-that-will-get-his-force-awaken)
 
@@ -397,9 +397,9 @@ This remarkable watch features a genuine leather strap, ensuring both comfort an
 
 [Buy from Loveable](https://loveable.ai/products/our-journey-is-an-amazing-ride-personalized-openwatch-best-gift-for-husband-grandpa-dad-208ihpthwa020?utm_source=avada&ranking=&utm_source=&utm_campaign=best-star-wars-gifts-for-him-that-will-get-his-force-awaken)
 
-### [22\. Star War Burned Wooden Spoons](https://www.amazon.com/dp/B07SDR87Q8?ie=UTF8&tag=avadalove-20)
+### [22\. Star War Burned Wooden Spoons](https://www.amazon.com/dp/B07SDR87Q8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07SDR87Q8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07SDR87Q8?ie=UTF8&tag=giftable02-20)
 
 Spice up your culinary adventures with our Star Wars Burned Wooden Spoons collection. These kitchen accessories are not just utensils, they're a force to be reckoned with! From the Clone Trooper Knife to the Rebel Gunship Spice Cup, each item is crafted with the same attention to detail as the original props and costumes from Star Wars. With their antique gold finish and black enamel colors, these high-quality products will ignite the cooking skills of any Star Wars fan or cooking enthusiast. It's time to embrace the power of the culinary Force!
 
@@ -413,11 +413,11 @@ Spice up your culinary adventures with our Star Wars Burned Wooden Spoons collec
 
 ✔️ Kitchens look elegant with antique gold and black enamel finishes
 
-[Buy from Amazon](https://www.amazon.com/dp/B07SDR87Q8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07SDR87Q8?ie=UTF8&tag=giftable02-20)
 
-### [23\. Words Of Wisdom T-Shirt](https://www.amazon.com/dp/B00KRIQZK4?ie=UTF8&tag=avadalove-20)
+### [23\. Words Of Wisdom T-Shirt](https://www.amazon.com/dp/B00KRIQZK4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B00KRIQZK4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B00KRIQZK4?ie=UTF8&tag=giftable02-20)
 
 Travel through time and space with our "Words of Wisdom" T-Shirt, a nostalgic tribute to the legendary Star Wars saga. This graphic tee showcases a collection of everyone's favorite and most iconic characters, immortalizing their wisdom and wit. With this t-shirt, you'll become the talk of your social circle, the Jedi Master of style! Treat yourself or surprise a fellow Star Wars aficionado with this stellar gift that encapsulates the true essence of galactic power.
 
@@ -431,11 +431,11 @@ Travel through time and space with our "Words of Wisdom" T-Shirt, a nostalgic tr
 
 ✔️ Ideal gift for Star Wars fans who appreciate nostalgia and style
 
-[Buy from Amazon](https://www.amazon.com/dp/B00KRIQZK4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B00KRIQZK4?ie=UTF8&tag=giftable02-20)
 
-### [24\. STAR WARS The Complete Saga](https://www.amazon.com/dp/B07C85Q5NJ?ie=UTF8&tag=avadalove-20)
+### [24\. STAR WARS The Complete Saga](https://www.amazon.com/dp/B07C85Q5NJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07C85Q5NJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07C85Q5NJ?ie=UTF8&tag=giftable02-20)
 
 Experience the ultimate Star Wars journey with "STAR WARS: The Complete Saga" box set, the perfect gift that will transport your fan to a galaxy far, far away. This extraordinary collection includes all six episodes (Episodes IV-IX) in DVD format, ensuring an immersive cinematic experience like no other.
 
@@ -449,11 +449,11 @@ Prepare to embark on an epic adventure alongside beloved characters and iconic m
 
 ✔️ Guaranteed authenticity and quality from a trusted source
 
-[Buy from Amazon](https://www.amazon.com/dp/B07C85Q5NJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07C85Q5NJ?ie=UTF8&tag=giftable02-20)
 
-### [25\. Graphic T-Shirt](https://www.amazon.com/dp/B07KVJW3TX?ie=UTF8&tag=avadalove-20)
+### [25\. Graphic T-Shirt](https://www.amazon.com/dp/B07KVJW3TX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07KVJW3TX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07KVJW3TX?ie=UTF8&tag=giftable02-20)
 
 Unleash your inner geek and showcase your love for Star Wars with this eye-catching Graphic T-Shirt. Inspired by the iconic Periodic Table Poster, this T-Shirt features a high-quality 100% cotton fabric with the periodic table design boldly printed on the front. It's a fantastic addition to any Star Wars lovers wardrobe and makes for a standout gift.
 
@@ -467,11 +467,11 @@ Whether they're attending fan conventions, hanging out with fellow Star Wars fan
 
 ✔️ Ideal gift choice for male friends who are Star Wars enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/dp/B07KVJW3TX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07KVJW3TX?ie=UTF8&tag=giftable02-20)
 
-### [26\. LEGO Star Wars](https://www.amazon.com/dp/B0883SGWXB?ie=UTF8&tag=avadalove-20)
+### [26\. LEGO Star Wars](https://www.amazon.com/dp/B0883SGWXB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0883SGWXB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0883SGWXB?ie=UTF8&tag=giftable02-20)
 
 Ignite your child's imagination and embark on an epic adventure with the LEGO Star Wars Rey Model. This incredible model brings their favorite character, Rey, to life with a soft polyester body, posable arms and legs, a removable helmet, and a fierce full-sized face.
 
@@ -487,7 +487,7 @@ The LEGO Rey Model is the perfect gift for young Star Wars fans who are eager to
 
 ✔️ Full-sized face captures Rey's determination and strength
 
-[Buy from Amazon](https://www.amazon.com/dp/B0883SGWXB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0883SGWXB?ie=UTF8&tag=giftable02-20)
 
 ### [27\. Mandalorian Concrete Planter](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/867676090/mandalorian-concrete-planter-star-wars)
 
@@ -525,9 +525,9 @@ Feel the Force of time with our Star Wars Wall Clock. This epic clock is a must-
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/868378123/star-wars-wall-clock-vinyl-record-clock)
 
-### [29\. Art of Coloring Star Wars](https://www.amazon.com/Art-Coloring-Star-Wars-Creativity/dp/1484757386/?ie=UTF8&tag=avadalove-20)
+### [29\. Art of Coloring Star Wars](https://www.amazon.com/Art-Coloring-Star-Wars-Creativity/dp/1484757386/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Art-Coloring-Star-Wars-Creativity/dp/1484757386/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Art-Coloring-Star-Wars-Creativity/dp/1484757386/?ie=UTF8&tag=giftable02-20)
 
 With the Art of Colouring Star Wars, you may let your imagination run wild. Anyone interested in art or Star Wars will find this book fascinating. Put yourself in the shoes of famous characters and re-create riveting scenes from a galaxy far, far away.
 
@@ -539,11 +539,11 @@ With the Art of Colouring Star Wars, you may let your imagination run wild. Anyo
 
 ✔️ Perfect for fans who enjoy coloring, drawing, and expressing their creativity
 
-[Buy from Amazon](https://www.amazon.com/Art-Coloring-Star-Wars-Creativity/dp/1484757386/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Art-Coloring-Star-Wars-Creativity/dp/1484757386/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Solo Smuggler’s Dice with Box](https://www.amazon.com/Custom-3D-Stuff-Weathered-Smugglers/dp/B07DVRT5ZB?ie=UTF8&tag=avadalove-20)
+### [30\. Solo Smuggler’s Dice with Box](https://www.amazon.com/Custom-3D-Stuff-Weathered-Smugglers/dp/B07DVRT5ZB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Custom-3D-Stuff-Weathered-Smugglers/dp/B07DVRT5ZB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Custom-3D-Stuff-Weathered-Smugglers/dp/B07DVRT5ZB?ie=UTF8&tag=giftable02-20)
 
 Take a chance and roll the dice with the Solo Smuggler's Dice with Box, an exquisite piece that exudes elegance and fandom. Crafted from solid metal and luxuriously plated with gold, these dice are more than just a game accessory – they are a statement of your love for Star Wars.
 
@@ -555,11 +555,11 @@ Take a chance and roll the dice with the Solo Smuggler's Dice with Box, an exqui
 
 ✔️ Comes in a stylish box for safekeeping and easy gifting
 
-[Buy from Amazon](https://www.amazon.com/Custom-3D-Stuff-Weathered-Smugglers/dp/B07DVRT5ZB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Custom-3D-Stuff-Weathered-Smugglers/dp/B07DVRT5ZB?ie=UTF8&tag=giftable02-20)
 
-### [31\. Funko Pop! Star Wars](https://www.amazon.com/Funko-Pop-Star-Wars-Mandalorian/dp/B082YTS2JL?ie=UTF8&tag=avadalove-20)
+### [31\. Funko Pop! Star Wars](https://www.amazon.com/Funko-Pop-Star-Wars-Mandalorian/dp/B082YTS2JL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funko-Pop-Star-Wars-Mandalorian/dp/B082YTS2JL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funko-Pop-Star-Wars-Mandalorian/dp/B082YTS2JL?ie=UTF8&tag=giftable02-20)
 
 Get ready to pop with excitement as you add some Star Wars charm to your collection with Funko Pop! Star Wars figures. These adorable vinyl figures bring your favorite characters to life with their screen-accurate likeness and captivating designs. Each figure comes in an exclusive window display box, making it a delightful addition to any fan's showcase.
 
@@ -573,11 +573,11 @@ Get ready to pop with excitement as you add some Star Wars charm to your collect
 
 ✔️ Funko Pop! figurines bring value to Star Wars collections
 
-[Buy from Amazon](https://www.amazon.com/Funko-Pop-Star-Wars-Mandalorian/dp/B082YTS2JL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funko-Pop-Star-Wars-Mandalorian/dp/B082YTS2JL?ie=UTF8&tag=giftable02-20)
 
-### [32\. STAR WARS Slippers](https://www.amazon.com/STAR-WARS-Slippers-Darth-Novelty/dp/B0999L182N/?ie=UTF8&tag=avadalove-20)
+### [32\. STAR WARS Slippers](https://www.amazon.com/STAR-WARS-Slippers-Darth-Novelty/dp/B0999L182N/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/STAR-WARS-Slippers-Darth-Novelty/dp/B0999L182N/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/STAR-WARS-Slippers-Darth-Novelty/dp/B0999L182N/?ie=UTF8&tag=giftable02-20)
 
 With these amazing STAR WARS Slippers, made for your young Jedi, enter the realm! These slippers, featuring Star Wars and Marvel characters, are both cosy and fashionable. They're great for casual use because to their nonslip sole and breathable material, and they'd look great with your gear. Don't pass up the chance to express your lover how much you appreciate his passion for Star Wars in a cosy and stylish way by passing up this one-of-a-kind present idea.
 
@@ -591,11 +591,11 @@ With these amazing STAR WARS Slippers, made for your young Jedi, enter the realm
 
 ✔️ Versatile slipper that complements any outfit
 
-[Buy from Amazon](https://www.amazon.com/STAR-WARS-Slippers-Darth-Novelty/dp/B0999L182N/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/STAR-WARS-Slippers-Darth-Novelty/dp/B0999L182N/?ie=UTF8&tag=giftable02-20)
 
-### [33\. 3D Illusion Star Wars Night Light](https://www.amazon.com/Illusion-Pattern-Timing-Function-Birthday/dp/B09BNLMM3G/?ie=UTF8&tag=avadalove-20)
+### [33\. 3D Illusion Star Wars Night Light](https://www.amazon.com/Illusion-Pattern-Timing-Function-Birthday/dp/B09BNLMM3G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Illusion-Pattern-Timing-Function-Birthday/dp/B09BNLMM3G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Illusion-Pattern-Timing-Function-Birthday/dp/B09BNLMM3G/?ie=UTF8&tag=giftable02-20)
 
 Light up your loved one's world with the mesmerizing 3D Illusion Star Wars Night Light. This lamp is not just any ordinary gift; it's an extraordinary piece of decor that will add a touch of magic to any space, be it your home or office.
 
@@ -611,11 +611,11 @@ The R2-D2 Light features 12 built-in LED lights that beautifully illuminate the 
 
 ✔️ Suitable for any time of the day, creating a mesmerizing light show
 
-[Buy from Amazon](https://www.amazon.com/Illusion-Pattern-Timing-Function-Birthday/dp/B09BNLMM3G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Illusion-Pattern-Timing-Function-Birthday/dp/B09BNLMM3G/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Yoda Men’s Crew Socks](https://www.amazon.com/Star-Wars-Darth-Vader-Socks/dp/B0178J03MU/?ie=UTF8&tag=avadalove-20)
+### [34\. Yoda Men’s Crew Socks](https://www.amazon.com/Star-Wars-Darth-Vader-Socks/dp/B0178J03MU/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Star-Wars-Darth-Vader-Socks/dp/B0178J03MU/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Star-Wars-Darth-Vader-Socks/dp/B0178J03MU/?ie=UTF8&tag=giftable02-20)
 
 Wearing a pair of Yoda Men's Crew Socks is a great way to get into the Star Wars spirit without sacrificing comfort. These holiday-themed socks are a great way to celebrate the season or any other special event while also showing off your devotion to the series. The socks include the classic Rebel Alliance emblem on the foot and are decorated with white Star Wars logos on a light blue backdrop. These beanies, made from a cotton and polyester combination, are an essential item for every fan's wardrobe.
 
@@ -627,11 +627,11 @@ Wearing a pair of Yoda Men's Crew Socks is a great way to get into the Star Wars
 
 ✔️ Made of cotton and polyester for comfort and durability
 
-[Buy from Amazon](https://www.amazon.com/Star-Wars-Darth-Vader-Socks/dp/B0178J03MU/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Star-Wars-Darth-Vader-Socks/dp/B0178J03MU/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Vinyl Record Wall Clocks](https://www.amazon.com/Record-Clocks-Changing-Design-Valentines/dp/B08NSMJRNQ?ie=UTF8&tag=avadalove-20)
+### [35\. Vinyl Record Wall Clocks](https://www.amazon.com/Record-Clocks-Changing-Design-Valentines/dp/B08NSMJRNQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Record-Clocks-Changing-Design-Valentines/dp/B08NSMJRNQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Record-Clocks-Changing-Design-Valentines/dp/B08NSMJRNQ?ie=UTF8&tag=giftable02-20)
 
 Turn their love for Star Wars into a timeless piece of decor with these Vinyl Record Wall Clocks. It's more than just a clock, it's a unique and personalized gift that combines the nostalgia of vinyl records with the iconic imagery of the Star Wars universe. Crafted with a real record embedded in the glass, this custom clock will be a standout addition to any bedroom or den, delighting true Star Wars lovers. It's the perfect opportunity to unleash their creativity as it comes with all the necessary pieces to assemble and customize their very own clock.
 
@@ -645,11 +645,11 @@ Turn their love for Star Wars into a timeless piece of decor with these Vinyl Re
 
 ✔️ Provides an opportunity for creativity and customization
 
-[Buy from Amazon](https://www.amazon.com/Record-Clocks-Changing-Design-Valentines/dp/B08NSMJRNQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Record-Clocks-Changing-Design-Valentines/dp/B08NSMJRNQ?ie=UTF8&tag=giftable02-20)
 
-### [36\. Disney Fleece Jogger Sweatpant](https://www.amazon.com/Amazon-Essentials-Disney-Marvel-Sweatpants/dp/B08J66PL96/?ie=UTF8&tag=avadalove-20)
+### [36\. Disney Fleece Jogger Sweatpant](https://www.amazon.com/Amazon-Essentials-Disney-Marvel-Sweatpants/dp/B08J66PL96/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-Essentials-Disney-Marvel-Sweatpants/dp/B08J66PL96/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-Essentials-Disney-Marvel-Sweatpants/dp/B08J66PL96/?ie=UTF8&tag=giftable02-20)
 
 These Disney Fleece Jogger Sweatpants are part of Amazon's 'Essentials' line, so you can feel like a true Disney fan while you lounge around. These new and exciting patterns are the perfect way to spice up your closet. Amazon Essentials makes it simple to buy the foundational items you need to put together a stylish new look. Your child may have their own Disney-inspired style with these jogging sweatpants that feature bright and whimsical Disney patterns.
 
@@ -663,7 +663,7 @@ These Disney Fleece Jogger Sweatpants are part of Amazon's 'Essentials' line, so
 
 ✔️ Features fun and playful Disney prints for a touch of magic
 
-[Buy from Amazon](https://www.amazon.com/Amazon-Essentials-Disney-Marvel-Sweatpants/dp/B08J66PL96/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-Essentials-Disney-Marvel-Sweatpants/dp/B08J66PL96/?ie=UTF8&tag=giftable02-20)
 
 ## Final Thoughts
 

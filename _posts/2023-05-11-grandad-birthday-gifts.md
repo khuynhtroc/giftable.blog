@@ -17,8 +17,6 @@ Thus, his birthday will be a wonderful event for you to show how you appreciate 
 
 If you're seeking a perfect gift for your grandad in time for his birthday, you're in luck. Welcome to the site of your dreams! We have a wide range of gifts for grandad, including **[tech gifts](/tech-gifts-men/)** and classic gadgets, thoughtful presents, and personalized birthday gifts.
 
-**You may also like**: Best **[Gifts for New Grandparents](/gifts-new-grandparents/)** In 2023
-
 ### [1\. Special Carrot Patch Farm Handprinted Art Poster for Dad](https://loveable.ai/products/carrot-patch-farm-fresh-locally-grown-picked-for-you-personalized-handprint-keepsake-handprintfootprint-art-postercanvas-gift-for-family-for-himher-for-dadmom-on-anniversary-301ihpnpca151?variant=44286108958952?utm_source=avada&ranking=&utm_source=&utm_campaign=best-grandad-birthday-gifts-thatll-satify-his-heart)
 
 [](https://loveable.ai/products/carrot-patch-farm-fresh-locally-grown-picked-for-you-personalized-handprint-keepsake-handprintfootprint-art-postercanvas-gift-for-family-for-himher-for-dadmom-on-anniversary-301ihpnpca151?variant=44286108958952?utm_source=avada&ranking=&utm_source=&utm_campaign=best-grandad-birthday-gifts-thatll-satify-his-heart)
@@ -233,9 +231,9 @@ This slate measures approximately 7.9 inches in length and 5.9 inches in height,
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/518928790/only-the-best-dads-become-grandad-slate)
 
-### [13\. Funny Birthday Cards for Grandad](https://www.amazon.co.uk/Funny-Birthday-Cards-Grandad-Granddaughter/dp/B09WZ5L4YZ?ie=UTF8&tag=avadalove-20)
+### [13\. Funny Birthday Cards for Grandad](https://www.amazon.co.uk/Funny-Birthday-Cards-Grandad-Granddaughter/dp/B09WZ5L4YZ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Funny-Birthday-Cards-Grandad-Granddaughter/dp/B09WZ5L4YZ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Funny-Birthday-Cards-Grandad-Granddaughter/dp/B09WZ5L4YZ?ie=UTF8&tag=giftable02-20)
 
 This happy birthday card is sure to make your grandad smile if you're seeking humorous birthday wishes for him.
 
@@ -249,7 +247,7 @@ You can write your own message on the inside of the card, which is blank on the 
 
 ✔️ High-quality cardstock for durability and longevity
 
-[Buy from Amazon](https://www.amazon.co.uk/Funny-Birthday-Cards-Grandad-Granddaughter/dp/B09WZ5L4YZ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Funny-Birthday-Cards-Grandad-Granddaughter/dp/B09WZ5L4YZ?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Personalised Grandad Coffee Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1268078755/personalised-grandads-tea-biscuits-board)
 
@@ -571,9 +569,9 @@ These welcome mats, which are made of natural coir coconut fibers, are strong an
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/756598744/theres-no-place-like-nanny-and-grandads)
 
-### [32\. Grandad Motorcycle T Shirt](https://www.amazon.co.uk/Tim-Ted-Biker-Grandad-Motorcycle/dp/B09JWV5LP8?ie=UTF8&tag=avadalove-20)
+### [32\. Grandad Motorcycle T Shirt](https://www.amazon.co.uk/Tim-Ted-Biker-Grandad-Motorcycle/dp/B09JWV5LP8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Tim-Ted-Biker-Grandad-Motorcycle/dp/B09JWV5LP8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Tim-Ted-Biker-Grandad-Motorcycle/dp/B09JWV5LP8?ie=UTF8&tag=giftable02-20)
 
 Get ready for the ride of your life with this biker granddad-style tee shirt from Tim and Ted! This short-sleeved round-neck top features their brand name logo printed in big bold red letters across the front so everyone knows you're not going to be messing around when you're wearing it.
 
@@ -587,7 +585,7 @@ Perfect for taking on your daily commute to work, or even if you're planning a l
 
 ✔️ Bold and eye-catching design showcases his unique personality
 
-[Buy from Amazon](https://www.amazon.co.uk/Tim-Ted-Biker-Grandad-Motorcycle/dp/B09JWV5LP8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Tim-Ted-Biker-Grandad-Motorcycle/dp/B09JWV5LP8?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Grandad Novelty Chocolate Bar](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1234898241/grandad-novelty-chocolate-bar-chocolate)
 
@@ -607,9 +605,9 @@ Each bite is a moment of pure bliss, indulging in the rich and creamy chocolate 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1234898241/grandad-novelty-chocolate-bar-chocolate)
 
-### [34\. Wooden Funny Sign](https://www.amazon.co.uk/Shabby-Wooden-Plaque-Grandad-Present/dp/B01489ROHK?ie=UTF8&tag=avadalove-20)
+### [34\. Wooden Funny Sign](https://www.amazon.co.uk/Shabby-Wooden-Plaque-Grandad-Present/dp/B01489ROHK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Shabby-Wooden-Plaque-Grandad-Present/dp/B01489ROHK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Shabby-Wooden-Plaque-Grandad-Present/dp/B01489ROHK?ie=UTF8&tag=giftable02-20)
 
 An FSC-certified and attractive wooden sign manufactured from compressed wood from sustainable sources. A substantial length of the rustic string is supplied, as well as pre-cut hanging holes for the sign.
 
@@ -623,11 +621,11 @@ They are affordable and look wonderful in any part of the house. You can hang th
 
 ✔️ Engraved message serves as a constant reminder of your bond
 
-[Buy from Amazon](https://www.amazon.co.uk/Shabby-Wooden-Plaque-Grandad-Present/dp/B01489ROHK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Shabby-Wooden-Plaque-Grandad-Present/dp/B01489ROHK?ie=UTF8&tag=giftable02-20)
 
-### [35\. Grandpa Treat Tin](https://www.amazon.co.uk/Bright-Side-Grandads-Goodies-Treat/dp/B01LYI48WP/?ie=UTF8&tag=avadalove-20)
+### [35\. Grandpa Treat Tin](https://www.amazon.co.uk/Bright-Side-Grandads-Goodies-Treat/dp/B01LYI48WP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Bright-Side-Grandads-Goodies-Treat/dp/B01LYI48WP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Bright-Side-Grandads-Goodies-Treat/dp/B01LYI48WP/?ie=UTF8&tag=giftable02-20)
 
 Keep their sinful food hidden with the adorable Grandad Goodies Tin from The Bright Side. This gift-worthy container features a pattern of cookies and candies.
 
@@ -641,11 +639,11 @@ A selection of chocolates, such as Werther's Originals, Milano, and Kinder Surpr
 
 ✔️ Creates new memories and moments to cherish
 
-[Buy from Amazon](https://www.amazon.co.uk/Bright-Side-Grandads-Goodies-Treat/dp/B01LYI48WP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Bright-Side-Grandads-Goodies-Treat/dp/B01LYI48WP/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Grandad King of The BBQ Apron](https://www.amazon.co.uk/Grandad-Present-Fathers-Birthday-Christmas/dp/B00YME3K4S?ie=UTF8&tag=avadalove-20)
+### [36\. Grandad King of The BBQ Apron](https://www.amazon.co.uk/Grandad-Present-Fathers-Birthday-Christmas/dp/B00YME3K4S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Grandad-Present-Fathers-Birthday-Christmas/dp/B00YME3K4S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Grandad-Present-Fathers-Birthday-Christmas/dp/B00YME3K4S?ie=UTF8&tag=giftable02-20)
 
 If you’re looking to spice up your summer BBQ party this year, why not invite Grandpa along? With this stylish Granddad BBQ apron, he can join you in the kitchen as you whip up some sizzling burgers and hot dogs for your guests.
 
@@ -659,11 +657,11 @@ The heartfelt message engraved on the back serves as a constant reminder of the 
 
 ✔️ Engraved message serves as a constant reminder of your bond
 
-[Buy from Amazon](https://www.amazon.co.uk/Grandad-Present-Fathers-Birthday-Christmas/dp/B00YME3K4S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Grandad-Present-Fathers-Birthday-Christmas/dp/B00YME3K4S?ie=UTF8&tag=giftable02-20)
 
-### [37\. Memory Journal](https://www.amazon.co.uk/Dear-Grandad-you-grandfathers-Collection/dp/1907860339/?ie=UTF8&tag=avadalove-20)
+### [37\. Memory Journal](https://www.amazon.co.uk/Dear-Grandad-you-grandfathers-Collection/dp/1907860339/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.co.uk/Dear-Grandad-you-grandfathers-Collection/dp/1907860339/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.co.uk/Dear-Grandad-you-grandfathers-Collection/dp/1907860339/?ie=UTF8&tag=giftable02-20)
 
 For your grandfather to record and share his lovely memories and experiences, give him a gorgeous and high-quality colored cloth and gold foil blocked gift notebook.
 
@@ -677,7 +675,7 @@ Each notebook includes 60 meaningful questions to encourage your grandfather to 
 
 ✔️ Creates lasting memories and a treasured keepsake
 
-[Buy from Amazon](https://www.amazon.co.uk/Dear-Grandad-you-grandfathers-Collection/dp/1907860339/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.co.uk/Dear-Grandad-you-grandfathers-Collection/dp/1907860339/?ie=UTF8&tag=giftable02-20)
 
 ### [38\. Deer Hunting Dock Station](https://loveable.us/products/deer-lovers-personalized-dock-station-birthday-gift-306ihpbnds803?variant=44668788375784?utm_source=avada&ranking=&utm_source=&utm_campaign=best-grandad-birthday-gifts-thatll-satify-his-heart)
 

@@ -11,7 +11,7 @@ image:
     alt: "Best Wooden Gifts to Surprise Your Husband"                                
 ---    
 
-What are the similarities between love and trees? They're both solid and strong, can resist harsh weather, thrive, and grow when given proper care and love. As a result, wood is an excellent and sentimental gift for your husband. Giving him a hardwood gift might demonstrate how solid and steady you are. Wood is indicative of a solid, sturdy, and enduring marriage for any important event, especially the traditional [5th-anniversary present](https://www.amazon.com/dp/B09YC7SXT9?ie=UTF8&tag=loveable06-20).
+What are the similarities between love and trees? They're both solid and strong, can resist harsh weather, thrive, and grow when given proper care and love. As a result, wood is an excellent and sentimental gift for your husband. Giving him a hardwood gift might demonstrate how solid and steady you are. Wood is indicative of a solid, sturdy, and enduring marriage for any important event, especially the traditional [5th-anniversary present](https://www.amazon.com/dp/B09YC7SXT9?ie=UTF8&tag=giftable02-20).
 
 Wood comes in various shapes and sizes. Wood is used in so many aspects of our lives, from artwork to tabletop serving pieces, accessories to appliances, furniture to smells. While wood is a fantastic material, finding that unique object made of it can be both simple and stressful. We've whittled it down to a few of our favorite presents for your bae—the ones that are rooted in romanticism and meaningful at their core.
 

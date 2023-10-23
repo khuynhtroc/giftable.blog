@@ -15,11 +15,11 @@ Welcome to the enchanting world of poetic gifts, where the art of expression com
 
 Whether you are a seasoned poet seeking inspiration or a devoted admirer of verse, our selection of poetic gifts will embrace you in the magic of words and the beauty of emotions. Step into this realm of enchantment, where every gift becomes a canvas for the soul and a muse for the heart.
 
-### [1\. Poemcrazy](https://www.amazon.com/gp/product/0609800981/?ie=UTF8&tag=avadalove-20)
+### [1\. Poemcrazy](https://www.amazon.com/gp/product/0609800981/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/0609800981/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/0609800981/?ie=UTF8&tag=giftable02-20)
 
-Poems are the water, and poetry is **[the swimmer's](https://avada.io/loveable/gifts-for-swimmers/)** only buoy. Poetry Crazy is a new way to express the creativity we all carry inside and to share our thoughts with the world. Poems are the water, and poetry is the swimmer's only buoy. This book is your guide to writing and reading more poems.
+Poems are the water, and poetry is **[the swimmer's](/gifts-for-swimmers/)** only buoy. Poetry Crazy is a new way to express the creativity we all carry inside and to share our thoughts with the world. Poems are the water, and poetry is the swimmer's only buoy. This book is your guide to writing and reading more poems.
 
 You'll find techniques to help you write the perfect poem. This is the reason why this is one of the greatest gifts ever for your poem-loving ones.
 
@@ -31,11 +31,11 @@ You'll find techniques to help you write the perfect poem. This is the reason wh
 
 ✔️ Offers a Unique Approach to Poetry Writing
 
-[Buy from Amazon](https://www.amazon.com/gp/product/0609800981/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/0609800981/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Poetry Tiles](https://www.amazon.com/Magnetic-Poetry-Tiles-Essential-Refrigerator/dp/B07PGQKDV9?ie=UTF8&tag=avadalove-20)
+### [2\. Poetry Tiles](https://www.amazon.com/Magnetic-Poetry-Tiles-Essential-Refrigerator/dp/B07PGQKDV9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magnetic-Poetry-Tiles-Essential-Refrigerator/dp/B07PGQKDV9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magnetic-Poetry-Tiles-Essential-Refrigerator/dp/B07PGQKDV9?ie=UTF8&tag=giftable02-20)
 
 We know how hard it can be to find the right gifts that are practical and thoughtful, so we have put together this fantastic collection of gift ideas for all occasions. You don't need to be a poet to enjoy using the Poetry Tiles!
 
@@ -49,7 +49,7 @@ A set of punctuation tiles that includes both upper and lowercase letters, as we
 
 ✔️ Allows for Easy Rearrangement and Revision
 
-[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Tiles-Essential-Refrigerator/dp/B07PGQKDV9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Tiles-Essential-Refrigerator/dp/B07PGQKDV9?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Novelette Gift Tins](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/518585275/literary-teas-novelette-gift-tins-60)
 
@@ -73,7 +73,7 @@ There is a unique selection of little gift tins made by artists, poets, and writ
 
 [](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/184988101/ralph-waldo-emerson-quote-engraved)
 
-If you've been wanting to get your hands on a unique gift that's sure to impress anyone, now is the time to grab one of these beautiful leather-bound bookmarks and personalize them with your initials or monogram! They are perfect for all occasions, from **[birthdays](https://avada.io/loveable/birthday/)** to Christmas to graduations!
+If you've been wanting to get your hands on a unique gift that's sure to impress anyone, now is the time to grab one of these beautiful leather-bound bookmarks and personalize them with your initials or monogram! They are perfect for all occasions, from **[birthdays](/birthday/)** to Christmas to graduations!
 
 This bookmark features a stylish black leather cover and will hold your photos, receipts, and other paper documents safely. Particularly, this can be an awe-inspiring gift for poets.
 
@@ -87,11 +87,11 @@ This bookmark features a stylish black leather cover and will hold your photos, 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/184988101/ralph-waldo-emerson-quote-engraved)
 
-### [5\. Poetry for Neanderthals](https://www.amazon.com/Poetry-Neanderthals-Exploding-Kittens-Adults/dp/B089DTQDLR/?ie=UTF8&tag=avadalove-20)
+### [5\. Poetry for Neanderthals](https://www.amazon.com/Poetry-Neanderthals-Exploding-Kittens-Adults/dp/B089DTQDLR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Poetry-Neanderthals-Exploding-Kittens-Adults/dp/B089DTQDLR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Poetry-Neanderthals-Exploding-Kittens-Adults/dp/B089DTQDLR/?ie=UTF8&tag=giftable02-20)
 
-The next evolution of the **[classic card game](https://avada.io/loveable/gifts-board-game-lovers/)**, Poetry for Neanderthals has been a great word-guessing game card. With each round, players take turns sharing short poems using the cards they have collected and guess the most obscure words possible. In this first game, you and your opponents are all reading poetry from Neanderthals.
+The next evolution of the **[classic card game](/gifts-board-game-lovers/)**, Poetry for Neanderthals has been a great word-guessing game card. With each round, players take turns sharing short poems using the cards they have collected and guess the most obscure words possible. In this first game, you and your opponents are all reading poetry from Neanderthals.
 
 Some of the poems are written in a secret code, making it all the more difficult to guess correctly. This is to say, if your friends and you are a fan of games and poems, this will a not-to-be-missed gift.
 
@@ -103,7 +103,7 @@ Some of the poems are written in a secret code, making it all the more difficult
 
 ✔️ Fun for All Ages and Occasions
 
-[Buy from Amazon](https://www.amazon.com/Poetry-Neanderthals-Exploding-Kittens-Adults/dp/B089DTQDLR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Poetry-Neanderthals-Exploding-Kittens-Adults/dp/B089DTQDLR/?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Quote Pottery Bowl](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/491676011/walt-whitman-quote-pottery-bowl-o-me-o)
 
@@ -325,7 +325,7 @@ It is a stunning and delicate piece that is a beautiful addition to any ensemble
 
 [](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/903407875/poet-gift-poet-black-mug-gift-for-poet)
 
-This mug can be filled with the favorite beverage, then sit back and watch **[a movie](https://avada.io/loveable/gifts-movie-lovers/)** or read a book on the go. It can also be used as a mini-book cover or as a photo holder.
+This mug can be filled with the favorite beverage, then sit back and watch **[a movie](/gifts-movie-lovers/)** or read a book on the go. It can also be used as a mini-book cover or as a photo holder.
 
 It features a sturdy, plastic handle that easily snaps off and back on, so it’s easy to use when it’s not in use. The coffee mug is made BPA-free, and FDA-approved, so your friends or family members who are poets would love it very much.
 
@@ -537,9 +537,9 @@ It is waterproof, easy to clean, and durable enough to withstand daily use. Than
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/589393059/poetry-book-poetry-journal-personalized)
 
-### [30\. Siixu Colorful Blank Notebook](https://www.amazon.com/Colorful-Notebook-Hardcover-Watercolor-Bookmarks/dp/B07PFHWSRB?ie=UTF8&tag=avadalove-20)
+### [30\. Siixu Colorful Blank Notebook](https://www.amazon.com/Colorful-Notebook-Hardcover-Watercolor-Bookmarks/dp/B07PFHWSRB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Colorful-Notebook-Hardcover-Watercolor-Bookmarks/dp/B07PFHWSRB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Colorful-Notebook-Hardcover-Watercolor-Bookmarks/dp/B07PFHWSRB?ie=UTF8&tag=giftable02-20)
 
 In case you are in search of useful gifts for poem-loving ones, this notebook is a must to go. The Siixu Colorful Blank Notebook is the perfect tool for planning, taking notes, jotting down ideas, making lists, planning for the future, or even just keeping track of your day today.
 
@@ -553,11 +553,11 @@ It is designed with a durable, soft finish that will stand up to heavy use over 
 
 ✔️ Versatile Blank Pages for Various Purposes
 
-[Buy from Amazon](https://www.amazon.com/Colorful-Notebook-Hardcover-Watercolor-Bookmarks/dp/B07PFHWSRB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Colorful-Notebook-Hardcover-Watercolor-Bookmarks/dp/B07PFHWSRB?ie=UTF8&tag=giftable02-20)
 
-### [31\. Magnetic Poetry](https://www.amazon.com/Magnetic-Poetry-Refrigerator-Letters-Fridge/dp/1935305131?ie=UTF8&tag=avadalove-20)
+### [31\. Magnetic Poetry](https://www.amazon.com/Magnetic-Poetry-Refrigerator-Letters-Fridge/dp/1935305131?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magnetic-Poetry-Refrigerator-Letters-Fridge/dp/1935305131?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magnetic-Poetry-Refrigerator-Letters-Fridge/dp/1935305131?ie=UTF8&tag=giftable02-20)
 
 The Poet is an advanced system that will allow you to continue creating as you grow in skill. It includes an entire line of pre-made verses with all the most important features, but it also allows you to change and customize any word and line to fit your own style and creativity.
 
@@ -571,11 +571,11 @@ Pick up these wonderful presents for your poets and make them be surprised with 
 
 ✔️ Enhances Language Skills and Vocabulary
 
-[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Refrigerator-Letters-Fridge/dp/1935305131?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Refrigerator-Letters-Fridge/dp/1935305131?ie=UTF8&tag=giftable02-20)
 
-### [32\. Poetry Leather Blank Book](https://www.amazon.com/Small-1842-Poetry-Leather-Blank/dp/B005NY0TEK?ie=UTF8&tag=avadalove-20)
+### [32\. Poetry Leather Blank Book](https://www.amazon.com/Small-1842-Poetry-Leather-Blank/dp/B005NY0TEK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Small-1842-Poetry-Leather-Blank/dp/B005NY0TEK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Small-1842-Poetry-Leather-Blank/dp/B005NY0TEK?ie=UTF8&tag=giftable02-20)
 
 A beautifully designed book, with a wonderful story, told by the words of a woman whose life was shaped by love and loss. It’s hard to choose between my two sons. If you're in need of a little extra help to hold your notes, this is the perfect solution!
 
@@ -589,11 +589,11 @@ The spiral binding feature lets you take notes and enjoy reading while saving sp
 
 ✔️ Durable and High-Quality Material
 
-[Buy from Amazon](https://www.amazon.com/Small-1842-Poetry-Leather-Blank/dp/B005NY0TEK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Small-1842-Poetry-Leather-Blank/dp/B005NY0TEK?ie=UTF8&tag=giftable02-20)
 
-### [33\. Magnetic Poetry Original Kit](https://www.amazon.com/Magnetic-Poetry-Original-Essential-Refrigerator/dp/1890560014/?ie=UTF8&tag=avadalove-20)
+### [33\. Magnetic Poetry Original Kit](https://www.amazon.com/Magnetic-Poetry-Original-Essential-Refrigerator/dp/1890560014/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magnetic-Poetry-Original-Essential-Refrigerator/dp/1890560014/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magnetic-Poetry-Original-Essential-Refrigerator/dp/1890560014/?ie=UTF8&tag=giftable02-20)
 
 For all you poets out there, here is something that will not only make you look like the best poet on the planet but will also have you looking forward to your own fridge door poem, or even better - your own poetry reading on a Saturday night!
 
@@ -607,7 +607,7 @@ You can also personalize your poem if you'd like by using your own photograph, o
 
 ✔️ Fun and Interactive Wordplay Experience
 
-[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Original-Essential-Refrigerator/dp/1890560014/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Original-Essential-Refrigerator/dp/1890560014/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

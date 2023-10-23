@@ -669,7 +669,7 @@ Made from natural pine wood and finished with a beautiful black stain, this wood
 
 The Witchy Woman Spa gift set contains natural elements and is infused with magic. You can use this set to enhance your ritual and ceremony, as well as bring some gifts to your friends and loved ones.
 
-The gift set is made in Los Angeles. They are free of both harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances and harmful substances.
+The gift set is made in Los Angeles. They are free of both harmful substances.
 
 **Pros:**
 
@@ -807,9 +807,9 @@ Simply add your own by gluing it to the back, these will come to you with a tiny
 
 [Buy from Esty](https://www.etsy.com/listing/873134531/personalized-halloween-candle-box)
 
-### [45\. Halloween Ghost Boo with Name](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [45\. Halloween Ghost Boo with Name](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Bringing smiles with a hint of fright, the Halloween Ghost Boo with Name is a memorable gift for the spooky season. It’s a charming blend of personal touch and traditional Halloween imagery.
 
@@ -825,11 +825,11 @@ Emblazoned with the chosen name, this ghost comes to life in a fun, creepy fashi
 
 ✔️ Suitable for all ages
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGJC5WGJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [46\. Forever My Boo Hanging Ornament](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [46\. Forever My Boo Hanging Ornament](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Incorporate a touch of love to the spooky Halloween season with the Forever My Boo Hanging Ornament. This original gift captures the essence of Halloween while expressing heartfelt affection.
 
@@ -845,11 +845,11 @@ Details: A play on traditional love tokens, this ornament adds Halloween zest wi
 
 ✔️ Perfect Halloween keepsake
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGLRCPJX?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [47\. Personalized Song Music Box](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [47\. Personalized Song Music Box](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 The Personalized Song Music Box merges sentimentality with Halloween spirit, crafting an unforgettable gift. This special piece ensures your song choice reverberates within the hearts of its recipients.
 
@@ -865,11 +865,11 @@ Every detail of this music box is meticulously crafted from durable material, en
 
 ✔️ Timeless design meets Halloween
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGJ5Y8CL?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [48\. Halloween Ghost Wooden Sign](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [48\. Halloween Ghost Wooden Sign](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Immerse yourself in the spirit of Halloween with the delightfully spooky Halloween Ghost Wooden Sign. Perfect for those who love to embrace seasonal decorations to the fullest.
 
@@ -885,7 +885,7 @@ This ghostly wooden sign is designed tastefully with a comical touch, ensuring i
 
 ✔️ Durable material
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CH9NC2T1?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [49\. Forever My Boo 3 Layers Wooden Plaque](https://loveable.us/products/forever-my-boo-3-layers-wooden-plaque-gift-for-couple-halloween-gift-308ihplnwp969?variant=44764298608872?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-halloween-gifts-for-the-one-that-mean-to-you)
 
@@ -907,9 +907,9 @@ Carefully designed, this 3 layer wooden plaque carries both the element of perso
 
 [Buy from Loveable](https://loveable.us/products/forever-my-boo-3-layers-wooden-plaque-gift-for-couple-halloween-gift-308ihplnwp969?variant=44764298608872?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-halloween-gifts-for-the-one-that-mean-to-you)
 
-### [50\. Halloween Ghost Boo with Flowers Metal Sign](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [50\. Halloween Ghost Boo with Flowers Metal Sign](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Set an eerie yet enchanting tone this Halloween season with the Halloween Ghost Boo with Flowers Metal Sign.
 
@@ -925,11 +925,11 @@ It's the perfect gift to bring a touch of spookiness to any home decor. Showcasi
 
 ✔️ Durable and long-lasting
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CH15427K?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-### [51\. Metal Sign Halloween Witch](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [51\. Metal Sign Halloween Witch](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 Elevate your Halloween decor by gifting the Metal Sign Halloween Witch.
 
@@ -945,7 +945,7 @@ This spook-tacular sign combines the witching season with artful humor. Its uniq
 
 ✔️ Classic witch imagery
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CGZW7SZT?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ### [52\. Couple Ghost Forever My Boo Ornament](https://loveable.us/products/couple-ghost-forever-my-boo-shape-ornament-2-sides-couple-gift-for-halloween-christmas-309ihplnor1005?variant=44764993487080?utm_source=avada&ranking=&utm_source=&utm_campaign=best-personalized-halloween-gifts-for-the-one-that-mean-to-you)
 

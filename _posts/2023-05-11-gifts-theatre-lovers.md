@@ -15,8 +15,6 @@ Theatre lovers are a special breed. They are **[the arts lovers](/gifts-for-art-
 
 To choose gifts for someone who loves theatre, consider something that will help them enjoy their passion. Tickets to a show or a season pass to their favorite venue are always appreciated, but you could also get them something to help them make the most of their time at the theatre. A comfortable pair of shoes is essential for anyone who spends a lot of time on their feet, so a gift voucher for a nice pair of shoes would be a great idea. You could also get them a stylish new bag to carry their theatre program and other essentials in. If you really want to spoil them, why not buy them a box at their favorite theatre?
 
-**Check Out:** **[Gifts For Actors](/gifts-for-actors/)** Whether They're Amateur or Professional
-
 ### [1\. Theatre Theme Theatre Mask Wall Clock for Theatre Lovers](https://loveable.ai/products/theatre-theme-theatre-mask-special-wall-clock-best-gift-for-actoractress-best-decor-for-theatre-lovers-212icnvswc421?variant=44193737179368?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-theatre-lovers-that-will-give-them-memorable-experiences)
 
 [](https://loveable.ai/products/theatre-theme-theatre-mask-special-wall-clock-best-gift-for-actoractress-best-decor-for-theatre-lovers-212icnvswc421?variant=44193737179368?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-theatre-lovers-that-will-give-them-memorable-experiences)
@@ -35,9 +33,9 @@ Featuring beautiful, hand-painted theatre masks, it is the perfect wall clock to
 
 [Buy from Loveable](https://loveable.ai/products/theatre-theme-theatre-mask-special-wall-clock-best-gift-for-actoractress-best-decor-for-theatre-lovers-212icnvswc421?variant=44193737179368?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-theatre-lovers-that-will-give-them-memorable-experiences)
 
-### [2\. Theatre Drama Gift Theater is Life Bracelet](https://www.amazon.com/WSNANG-Bracelet-Broadway-Graduation-Inspirational/dp/B086W5G57W?ie=UTF8&tag=avadalove-20)
+### [2\. Theatre Drama Gift Theater is Life Bracelet](https://www.amazon.com/WSNANG-Bracelet-Broadway-Graduation-Inspirational/dp/B086W5G57W?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WSNANG-Bracelet-Broadway-Graduation-Inspirational/dp/B086W5G57W?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WSNANG-Bracelet-Broadway-Graduation-Inspirational/dp/B086W5G57W?ie=UTF8&tag=giftable02-20)
 
 Shopping for a gift for a theatre lover in your life? Consider something that celebrates their passion. For example, this bracelet with the engraving "Theatre is Life" is a beautiful and personal piece that any theatre enthusiast is sure to appreciate.
 
@@ -51,7 +49,7 @@ The bracelet is made of stainless steel, so it's durable and won't tarnish over 
 
 ✔️ Encourage wearers to embrace their creativity in all aspects of life
 
-[Buy from Amazon](https://www.amazon.com/WSNANG-Bracelet-Broadway-Graduation-Inspirational/dp/B086W5G57W?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WSNANG-Bracelet-Broadway-Graduation-Inspirational/dp/B086W5G57W?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Rent Wall Art](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1228478343/rent-wall-art-theater-gift-rent-musical)
 
@@ -71,9 +69,9 @@ Acrylic paint then brings this mixed media piece together! It is truly a one-of-
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1228478343/rent-wall-art-theater-gift-rent-musical)
 
-### [4\. Eat Sleep Theatre Repeat Funny Theater Lover Gift T-Shirt](https://www.amazon.com/Sleep-Theatre-Repeat-T-Shirt-Theater/dp/B077X2W9RP?ie=UTF8&tag=avadalove-20)
+### [4\. Eat Sleep Theatre Repeat Funny Theater Lover Gift T-Shirt](https://www.amazon.com/Sleep-Theatre-Repeat-T-Shirt-Theater/dp/B077X2W9RP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sleep-Theatre-Repeat-T-Shirt-Theater/dp/B077X2W9RP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sleep-Theatre-Repeat-T-Shirt-Theater/dp/B077X2W9RP?ie=UTF8&tag=giftable02-20)
 
 The holidays are coming and if you're looking for the perfect gift for the theatre lover in your life, look no further! The T-Shirt is the perfect way to show your loved one how much you appreciate their passion for theatre.
 
@@ -87,11 +85,11 @@ Made of lightweight cotton, this comfortable shirt features a funny drama joke t
 
 ✔️ Display the wearer's love for theater
 
-[Buy from Amazon](https://www.amazon.com/Sleep-Theatre-Repeat-T-Shirt-Theater/dp/B077X2W9RP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sleep-Theatre-Repeat-T-Shirt-Theater/dp/B077X2W9RP?ie=UTF8&tag=giftable02-20)
 
-### [5\. Home Theater Patent Wall Art Prints](https://www.amazon.com/Home-Theater-Patent-Wall-Prints/dp/B01HBXX0EG?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Home Theater Patent Wall Art Prints](https://www.amazon.com/Home-Theater-Patent-Wall-Prints/dp/B01HBXX0EG?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Home-Theater-Patent-Wall-Prints/dp/B01HBXX0EG?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Home-Theater-Patent-Wall-Prints/dp/B01HBXX0EG?th=1?ie=UTF8&tag=giftable02-20)
 
 Decorate your home theater or office with these six stylish Home Theater Patent Wall Art Prints. These prints are perfect for the movie fanatic who has it all.
 
@@ -105,7 +103,7 @@ Each print features a different vintage movie film patent. The set of six prints
 
 ✔️ Transform plain walls into visually appealing spaces
 
-[Buy from Amazon](https://www.amazon.com/Home-Theater-Patent-Wall-Prints/dp/B01HBXX0EG?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Home-Theater-Patent-Wall-Prints/dp/B01HBXX0EG?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Drama Teacher Tumbler](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1102372310/theater-teacher-gift-drama-teacher)
 
@@ -161,9 +159,9 @@ Each poster is printed on high-quality paper and comes in a protective sleeve. T
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/540837719/theater-gift-musical-theatre-theater)
 
-### [9\. Actor Actress Cuff Bangle Bracelet](https://www.amazon.com/POTIY-Theater-Actress-Bracelet-Between/dp/B085H9V1RS?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Actor Actress Cuff Bangle Bracelet](https://www.amazon.com/POTIY-Theater-Actress-Bracelet-Between/dp/B085H9V1RS?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/POTIY-Theater-Actress-Bracelet-Between/dp/B085H9V1RS?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/POTIY-Theater-Actress-Bracelet-Between/dp/B085H9V1RS?th=1?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a gift for the theater lover in your life, look no further than this charming bracelet.
 
@@ -177,7 +175,7 @@ Made of high-quality stainless steel, it's engraved with the phrase "I Live Betw
 
 ✔️ Bring to recall their love of the performing arts
 
-[Buy from Amazon](https://www.amazon.com/POTIY-Theater-Actress-Bracelet-Between/dp/B085H9V1RS?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/POTIY-Theater-Actress-Bracelet-Between/dp/B085H9V1RS?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Typography Print Musical Theater Wall Art](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/666186429/lessons-that-broadway-musicals-taught-me)
 
@@ -323,9 +321,9 @@ This high-quality blanket is unbelievably fluffy and warm, making it perfect for
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1510138266/music-velveteen-plush-blanket?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Broadway+Musicals+Collage+Sherpa+Fleece+Blanket&ref=sc_gallery-1-1&plkey=6a125acb4f8bae4fc94de7859bd2eec0f78a0d4d%3A1510138266)
 
-### [18\. Drama Theatre Comedy and Tragedy Masks Socks](https://www.amazon.com/Good-Luck-Sock-Theater-Tragedy/dp/B07Z6412QS/?ie=UTF8&tag=avadalove-20)
+### [18\. Drama Theatre Comedy and Tragedy Masks Socks](https://www.amazon.com/Good-Luck-Sock-Theater-Tragedy/dp/B07Z6412QS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Good-Luck-Sock-Theater-Tragedy/dp/B07Z6412QS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Good-Luck-Sock-Theater-Tragedy/dp/B07Z6412QS/?ie=UTF8&tag=giftable02-20)
 
 These socks feature classic designs of drama masks, making them a great choice for any fan of the stage. The reinforced heel and toe offer durability, while the machine-washable fabric make them easy to care for.
 
@@ -339,11 +337,11 @@ Plus, they come in a variety of sizes to fit any foot. Whether your loved one is
 
 ✔️ Symbolize the world of drama and theate
 
-[Buy from Amazon](https://www.amazon.com/Good-Luck-Sock-Theater-Tragedy/dp/B07Z6412QS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Good-Luck-Sock-Theater-Tragedy/dp/B07Z6412QS/?ie=UTF8&tag=giftable02-20)
 
-### [19\. Compact Wireless Smart Speaker](https://www.amazon.com/Sonos-Play-Compact-Wireless-Speaker/dp/B00EWCUK1Q?ie=UTF8&tag=avadalove-20)
+### [19\. Compact Wireless Smart Speaker](https://www.amazon.com/Sonos-Play-Compact-Wireless-Speaker/dp/B00EWCUK1Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sonos-Play-Compact-Wireless-Speaker/dp/B00EWCUK1Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sonos-Play-Compact-Wireless-Speaker/dp/B00EWCUK1Q?ie=UTF8&tag=giftable02-20)
 
 The Compact Wireless Smart Speaker is the perfect gift for any theatre lover in your life. This small yet powerful speaker is perfect for streaming music and can be controlled with the Sonos app.
 
@@ -357,11 +355,11 @@ The compact design fits just about anywhere and makes it easy to go from unboxin
 
 ✔️ A great companion for picnics, parties, and travel
 
-[Buy from Amazon](https://www.amazon.com/Sonos-Play-Compact-Wireless-Speaker/dp/B00EWCUK1Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sonos-Play-Compact-Wireless-Speaker/dp/B00EWCUK1Q?ie=UTF8&tag=giftable02-20)
 
-### [20\. Cards Against Humanity: Theatre Pack • Mini expansion](https://www.amazon.com/Cards-Against-Humanity-Theatre-Pack/dp/B07F2S59GX?ie=UTF8&tag=avadalove-20)
+### [20\. Cards Against Humanity: Theatre Pack • Mini expansion](https://www.amazon.com/Cards-Against-Humanity-Theatre-Pack/dp/B07F2S59GX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cards-Against-Humanity-Theatre-Pack/dp/B07F2S59GX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cards-Against-Humanity-Theatre-Pack/dp/B07F2S59GX?ie=UTF8&tag=giftable02-20)
 
 If you know a theatre lover, then you know how important live performances are to them. A theatre pack is a perfect gift for them!
 
@@ -375,11 +373,11 @@ This pack includes 30 new cards about all things related to living theatre. From
 
 ✔️ Bring theater-themed humor to the game
 
-[Buy from Amazon](https://www.amazon.com/Cards-Against-Humanity-Theatre-Pack/dp/B07F2S59GX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cards-Against-Humanity-Theatre-Pack/dp/B07F2S59GX?ie=UTF8&tag=giftable02-20)
 
-### [21\. Shakespearean Insult Bandages](https://www.amazon.com/Accoutrements-12389-Shakespearean-Insult-Bandages/dp/B00BPWU3SQ?ie=UTF8&tag=avadalove-20)
+### [21\. Shakespearean Insult Bandages](https://www.amazon.com/Accoutrements-12389-Shakespearean-Insult-Bandages/dp/B00BPWU3SQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Accoutrements-12389-Shakespearean-Insult-Bandages/dp/B00BPWU3SQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Accoutrements-12389-Shakespearean-Insult-Bandages/dp/B00BPWU3SQ?ie=UTF8&tag=giftable02-20)
 
 For the theatre lover in your life, these Shakespearean insult bandages are the perfect gift! The set of fifteen bandages come in a variety of sizes to fit any wound, and they feature some of the Bard's most famous insults.
 
@@ -393,11 +391,11 @@ Whether your loved one is nursing a broken heart or a broken bone, these bandage
 
 ✔️ Add a playful element to the healing process
 
-[Buy from Amazon](https://www.amazon.com/Accoutrements-12389-Shakespearean-Insult-Bandages/dp/B00BPWU3SQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Accoutrements-12389-Shakespearean-Insult-Bandages/dp/B00BPWU3SQ?ie=UTF8&tag=giftable02-20)
 
-### [22\. Camera Lens Coffee Mug](https://www.amazon.com/Camera-Stainless-Thermos-Photographers-Friends/dp/B07MV4LP6S?ie=UTF8&tag=avadalove-20)
+### [22\. Camera Lens Coffee Mug](https://www.amazon.com/Camera-Stainless-Thermos-Photographers-Friends/dp/B07MV4LP6S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Camera-Stainless-Thermos-Photographers-Friends/dp/B07MV4LP6S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Camera-Stainless-Thermos-Photographers-Friends/dp/B07MV4LP6S?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a unique gift for the theatre lover in your life, consider a camera lens coffee mug.
 
@@ -411,11 +409,11 @@ This mug is made from stainless steel and features a vacuum-insulated design tha
 
 ✔️ Come with features like leak-proof lids and handle grips
 
-[Buy from Amazon](https://www.amazon.com/Camera-Stainless-Thermos-Photographers-Friends/dp/B07MV4LP6S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Camera-Stainless-Thermos-Photographers-Friends/dp/B07MV4LP6S?ie=UTF8&tag=giftable02-20)
 
-### [23\. Movie Clapboard Blanket](https://www.amazon.com/Jekeno-Clapboard-Blanket-Ligtweight-Durable/dp/B08CZRL7PF/?th=1?ie=UTF8&tag=avadalove-20)
+### [23\. Movie Clapboard Blanket](https://www.amazon.com/Jekeno-Clapboard-Blanket-Ligtweight-Durable/dp/B08CZRL7PF/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Jekeno-Clapboard-Blanket-Ligtweight-Durable/dp/B08CZRL7PF/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Jekeno-Clapboard-Blanket-Ligtweight-Durable/dp/B08CZRL7PF/?th=1?ie=UTF8&tag=giftable02-20)
 
 This ultra-soft blanket is made of high-quality microfiber polyester, making it warm and cozy while still being lightweight and easy to care for.
 
@@ -429,11 +427,11 @@ The double-sided print features a classic movie clapboard design, making it the 
 
 ✔️ Add film-themed decorative element to any living space
 
-[Buy from Amazon](https://www.amazon.com/Jekeno-Clapboard-Blanket-Ligtweight-Durable/dp/B08CZRL7PF/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Jekeno-Clapboard-Blanket-Ligtweight-Durable/dp/B08CZRL7PF/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [24\. Cinema Vinyl Wall Clock](https://www.amazon.com/Clock-Unique-Theater-Popcorn-Decorations-Best-Occasion/dp/B07RM427D1?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Cinema Vinyl Wall Clock](https://www.amazon.com/Clock-Unique-Theater-Popcorn-Decorations-Best-Occasion/dp/B07RM427D1?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Clock-Unique-Theater-Popcorn-Decorations-Best-Occasion/dp/B07RM427D1?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Clock-Unique-Theater-Popcorn-Decorations-Best-Occasion/dp/B07RM427D1?th=1?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a unique and stylish gift for the theatre lover in your life, look no further than this vinyl record wall clock.
 
@@ -447,11 +445,11 @@ Made from a recycled 12-inch vinyl record, this clock is both eco-friendly and e
 
 ✔️ A functional timekeeping device
 
-[Buy from Amazon](https://www.amazon.com/Clock-Unique-Theater-Popcorn-Decorations-Best-Occasion/dp/B07RM427D1?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Clock-Unique-Theater-Popcorn-Decorations-Best-Occasion/dp/B07RM427D1?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Movie Night Decorations Chalkboard Kit](https://www.amazon.com/Decorations-Chalkboard-Parties-Birthday-Activities/dp/B08J671Z97?th=1?ie=UTF8&tag=avadalove-20)
+### [25\. Movie Night Decorations Chalkboard Kit](https://www.amazon.com/Decorations-Chalkboard-Parties-Birthday-Activities/dp/B08J671Z97?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decorations-Chalkboard-Parties-Birthday-Activities/dp/B08J671Z97?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decorations-Chalkboard-Parties-Birthday-Activities/dp/B08J671Z97?th=1?ie=UTF8&tag=giftable02-20)
 
 If you're looking for the perfect gift for the theatre lover in your life, look no further than the Hollywood Party Decorations Kit.
 
@@ -465,11 +463,11 @@ This unique kit includes all the supplies needed to throw an unforgettable movie
 
 ✔️ Add creative touches to enhance the ambiance
 
-[Buy from Amazon](https://www.amazon.com/Decorations-Chalkboard-Parties-Birthday-Activities/dp/B08J671Z97?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decorations-Chalkboard-Parties-Birthday-Activities/dp/B08J671Z97?th=1?ie=UTF8&tag=giftable02-20)
 
-### [26\. Binder for Holding Broadway Play Program and Theater Programs](https://www.amazon.com/Broadway-Program-Theater-Playbill-Protectors/dp/B07PB2J1Y3?ie=UTF8&tag=avadalove-20)
+### [26\. Binder for Holding Broadway Play Program and Theater Programs](https://www.amazon.com/Broadway-Program-Theater-Playbill-Protectors/dp/B07PB2J1Y3?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Broadway-Program-Theater-Playbill-Protectors/dp/B07PB2J1Y3?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Broadway-Program-Theater-Playbill-Protectors/dp/B07PB2J1Y3?ie=UTF8&tag=giftable02-20)
 
 The custom sized program binder is perfect for storing and displaying up to 30 precious memories. Each binder comes with 30 pages, so it's ready to use as soon as it arrives.
 
@@ -483,11 +481,11 @@ Plus, our pages are available in a custom large size that fits programs from the
 
 ✔️ A systematic way to organize and store play program
 
-[Buy from Amazon](https://www.amazon.com/Broadway-Program-Theater-Playbill-Protectors/dp/B07PB2J1Y3?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Broadway-Program-Theater-Playbill-Protectors/dp/B07PB2J1Y3?ie=UTF8&tag=giftable02-20)
 
-### [27\. Drama Mask Keychain](https://www.amazon.com/MAOFAED-Keychain-Broadway-Musical-Theater/dp/B086YSJ9BL?th=1?ie=UTF8&tag=avadalove-20)
+### [27\. Drama Mask Keychain](https://www.amazon.com/MAOFAED-Keychain-Broadway-Musical-Theater/dp/B086YSJ9BL?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MAOFAED-Keychain-Broadway-Musical-Theater/dp/B086YSJ9BL?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MAOFAED-Keychain-Broadway-Musical-Theater/dp/B086YSJ9BL?th=1?ie=UTF8&tag=giftable02-20)
 
 Seeking the perfect gift for the theatre lover in your life? Look no further than our Broadway Musical Theater Gift!
 
@@ -501,11 +499,11 @@ Our keychain is made of stainless steel and is lead free, nickel free, and hypo 
 
 ✔️ Represent the heart and soul of theater and theatrical performances
 
-[Buy from Amazon](https://www.amazon.com/MAOFAED-Keychain-Broadway-Musical-Theater/dp/B086YSJ9BL?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MAOFAED-Keychain-Broadway-Musical-Theater/dp/B086YSJ9BL?th=1?ie=UTF8&tag=giftable02-20)
 
-### [28\. Bellaa 26287 Vintage Camera](https://www.amazon.com/Bellaa-26287-Vintage-Camera-Bookend/dp/B01C25SZ8E?ie=UTF8&tag=avadalove-20)
+### [28\. Bellaa 26287 Vintage Camera](https://www.amazon.com/Bellaa-26287-Vintage-Camera-Bookend/dp/B01C25SZ8E?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bellaa-26287-Vintage-Camera-Bookend/dp/B01C25SZ8E?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bellaa-26287-Vintage-Camera-Bookend/dp/B01C25SZ8E?ie=UTF8&tag=giftable02-20)
 
 The Bellaa 26287 Vintage Camera Bookend Old Style Movie Film 7 inch is a great gift for theatre lovers.
 
@@ -519,11 +517,11 @@ It is made of fine resin and is 7 inches tall. It is a vintage style collector's
 
 ✔️ A sought-after item for collectors
 
-[Buy from Amazon](https://www.amazon.com/Bellaa-26287-Vintage-Camera-Bookend/dp/B01C25SZ8E?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bellaa-26287-Vintage-Camera-Bookend/dp/B01C25SZ8E?ie=UTF8&tag=giftable02-20)
 
-### [29\. Theater Socks Gift for Drama Theater Lover](https://www.amazon.com/LEVLO-Between-Reality-Theater-set-Mid/dp/B08THW9Z8X/?ie=UTF8&tag=avadalove-20)
+### [29\. Theater Socks Gift for Drama Theater Lover](https://www.amazon.com/LEVLO-Between-Reality-Theater-set-Mid/dp/B08THW9Z8X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEVLO-Between-Reality-Theater-set-Mid/dp/B08THW9Z8X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEVLO-Between-Reality-Theater-set-Mid/dp/B08THW9Z8X/?ie=UTF8&tag=giftable02-20)
 
 Socks are often an underrated gift, but they can be a great present for the theatre lover in your life. Not only are they practical, but they can also be a fun and unique way to show your appreciation for their passion.
 
@@ -537,11 +535,11 @@ If you're looking for something a little more personal, you could consider getti
 
 ✔️ Supply warmth and comfort throughout the winter
 
-[Buy from Amazon](https://www.amazon.com/LEVLO-Between-Reality-Theater-set-Mid/dp/B08THW9Z8X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEVLO-Between-Reality-Theater-set-Mid/dp/B08THW9Z8X/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Magnetic Poetry Theater Lover](https://www.amazon.com/Magnetic-Poetry-Theater-Lover/dp/B085XN6L4Q/?ie=UTF8&tag=avadalove-20)
+### [30\. Magnetic Poetry Theater Lover](https://www.amazon.com/Magnetic-Poetry-Theater-Lover/dp/B085XN6L4Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Magnetic-Poetry-Theater-Lover/dp/B085XN6L4Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Magnetic-Poetry-Theater-Lover/dp/B085XN6L4Q/?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a thoughtful gift for the theatre lover in your life, Magnetic Poetry is a great option. This unique gift comes with over 200 magnetic word tiles, allowing the recipient to create their own poems, messages, or pieces of word art.
 
@@ -555,11 +553,11 @@ The magnets can be used on any metal surface, making it a great way to decorate 
 
 ✔️ Express your love by forming unique and theatrical sentence
 
-[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Theater-Lover/dp/B085XN6L4Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Magnetic-Poetry-Theater-Lover/dp/B085XN6L4Q/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Theater Life Heart Love Drama Actor Actress Gift T-Shirt](https://www.amazon.com/Theater-Heart-Drama-Actress-T-Shirt/dp/B07RT6BZW2?ie=UTF8&tag=avadalove-20)
+### [31\. Theater Life Heart Love Drama Actor Actress Gift T-Shirt](https://www.amazon.com/Theater-Heart-Drama-Actress-T-Shirt/dp/B07RT6BZW2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Theater-Heart-Drama-Actress-T-Shirt/dp/B07RT6BZW2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Theater-Heart-Drama-Actress-T-Shirt/dp/B07RT6BZW2?ie=UTF8&tag=giftable02-20)
 
 If you're looking for the perfect gift for a theater lover in your life, look no further than Theater Lover Tees Co.
 
@@ -573,11 +571,11 @@ Their unique designs feature a heart made from words that every theater lover sh
 
 ✔️ Allow wearers to proudly express their passion
 
-[Buy from Amazon](https://www.amazon.com/Theater-Heart-Drama-Actress-T-Shirt/dp/B07RT6BZW2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Theater-Heart-Drama-Actress-T-Shirt/dp/B07RT6BZW2?ie=UTF8&tag=giftable02-20)
 
-### [32\. Motivational Inspirational Poster Print](https://www.amazon.com/Hamilton-Quote-Merchandise-Motivational-Inspirational/dp/B08PPXB5TF/?ie=UTF8&tag=avadalove-20)
+### [32\. Motivational Inspirational Poster Print](https://www.amazon.com/Hamilton-Quote-Merchandise-Motivational-Inspirational/dp/B08PPXB5TF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hamilton-Quote-Merchandise-Motivational-Inspirational/dp/B08PPXB5TF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hamilton-Quote-Merchandise-Motivational-Inspirational/dp/B08PPXB5TF/?ie=UTF8&tag=giftable02-20)
 
 If you know someone who loves theatre, then you know how difficult it can be to find the perfect gift. There are so many options out there, and it can be tough to decide on something that will truly appeal to their interests.
 
@@ -591,11 +589,11 @@ And what's more, it's a gift that they can enjoy every time they see the show. S
 
 ✔️ Promote a positive mindset
 
-[Buy from Amazon](https://www.amazon.com/Hamilton-Quote-Merchandise-Motivational-Inspirational/dp/B08PPXB5TF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hamilton-Quote-Merchandise-Motivational-Inspirational/dp/B08PPXB5TF/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Ultimate Musical Theatre Broadway Card Game & Gift – Classic Deck](https://www.amazon.com/spinningrock-Songs-Every-Theatre-Should/dp/B08NXWCFSY?ie=UTF8&tag=avadalove-20)
+### [33\. Ultimate Musical Theatre Broadway Card Game & Gift – Classic Deck](https://www.amazon.com/spinningrock-Songs-Every-Theatre-Should/dp/B08NXWCFSY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/spinningrock-Songs-Every-Theatre-Should/dp/B08NXWCFSY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/spinningrock-Songs-Every-Theatre-Should/dp/B08NXWCFSY?ie=UTF8&tag=giftable02-20)
 
 If you're looking for the perfect gift for a theatre lover, look no further than the Ultimate Musical Theatre Broadway Card Game.
 
@@ -609,11 +607,11 @@ This classic deck features songs from some of the most popular musicals of all t
 
 ✔️ Bring the excitement of musical theatre into a fun and interactive gaming experience
 
-[Buy from Amazon](https://www.amazon.com/spinningrock-Songs-Every-Theatre-Should/dp/B08NXWCFSY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/spinningrock-Songs-Every-Theatre-Should/dp/B08NXWCFSY?ie=UTF8&tag=giftable02-20)
 
-### [34\. Broadway Musical Tote Bag](https://www.amazon.com/Broadway-Musical-Theater-Shoulder-Handbag/dp/B08RCF4WGL?ie=UTF8&tag=avadalove-20)
+### [34\. Broadway Musical Tote Bag](https://www.amazon.com/Broadway-Musical-Theater-Shoulder-Handbag/dp/B08RCF4WGL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Broadway-Musical-Theater-Shoulder-Handbag/dp/B08RCF4WGL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Broadway-Musical-Theater-Shoulder-Handbag/dp/B08RCF4WGL?ie=UTF8&tag=giftable02-20)
 
 The tote bag and handle shoulder bag are made of soft, washed canvas for a comfortable carry. The zipper closure ensures that all your belongings are secure, and the double-stitched stress points and strong handle provide durability.
 
@@ -627,7 +625,7 @@ The smooth zipper and wicked on broadway design make this handbag ideal for ever
 
 ✔️ Show how much the person appreciates the performing arts
 
-[Buy from Amazon](https://www.amazon.com/Broadway-Musical-Theater-Shoulder-Handbag/dp/B08RCF4WGL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Broadway-Musical-Theater-Shoulder-Handbag/dp/B08RCF4WGL?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Movie Theater Decor Custom Lounge Sign](https://loveable.ai/products/movie-theater-decor-custom-lounge-sign-movie-room-sign-shape-wooden-sign-personalized-family-name-custom-husband-wife-son-daughter-name-movie-room-decor-for-movie-lovers-304icnnprw464?variant=44410290831592?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-theatre-lovers-that-will-give-them-memorable-experiences)
 

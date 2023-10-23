@@ -293,9 +293,9 @@ The 28" x 28" folded size is ideal for hanging in the kitchen without sticking o
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/734756416/funny-kitchen-towel-new-york-city-nyc)
 
-### [16\. I Love New York Oven Mitt](https://www.amazon.com/Artisan-Owl-Officially-Licensed-Holder/dp/B07M6S2LBN/?ie=UTF8&tag=avadalove-20)
+### [16\. I Love New York Oven Mitt](https://www.amazon.com/Artisan-Owl-Officially-Licensed-Holder/dp/B07M6S2LBN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Artisan-Owl-Officially-Licensed-Holder/dp/B07M6S2LBN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Artisan-Owl-Officially-Licensed-Holder/dp/B07M6S2LBN/?ie=UTF8&tag=giftable02-20)
 
 A New York-themed present that will shield us from heat from stovetops, ovens, and cookware while we work to achieve greatness. The set includes an I Love New York oven mitt and a matching pot holder.
 
@@ -309,11 +309,11 @@ They have official licensing, so there is no need to worry about where they came
 
 ✔️ Adds a fun and functional touch to cooking
 
-[Buy from Amazon](https://www.amazon.com/Artisan-Owl-Officially-Licensed-Holder/dp/B07M6S2LBN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Artisan-Owl-Officially-Licensed-Holder/dp/B07M6S2LBN/?ie=UTF8&tag=giftable02-20)
 
-### [17\. New York Yankees Hat](https://www.amazon.com/Cooperstown-Authentic-47-Adjustable-Strapback/dp/B0721ZZZ3K/?ie=UTF8&tag=avadalove-20)
+### [17\. New York Yankees Hat](https://www.amazon.com/Cooperstown-Authentic-47-Adjustable-Strapback/dp/B0721ZZZ3K/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cooperstown-Authentic-47-Adjustable-Strapback/dp/B0721ZZZ3K/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cooperstown-Authentic-47-Adjustable-Strapback/dp/B0721ZZZ3K/?ie=UTF8&tag=giftable02-20)
 
 The Official '47 Brand New York Yankees Hat is a fantastic present that no New York Yankees fan can afford to pass up.
 
@@ -327,11 +327,11 @@ It's made from 100% Cotton Twill, which enables a small amount of stretching to 
 
 ✔️ Great gift for Yankees fans and baseball enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Cooperstown-Authentic-47-Adjustable-Strapback/dp/B0721ZZZ3K/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cooperstown-Authentic-47-Adjustable-Strapback/dp/B0721ZZZ3K/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Flour Sack Kitchen Towel](https://www.amazon.com/Funny-Towel-Kitchen-Housewarming-Farmhouse/dp/B0839L2YP9/?ie=UTF8&tag=avadalove-20)
+### [18\. Flour Sack Kitchen Towel](https://www.amazon.com/Funny-Towel-Kitchen-Housewarming-Farmhouse/dp/B0839L2YP9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Towel-Kitchen-Housewarming-Farmhouse/dp/B0839L2YP9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Towel-Kitchen-Housewarming-Farmhouse/dp/B0839L2YP9/?ie=UTF8&tag=giftable02-20)
 
 With this adorable and humorous New York towel, you may just brighten your house! Use these funny towels to dry dishes while laughing, as a nice hand towel in the bathroom, or as a sweet present for a friend!
 
@@ -345,11 +345,11 @@ Our whole line of dish towels is made entirely of cotton flour sacks. They are s
 
 ✔️ Durable and long-lasting material
 
-[Buy from Amazon](https://www.amazon.com/Funny-Towel-Kitchen-Housewarming-Farmhouse/dp/B0839L2YP9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Towel-Kitchen-Housewarming-Farmhouse/dp/B0839L2YP9/?ie=UTF8&tag=giftable02-20)
 
-### [19\. New York Gift Pillow Cover](https://www.amazon.com/Doraloko-Decorative-Pillowcase-Decoration-Greetings/dp/B092VWBG4D/?ie=UTF8&tag=avadalove-20)
+### [19\. New York Gift Pillow Cover](https://www.amazon.com/Doraloko-Decorative-Pillowcase-Decoration-Greetings/dp/B092VWBG4D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Doraloko-Decorative-Pillowcase-Decoration-Greetings/dp/B092VWBG4D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Doraloko-Decorative-Pillowcase-Decoration-Greetings/dp/B092VWBG4D/?ie=UTF8&tag=giftable02-20)
 
 Someone who has recently relocated to New York deserves this cozy cushion! The throw pillow cover is constructed of premium soft linen with a natural texture, lasting strength, and a cozy feel. Well-stitched by hand, a concealed (invisible) zipper makes it simple to insert and remove the insert.
 
@@ -363,11 +363,11 @@ It has been reusable for years and may be washed both by machine and by hand. Th
 
 ✔️ Great gift for New York lovers and travelers
 
-[Buy from Amazon](https://www.amazon.com/Doraloko-Decorative-Pillowcase-Decoration-Greetings/dp/B092VWBG4D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Doraloko-Decorative-Pillowcase-Decoration-Greetings/dp/B092VWBG4D/?ie=UTF8&tag=giftable02-20)
 
-### [20\. New York State Serving and Cutting Board](https://www.amazon.com/Totally-Bamboo-Slice-Serving-Cutting/dp/B07QFSRSSG/?ie=UTF8&tag=avadalove-20)
+### [20\. New York State Serving and Cutting Board](https://www.amazon.com/Totally-Bamboo-Slice-Serving-Cutting/dp/B07QFSRSSG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Totally-Bamboo-Slice-Serving-Cutting/dp/B07QFSRSSG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Totally-Bamboo-Slice-Serving-Cutting/dp/B07QFSRSSG/?ie=UTF8&tag=giftable02-20)
 
 With this exquisitely produced bamboo cutting board that has engraved artwork emphasizing the biggest cities and attractions in New York, you may enjoy a piece of The Empire State.
 
@@ -381,11 +381,11 @@ When served, the board makes for a fascinating discussion piece; turn it over to
 
 ✔️ Adds a touch of nostalgia for New York residents or enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Totally-Bamboo-Slice-Serving-Cutting/dp/B07QFSRSSG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Totally-Bamboo-Slice-Serving-Cutting/dp/B07QFSRSSG/?ie=UTF8&tag=giftable02-20)
 
-### [21\. LEGO Architecture New York City](https://www.amazon.com/LEGO-Architecture-Skyline-Collection-Building/dp/B017B19DOY/?ie=UTF8&tag=avadalove-20)
+### [21\. LEGO Architecture New York City](https://www.amazon.com/LEGO-Architecture-Skyline-Collection-Building/dp/B017B19DOY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LEGO-Architecture-Skyline-Collection-Building/dp/B017B19DOY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LEGO-Architecture-Skyline-Collection-Building/dp/B017B19DOY/?ie=UTF8&tag=giftable02-20)
 
 With the help of this accurate model of the New York City skyline, imaginative builders will adore bringing the Big Apple to life. This building kit's model skyscrapers and towers let you imitate the wonder of the city that never sleeps.
 
@@ -399,11 +399,11 @@ The LEGO Architectural Building Toys are compatible with all LEGO construction k
 
 ✔️ Great for display and as a collector's item
 
-[Buy from Amazon](https://www.amazon.com/LEGO-Architecture-Skyline-Collection-Building/dp/B017B19DOY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LEGO-Architecture-Skyline-Collection-Building/dp/B017B19DOY/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Statue of Liberty Jumbo Magnet](https://www.amazon.com/Classic-Magnets-Collectible-Made-USA/dp/B00LMHIQFQ/r?ie=UTF8&tag=avadalove-20)
+### [22\. Statue of Liberty Jumbo Magnet](https://www.amazon.com/Classic-Magnets-Collectible-Made-USA/dp/B00LMHIQFQ/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Classic-Magnets-Collectible-Made-USA/dp/B00LMHIQFQ/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Classic-Magnets-Collectible-Made-USA/dp/B00LMHIQFQ/r?ie=UTF8&tag=giftable02-20)
 
 In your pocket is the entire Statue of Liberty! A traditional antique memento of New York City. This item serves as a souvenir and may be used to glue notes to your writing boards or as decor.
 
@@ -417,11 +417,11 @@ Ideaman, Inc., the company that created the Original Classic souvenir magnets, p
 
 ✔️ Great souvenir or gift for travelers and New York enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Classic-Magnets-Collectible-Made-USA/dp/B00LMHIQFQ/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Classic-Magnets-Collectible-Made-USA/dp/B00LMHIQFQ/r?ie=UTF8&tag=giftable02-20)
 
-### [23\. Vacuum Insulated Tumbler](https://www.amazon.com/Vacuum-Insulated-Tumbler-Stainless-Skyline/dp/B091D36HKY/?ie=UTF8&tag=avadalove-20)
+### [23\. Vacuum Insulated Tumbler](https://www.amazon.com/Vacuum-Insulated-Tumbler-Stainless-Skyline/dp/B091D36HKY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vacuum-Insulated-Tumbler-Stainless-Skyline/dp/B091D36HKY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vacuum-Insulated-Tumbler-Stainless-Skyline/dp/B091D36HKY/?ie=UTF8&tag=giftable02-20)
 
 Give a buddy this tumbler with a New York theme for a busy day. The vacuum-insulated, double-walled, black powder-coated classic tumblers can keep a cold beverage cold for up to 24 hours and a hot drink hot for up to 10 hours.
 
@@ -435,11 +435,11 @@ Stainless steel 18/8 (AISI 304) of the highest grade was used to make the travel
 
 ✔️ Ideal for use on-the-go or at home
 
-[Buy from Amazon](https://www.amazon.com/Vacuum-Insulated-Tumbler-Stainless-Skyline/dp/B091D36HKY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vacuum-Insulated-Tumbler-Stainless-Skyline/dp/B091D36HKY/?ie=UTF8&tag=giftable02-20)
 
-### [24\. New York City Whiskey Glasses](https://www.amazon.com/Etched-Old-Fashioned-Whiskey-Glasses/dp/B0791KMG5N?ie=UTF8&tag=avadalove-20)
+### [24\. New York City Whiskey Glasses](https://www.amazon.com/Etched-Old-Fashioned-Whiskey-Glasses/dp/B0791KMG5N?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Etched-Old-Fashioned-Whiskey-Glasses/dp/B0791KMG5N?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Etched-Old-Fashioned-Whiskey-Glasses/dp/B0791KMG5N?ie=UTF8&tag=giftable02-20)
 
 A few whiskey shots are needed for any New York party. Our glasses are a perfect size, 10 oz in volume, manufactured of premium glassware that is 100% LEAD-FREE, and have a sturdy base. Any traditional cocktail may be served in this glass. It looks particularly elegant when paired with a full-bodied bourbon, old-fashioned, or scotch.
 
@@ -453,11 +453,11 @@ To preserve the integrity of the artwork, each lowball drinking glass has been s
 
 ✔️ Adds a touch of sophistication to drinking experience
 
-[Buy from Amazon](https://www.amazon.com/Etched-Old-Fashioned-Whiskey-Glasses/dp/B0791KMG5N?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Etched-Old-Fashioned-Whiskey-Glasses/dp/B0791KMG5N?ie=UTF8&tag=giftable02-20)
 
-### [25\. New York Canvas Tote Bag](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=avadalove-20)
+### [25\. New York Canvas Tote Bag](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=giftable02-20)
 
 A New Yorker's closest friend will forever be a tote bag! Our book bag is strong enough to carry all of your belongings because it is constructed of heavyweight canvas.
 
@@ -471,11 +471,11 @@ The reusable tote has an internal pocket to hold pens, jewelry, and other items 
 
 ✔️ Ideal for carrying essentials and shopping in style
 
-[Buy from Amazon](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kate-Spade-New-York-Classics/dp/B07DD2CMXC/?ie=UTF8&tag=giftable02-20)
 
-### [26\. New York Souvenir Zipper Pouch](https://www.amazon.com/Fashion-Souvenir-Zipper-Cosmetic-JP-330133B/dp/B08CWGGZT9/?ie=UTF8&tag=avadalove-20)
+### [26\. New York Souvenir Zipper Pouch](https://www.amazon.com/Fashion-Souvenir-Zipper-Cosmetic-JP-330133B/dp/B08CWGGZT9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fashion-Souvenir-Zipper-Cosmetic-JP-330133B/dp/B08CWGGZT9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fashion-Souvenir-Zipper-Cosmetic-JP-330133B/dp/B08CWGGZT9/?ie=UTF8&tag=giftable02-20)
 
 Put your best self in our New York purse! Made with Soft Waterproof Synthetic Leather of the Highest Quality and a Secure Zipper Closure. It can be used as a handbag and a makeup purse.
 
@@ -489,11 +489,11 @@ Featuring Romance and typical New York City Elements. The bag's numerous delicat
 
 ✔️ Ideal for storing small items and mementos
 
-[Buy from Amazon](https://www.amazon.com/Fashion-Souvenir-Zipper-Cosmetic-JP-330133B/dp/B08CWGGZT9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fashion-Souvenir-Zipper-Cosmetic-JP-330133B/dp/B08CWGGZT9/?ie=UTF8&tag=giftable02-20)
 
-### [27\. NYC Tote Bag Canvas](https://www.amazon.com/NYC-Canvas-Souvenir-Black-Straps/dp/B00O3GVVPA?ie=UTF8&tag=avadalove-20)
+### [27\. NYC Tote Bag Canvas](https://www.amazon.com/NYC-Canvas-Souvenir-Black-Straps/dp/B00O3GVVPA?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/NYC-Canvas-Souvenir-Black-Straps/dp/B00O3GVVPA?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/NYC-Canvas-Souvenir-Black-Straps/dp/B00O3GVVPA?ie=UTF8&tag=giftable02-20)
 
 A stroll around New York City is never complete without our NYC Tote Bag. It is a great small multi-purpose bag made from a friendly and durable material that is the canvas.
 
@@ -507,11 +507,11 @@ It measures 14'5 x 14'5 (37cm x 37cm), which is big enough to fit most essential
 
 ✔️ Perfect for carrying essentials and shopping in style
 
-[Buy from Amazon](https://www.amazon.com/NYC-Canvas-Souvenir-Black-Straps/dp/B00O3GVVPA?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/NYC-Canvas-Souvenir-Black-Straps/dp/B00O3GVVPA?ie=UTF8&tag=giftable02-20)
 
-### [28\. I Love New York Colorful Mugs](https://www.amazon.com/Love-New-York-Colorful-Souvenirs/dp/B01N4DOML6/?ie=UTF8&tag=avadalove-20)
+### [28\. I Love New York Colorful Mugs](https://www.amazon.com/Love-New-York-Colorful-Souvenirs/dp/B01N4DOML6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Love-New-York-Colorful-Souvenirs/dp/B01N4DOML6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Love-New-York-Colorful-Souvenirs/dp/B01N4DOML6/?ie=UTF8&tag=giftable02-20)
 
 A New Yorker's life is not whole without his I Love New York Mug. Our mug is made from the highest quality ceramic, making it extremely durable and dishwasher safe, saving you precious time hustling in NYC.
 
@@ -525,7 +525,7 @@ The mug can hold up to 11 ounces of liquid, so you can take your time enjoying y
 
 ✔️ Great souvenir or gift for New York enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Love-New-York-Colorful-Souvenirs/dp/B01N4DOML6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Love-New-York-Colorful-Souvenirs/dp/B01N4DOML6/?ie=UTF8&tag=giftable02-20)
 
 ### [29\. Cotton Tote Bag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.amazon.com/Homesick-Scented-Candle-York-Version/dp/B088SLTWQP/r)
 
@@ -545,9 +545,9 @@ Its dimensions are 41 cm in height, 39 cm in length, and 25 cm for the handle. O
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.amazon.com/Homesick-Scented-Candle-York-Version/dp/B088SLTWQP/r)
 
-### [30\. Patriotic Key Chain Collection](https://www.amazon.com/souvenirs-suvineers-soverniers-backpacks-accessories/dp/B018SR63LG?ie=UTF8&tag=avadalove-20)
+### [30\. Patriotic Key Chain Collection](https://www.amazon.com/souvenirs-suvineers-soverniers-backpacks-accessories/dp/B018SR63LG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/souvenirs-suvineers-soverniers-backpacks-accessories/dp/B018SR63LG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/souvenirs-suvineers-soverniers-backpacks-accessories/dp/B018SR63LG?ie=UTF8&tag=giftable02-20)
 
 These keychain mementos are ideal for tourists or patriots. They have interesting designs and lovely colors and textures. There are several iconic structures in New York City, like the Statue of Liberty, the Empire State Building, and the American flag. The Pack is a wonderful example of this.
 
@@ -561,7 +561,7 @@ Each keychain is composed of strong, long-lasting metal. All of them have a ring
 
 ✔️ Great for showing support for your country
 
-[Buy from Amazon](https://www.amazon.com/souvenirs-suvineers-soverniers-backpacks-accessories/dp/B018SR63LG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/souvenirs-suvineers-soverniers-backpacks-accessories/dp/B018SR63LG?ie=UTF8&tag=giftable02-20)
 
 ## Final thought
 

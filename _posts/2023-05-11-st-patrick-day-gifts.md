@@ -111,9 +111,9 @@ Get your friends and family some green today with this lovely St. Patrick's Day 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1403378877/st-patricks-day-gnome-tumbler)
 
-### [7\. St Patricks Day Beads Necklace](https://www.amazon.com/4Es-Novelty-Patricks-Necklaces-Accessory/dp/B07NQLCLD9/?ie=UTF8&tag=avadalove-20)
+### [7\. St Patricks Day Beads Necklace](https://www.amazon.com/4Es-Novelty-Patricks-Necklaces-Accessory/dp/B07NQLCLD9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/4Es-Novelty-Patricks-Necklaces-Accessory/dp/B07NQLCLD9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/4Es-Novelty-Patricks-Necklaces-Accessory/dp/B07NQLCLD9/?ie=UTF8&tag=giftable02-20)
 
 The St Patrick's Day Beads Necklace is great for any day or event - a great gift idea for everyone in your family. They will be sure to thank you for your generosity with this cute bracelet, and they will wear it proudly.
 
@@ -125,11 +125,11 @@ The St Patrick's Day Beads Necklace is great for any day or event - a great gift
 
 ✔️ Bring St Patrick's Day spirit to your home
 
-[Buy from Amazon](https://www.amazon.com/4Es-Novelty-Patricks-Necklaces-Accessory/dp/B07NQLCLD9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/4Es-Novelty-Patricks-Necklaces-Accessory/dp/B07NQLCLD9/?ie=UTF8&tag=giftable02-20)
 
-### [8\. St. Patrick’s Day Kitchen Dishtowel Set](https://www.amazon.com/DII-Decorative-Oversized-Embroidered-Patricks/dp/B00QTMFM6A%20?ie=UTF8&tag=avadalove-20)
+### [8\. St. Patrick’s Day Kitchen Dishtowel Set](https://www.amazon.com/DII-Decorative-Oversized-Embroidered-Patricks/dp/B00QTMFM6A%20?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DII-Decorative-Oversized-Embroidered-Patricks/dp/B00QTMFM6A%20?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DII-Decorative-Oversized-Embroidered-Patricks/dp/B00QTMFM6A%20?ie=UTF8&tag=giftable02-20)
 
 Our St. Patrick's Day Kitchen Dishtowel Set is the perfect gift idea for that special person who wants to be surrounded by his favorite holiday decorations throughout the year. These Irish dishcloths are the perfect way to say I love you for St. Patty's day. Use as is or hand wash.
 
@@ -141,7 +141,7 @@ Our St. Patrick's Day Kitchen Dishtowel Set is the perfect gift idea for that sp
 
 ✔️ Add an elegant touch to your kitcken
 
-[Buy from Amazon](https://www.amazon.com/DII-Decorative-Oversized-Embroidered-Patricks/dp/B00QTMFM6A%20?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DII-Decorative-Oversized-Embroidered-Patricks/dp/B00QTMFM6A%20?ie=UTF8&tag=giftable02-20)
 
 ### [9\. St. Patrick’s Day Large Four Leaf Clover Brooch](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/882862575/large-four-leaf-clover-brooch-st)
 
@@ -175,9 +175,9 @@ Welcome the festive season with these beautiful shamrocks inspired doormats. The
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1166251831/welcome-shamrock-doormat-st-patricks-day)
 
-### [11\. St.Patrick’s Day Kids Rubber Wristband](https://www.amazon.com/St-Patricks-Bracelets-Rubber-Wristband-Supplies/dp/B08P5BMS7P/r?ie=UTF8&tag=avadalove-20)
+### [11\. St.Patrick’s Day Kids Rubber Wristband](https://www.amazon.com/St-Patricks-Bracelets-Rubber-Wristband-Supplies/dp/B08P5BMS7P/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/St-Patricks-Bracelets-Rubber-Wristband-Supplies/dp/B08P5BMS7P/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/St-Patricks-Bracelets-Rubber-Wristband-Supplies/dp/B08P5BMS7P/r?ie=UTF8&tag=giftable02-20)
 
 Kids will be able to express their green pride while wearing this festive wristband that is perfect for any celebration. A popular gift idea for kids ages three to six, it can also be used as a fun activity toy.
 
@@ -189,7 +189,7 @@ Kids will be able to express their green pride while wearing this festive wristb
 
 ✔️ The perfect stocking stuffer
 
-[Buy from Amazon](https://www.amazon.com/St-Patricks-Bracelets-Rubber-Wristband-Supplies/dp/B08P5BMS7P/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/St-Patricks-Bracelets-Rubber-Wristband-Supplies/dp/B08P5BMS7P/r?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Watercolor Shamrock Pillow](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/952762448/watercolor-shamrock-pillow-lumbar-accent)
 
@@ -223,9 +223,9 @@ The Shamrock Four Leaf Clover Wish Bracelet is an authentic replica of the tradi
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1147713286/get-your-green-on-shamrock-four-leaf?g)
 
-### [14\. St. Patrick’s Day Wood Gnomes Ornaments](https://www.amazon.com/B1ykin-Patricks-Ornaments-Decoration-Gift-Tags-Shamrock-Supplies/dp/B09HZWTMKY?ie=UTF8&tag=avadalove-20)
+### [14\. St. Patrick’s Day Wood Gnomes Ornaments](https://www.amazon.com/B1ykin-Patricks-Ornaments-Decoration-Gift-Tags-Shamrock-Supplies/dp/B09HZWTMKY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/B1ykin-Patricks-Ornaments-Decoration-Gift-Tags-Shamrock-Supplies/dp/B09HZWTMKY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/B1ykin-Patricks-Ornaments-Decoration-Gift-Tags-Shamrock-Supplies/dp/B09HZWTMKY?ie=UTF8&tag=giftable02-20)
 
 It's St. Patricks Day, and these ornaments will ensure everyone knows that you're Irish! Handmade in the USA, this trio of adorable wood gnomes will bring joy to every home. Moreover, your loved ones and friends will receive a lot of luck in life. This can be considered wonderful home decor. What a practical and meaningful gift idea for this event.
 
@@ -237,7 +237,7 @@ It's St. Patricks Day, and these ornaments will ensure everyone knows that you'r
 
 ✔️ Create a cozy atmosphere with your friends and family in your living room
 
-[Buy from Amazon](https://www.amazon.com/B1ykin-Patricks-Ornaments-Decoration-Gift-Tags-Shamrock-Supplies/dp/B09HZWTMKY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/B1ykin-Patricks-Ornaments-Decoration-Gift-Tags-Shamrock-Supplies/dp/B09HZWTMKY?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Happy St. Patrick’s Farmhouse Sign Decor](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/765556812/long-happy-st-patricks-farmhouse-sign?g)
 

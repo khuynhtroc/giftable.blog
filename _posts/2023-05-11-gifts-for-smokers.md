@@ -17,9 +17,9 @@ With so many different reasons why people smoke, it's important to acknowledge t
 
 By taking the time to choose a thoughtful gift, you're demonstrating your care for their health while also respecting their personal choices. So go ahead and explore the options - your loved one is sure to be touched by your thoughtfulness and generosity.
 
-### [1\. Chicken Leg Rack](https://www.amazon.com/G-HOMEFAVOR-Stainless-Dishwasher-Non-Stick/dp/B07D5S192Z/?ie=UTF8&tag=avadalove-20)
+### [1\. Chicken Leg Rack](https://www.amazon.com/G-HOMEFAVOR-Stainless-Dishwasher-Non-Stick/dp/B07D5S192Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/G-HOMEFAVOR-Stainless-Dishwasher-Non-Stick/dp/B07D5S192Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/G-HOMEFAVOR-Stainless-Dishwasher-Non-Stick/dp/B07D5S192Z/?ie=UTF8&tag=giftable02-20)
 
 Get ready to elevate your BBQ game and impress your guests with some smoky, succulent chicken drumsticks. And what better way to do it than with the ultimate tool for the job - the leg wing rack!
 
@@ -33,11 +33,11 @@ The leg wing rack is a handy contraption designed to hold chicken drumsticks upr
 
 ✔️ Doubles as a pan for cooking vegetables
 
-[Buy from Amazon](https://www.amazon.com/G-HOMEFAVOR-Stainless-Dishwasher-Non-Stick/dp/B07D5S192Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/G-HOMEFAVOR-Stainless-Dishwasher-Non-Stick/dp/B07D5S192Z/?ie=UTF8&tag=giftable02-20)
 
-### [2\. Smoker Bag](https://www.amazon.com/Smell-Durable-Combination-Container-Accessories/dp/B09ZT2F6HL/?ie=UTF8&tag=avadalove-20)
+### [2\. Smoker Bag](https://www.amazon.com/Smell-Durable-Combination-Container-Accessories/dp/B09ZT2F6HL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Smell-Durable-Combination-Container-Accessories/dp/B09ZT2F6HL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Smell-Durable-Combination-Container-Accessories/dp/B09ZT2F6HL/?ie=UTF8&tag=giftable02-20)
 
 Keep your smokes safe and sound with this odor-proof bag that's so secure, even a bloodhound couldn't sniff it out.
 
@@ -51,7 +51,7 @@ The smell-proof bag is crafted from sturdy fabric and is lined with premium acti
 
 ✔️ Odor-proof technology ensures your goods stay fresh
 
-[Buy from Amazon](https://www.amazon.com/Smell-Durable-Combination-Container-Accessories/dp/B09ZT2F6HL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Smell-Durable-Combination-Container-Accessories/dp/B09ZT2F6HL/?ie=UTF8&tag=giftable02-20)
 
 ### [3\. Handmade Gemstone Pipe Quartz Crystal Smoking Pipes](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1217845254/handmade-gemstone-pipe-quartz-crystal)
 
@@ -73,9 +73,9 @@ Made from high-quality gemstones and crystal, these pipes are designed for tobac
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1217845254/handmade-gemstone-pipe-quartz-crystal)
 
-### [4\. Digital Electric Smoker](https://www.amazon.com/Masterbuilt-130B-Digital-Electric-Smoker/dp/B07CN38M23/?ie=UTF8&tag=avadalove-20)
+### [4\. Digital Electric Smoker](https://www.amazon.com/Masterbuilt-130B-Digital-Electric-Smoker/dp/B07CN38M23/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Masterbuilt-130B-Digital-Electric-Smoker/dp/B07CN38M23/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Masterbuilt-130B-Digital-Electric-Smoker/dp/B07CN38M23/?ie=UTF8&tag=giftable02-20)
 
 No need to step outside in the cold or rain to enjoy a smoky flavor - the digital electric smoker allows your loved one to cook their favorite BBQ dishes indoors, no matter the weather.
 
@@ -89,7 +89,7 @@ This state-of-the-art smoker machine is designed to deliver mouth-watering smoke
 
 ✔️ Show that you care about their health
 
-[Buy from Amazon](https://www.amazon.com/Masterbuilt-130B-Digital-Electric-Smoker/dp/B07CN38M23/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Masterbuilt-130B-Digital-Electric-Smoker/dp/B07CN38M23/?ie=UTF8&tag=giftable02-20)
 
 ### [5\. Stash Box Kit with Rolling Tray](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/946696568/stash-box-kit-with-rolling-tray)
 
@@ -351,9 +351,9 @@ By providing them with high-quality smoking accessories and a fun treat like bub
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/994874941/smoker-essential-care-package-pink-set)
 
-### [19\. Craving Crusher Inhaler](https://www.amazon.com/CRAVING-Aromatherapy-Suppressant-Natural-cravings/dp/B00UMIBIEC?ie=UTF8&tag=avadalove-20)
+### [19\. Craving Crusher Inhaler](https://www.amazon.com/CRAVING-Aromatherapy-Suppressant-Natural-cravings/dp/B00UMIBIEC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CRAVING-Aromatherapy-Suppressant-Natural-cravings/dp/B00UMIBIEC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CRAVING-Aromatherapy-Suppressant-Natural-cravings/dp/B00UMIBIEC?ie=UTF8&tag=giftable02-20)
 
 Help your beloved smoker upgrade their evening routine with this game-changing smokey treat blend! Say goodbye to boring old cigarettes and hello to a more enjoyable and sustainable smoking experience.
 
@@ -367,11 +367,11 @@ This 100% natural remedy is made with fresh essential oils that are specifically
 
 ✔️ Perfect gift for smokers who care about their health
 
-[Buy from Amazon](https://www.amazon.com/CRAVING-Aromatherapy-Suppressant-Natural-cravings/dp/B00UMIBIEC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CRAVING-Aromatherapy-Suppressant-Natural-cravings/dp/B00UMIBIEC?ie=UTF8&tag=giftable02-20)
 
-### [20\. Leaf Cigarette Tray](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8?ie=UTF8&tag=avadalove-20)
+### [20\. Leaf Cigarette Tray](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8?ie=UTF8&tag=giftable02-20)
 
 Why settle for a boring old ashtray when you can give the gift of the PolyPlus leaf ashtray? It's sure to leave a lasting impression on any smoker and show them that you care about their health and well-being.
 
@@ -387,11 +387,11 @@ The deep design ensures that ash stays inside, while the windproof feature keeps
 
 ✔️ Lightweight and easy to carry
 
-[Buy from Amazon](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PolyPlus-Marijuana-Cigarette-Ashtray-Outdoors/dp/B00J8WNDH8?ie=UTF8&tag=giftable02-20)
 
-### [21\. Smoking Gun Accessory Set](https://www.amazon.com/Smoking-Accessory-Smoke-Infuser-Accessories/dp/B07S726F5W/?ie=UTF8&tag=avadalove-20)
+### [21\. Smoking Gun Accessory Set](https://www.amazon.com/Smoking-Accessory-Smoke-Infuser-Accessories/dp/B07S726F5W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Smoking-Accessory-Smoke-Infuser-Accessories/dp/B07S726F5W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Smoking-Accessory-Smoke-Infuser-Accessories/dp/B07S726F5W/?ie=UTF8&tag=giftable02-20)
 
 Elevate your favorite smoker's evening routine with the ultimate accessory set to take their smoking game to new heights!
 
@@ -405,11 +405,11 @@ This Smoking Gun Accessory Set comes complete with 11 PCS, including a Disk Lid 
 
 ✔️ Easy maintenance and hassle-free cleaning with a brush
 
-[Buy from Amazon](https://www.amazon.com/Smoking-Accessory-Smoke-Infuser-Accessories/dp/B07S726F5W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Smoking-Accessory-Smoke-Infuser-Accessories/dp/B07S726F5W/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Udobuy Funny Socks](https://www.amazon.com/Udobuy-Funny-Socks-Novelty-Boyfriend/dp/B08SJSSY83/?ie=UTF8&tag=avadalove-20)
+### [22\. Udobuy Funny Socks](https://www.amazon.com/Udobuy-Funny-Socks-Novelty-Boyfriend/dp/B08SJSSY83/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Udobuy-Funny-Socks-Novelty-Boyfriend/dp/B08SJSSY83/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Udobuy-Funny-Socks-Novelty-Boyfriend/dp/B08SJSSY83/?ie=UTF8&tag=giftable02-20)
 
 Featuring the hilarious message "Inhale the good shit / Exhale the bullshit" printed on each side, these socks are the ultimate gift for smokers who love a good laugh.
 
@@ -423,11 +423,11 @@ These funny socks are sure to spark joy and laughter while also providing a gent
 
 ✔️ Makes a unique and thoughtful gift for smokers
 
-[Buy from Amazon](https://www.amazon.com/Udobuy-Funny-Socks-Novelty-Boyfriend/dp/B08SJSSY83/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Udobuy-Funny-Socks-Novelty-Boyfriend/dp/B08SJSSY83/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Wireless Meat Thermometer](https://www.amazon.com/ThermoPro-Wireless-Digital-Cooking-Thermometer/dp/B01GE77QT0?ie=UTF8&tag=avadalove-20)
+### [23\. Wireless Meat Thermometer](https://www.amazon.com/ThermoPro-Wireless-Digital-Cooking-Thermometer/dp/B01GE77QT0?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ThermoPro-Wireless-Digital-Cooking-Thermometer/dp/B01GE77QT0?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ThermoPro-Wireless-Digital-Cooking-Thermometer/dp/B01GE77QT0?ie=UTF8&tag=giftable02-20)
 
 Give the gift of precision cooking with the ThermorPro thermometer - because no one likes overcooked or undercooked meat!
 
@@ -441,11 +441,11 @@ Whether they're smoking ribs, brisket, or any other meat, this handy tool will h
 
 ✔️ Wire probe for accurate temperature readings
 
-[Buy from Amazon](https://www.amazon.com/ThermoPro-Wireless-Digital-Cooking-Thermometer/dp/B01GE77QT0?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ThermoPro-Wireless-Digital-Cooking-Thermometer/dp/B01GE77QT0?ie=UTF8&tag=giftable02-20)
 
-### [24\. Cigarette Ashtray](https://www.amazon.com/SOMGEM-Outdoor-Cigarette-Ashtrays-Birthday/dp/B092PV4C9B/?ie=UTF8&tag=avadalove-20)
+### [24\. Cigarette Ashtray](https://www.amazon.com/SOMGEM-Outdoor-Cigarette-Ashtrays-Birthday/dp/B092PV4C9B/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SOMGEM-Outdoor-Cigarette-Ashtrays-Birthday/dp/B092PV4C9B/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SOMGEM-Outdoor-Cigarette-Ashtrays-Birthday/dp/B092PV4C9B/?ie=UTF8&tag=giftable02-20)
 
 This bully dog design ashtray is sure to upgrade your smoker friend's evening routine in a delightful way!
 
@@ -459,11 +459,11 @@ The playful design of the bulldog adds a touch of whimsy to any room. And, as so
 
 ✔️ Perfectly sized for both indoor and outdoor use
 
-[Buy from Amazon](https://www.amazon.com/SOMGEM-Outdoor-Cigarette-Ashtrays-Birthday/dp/B092PV4C9B/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SOMGEM-Outdoor-Cigarette-Ashtrays-Birthday/dp/B092PV4C9B/?ie=UTF8&tag=giftable02-20)
 
-### [25\. USB Coil Lighter](https://www.amazon.com/BOLT-Lighter%C2%AE-Rechargeable-Windproof-Cigarette/dp/B01KBG43UA/?ie=UTF8&tag=avadalove-20)
+### [25\. USB Coil Lighter](https://www.amazon.com/BOLT-Lighter%C2%AE-Rechargeable-Windproof-Cigarette/dp/B01KBG43UA/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BOLT-Lighter%C2%AE-Rechargeable-Windproof-Cigarette/dp/B01KBG43UA/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BOLT-Lighter%C2%AE-Rechargeable-Windproof-Cigarette/dp/B01KBG43UA/?ie=UTF8&tag=giftable02-20)
 
 Attention gift-givers! This Bolt lighter will definitely light up your beloved smoker's world.
 
@@ -477,11 +477,11 @@ It is a practical and versatile device designed specifically for smokers. This s
 
 ✔️ Save your smoker time and money in the long run
 
-[Buy from Amazon](https://www.amazon.com/BOLT-Lighter%C2%AE-Rechargeable-Windproof-Cigarette/dp/B01KBG43UA/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BOLT-Lighter%C2%AE-Rechargeable-Windproof-Cigarette/dp/B01KBG43UA/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Bradley Food Smoker](https://www.amazon.com/Bradley-Smoker-BTDS76P-Digital-Electric/dp/B000FJZ150?ie=UTF8&tag=avadalove-20)
+### [26\. Bradley Food Smoker](https://www.amazon.com/Bradley-Smoker-BTDS76P-Digital-Electric/dp/B000FJZ150?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bradley-Smoker-BTDS76P-Digital-Electric/dp/B000FJZ150?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bradley-Smoker-BTDS76P-Digital-Electric/dp/B000FJZ150?ie=UTF8&tag=giftable02-20)
 
 Searching for a gift for people who smoke, but don't want to contribute to their habit? Add this Bradley food smoker to your cart now!
 
@@ -495,11 +495,11 @@ Crafted with high-quality insulated double-wall carbon steel and a durable powde
 
 ✔️ Can smoke a variety of foods at the same time
 
-[Buy from Amazon](https://www.amazon.com/Bradley-Smoker-BTDS76P-Digital-Electric/dp/B000FJZ150?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bradley-Smoker-BTDS76P-Digital-Electric/dp/B000FJZ150?ie=UTF8&tag=giftable02-20)
 
-### [27\. My Life Lighter](https://www.amazon.com/Light-Lighter-Smoker-Gift-Valentines/dp/B07MBJDH2W/?ie=UTF8&tag=avadalove-20)
+### [27\. My Life Lighter](https://www.amazon.com/Light-Lighter-Smoker-Gift-Valentines/dp/B07MBJDH2W/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Light-Lighter-Smoker-Gift-Valentines/dp/B07MBJDH2W/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Light-Lighter-Smoker-Gift-Valentines/dp/B07MBJDH2W/?ie=UTF8&tag=giftable02-20)
 
 Looking for a gift for someone who's always on fire? This sleek and stylish lighter is an exquisite gift for smokers to upgrade their evening routine!
 
@@ -513,11 +513,11 @@ This gift for people who smoke comes with a velvet-lined insert inside a tin, en
 
 ✔️ The design will never fade away
 
-[Buy from Amazon](https://www.amazon.com/Light-Lighter-Smoker-Gift-Valentines/dp/B07MBJDH2W/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Light-Lighter-Smoker-Gift-Valentines/dp/B07MBJDH2W/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Marvis Mint Toothpaste](https://www.amazon.com/Marvis-Classic-Strong-Mint-Toothpaste/dp/B0006PKIQA?ie=UTF8&tag=avadalove-20)
+### [28\. Marvis Mint Toothpaste](https://www.amazon.com/Marvis-Classic-Strong-Mint-Toothpaste/dp/B0006PKIQA?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Marvis-Classic-Strong-Mint-Toothpaste/dp/B0006PKIQA?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Marvis-Classic-Strong-Mint-Toothpaste/dp/B0006PKIQA?ie=UTF8&tag=giftable02-20)
 
 Keep the smoky smell at bay with a fresh twist. Introduce your smoking loved one to Marvis Classic Mint Toothpaste.
 
@@ -533,11 +533,11 @@ The refreshing peppermint flavor is a gateway to a whole new level of long-lasti
 
 ✔️ Bring a touch of luxury to daily oral hygiene routine
 
-[Buy from Amazon](https://www.amazon.com/Marvis-Classic-Strong-Mint-Toothpaste/dp/B0006PKIQA?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Marvis-Classic-Strong-Mint-Toothpaste/dp/B0006PKIQA?ie=UTF8&tag=giftable02-20)
 
-### [29\. Cigarette Blunt Joint Holder](https://www.amazon.com/Cigarette-Holders-Smoking-Ciggaret-Protects/dp/B08YMQZKD7/?ie=UTF8&tag=avadalove-20)
+### [29\. Cigarette Blunt Joint Holder](https://www.amazon.com/Cigarette-Holders-Smoking-Ciggaret-Protects/dp/B08YMQZKD7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cigarette-Holders-Smoking-Ciggaret-Protects/dp/B08YMQZKD7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cigarette-Holders-Smoking-Ciggaret-Protects/dp/B08YMQZKD7/?ie=UTF8&tag=giftable02-20)
 
 Say goodbye to stained nails with this cigarette holder ring! It keeps your loved one's hands smelling fresh and prevents yellowing from the smoke.
 
@@ -551,11 +551,11 @@ With this vintage Hollywood glam vibe accessory, your loved one will surely stan
 
 ✔️ Enhance their smoking experience
 
-[Buy from Amazon](https://www.amazon.com/Cigarette-Holders-Smoking-Ciggaret-Protects/dp/B08YMQZKD7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cigarette-Holders-Smoking-Ciggaret-Protects/dp/B08YMQZKD7/?ie=UTF8&tag=giftable02-20)
 
-### [30\. High On Design Book](https://www.amazon.com/dp/3899558804?ie=UTF8&tag=avadalove-20)
+### [30\. High On Design Book](https://www.amazon.com/dp/3899558804?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/3899558804?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/3899558804?ie=UTF8&tag=giftable02-20)
 
 Check out this "High on Design" - a book that will take your smoking friend on a journey through the fascinating and evolving world of cannabis culture.
 
@@ -569,11 +569,11 @@ It is a must-read for any self-respecting smoker who also happens to be a nerd. 
 
 ✔️ Learn about the marketing of weed as a medical aid
 
-[Buy from Amazon](https://www.amazon.com/dp/3899558804?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/3899558804?ie=UTF8&tag=giftable02-20)
 
-### [31\. Healthcare Shirt](https://www.amazon.com/dp/B07QC4BLTB?ie=UTF8&tag=avadalove-20)
+### [31\. Healthcare Shirt](https://www.amazon.com/dp/B07QC4BLTB?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07QC4BLTB?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07QC4BLTB?ie=UTF8&tag=giftable02-20)
 
 Smoking is a habit that can be tough to break, but it doesn't mean we can't remind our loved ones to take care of their health in a subtle and stylish way.
 
@@ -589,11 +589,11 @@ Introducing the "Healthcare" shirt, made from 100% cotton, ideal for smokers who
 
 ✔️ Serve as a reminder for the wearer to prioritize their health
 
-[Buy from Amazon](https://www.amazon.com/dp/B07QC4BLTB?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07QC4BLTB?ie=UTF8&tag=giftable02-20)
 
-### [32\. Smoke Eater](https://www.amazon.com/dp/B071H8G75M/?ie=UTF8&tag=avadalove-20)
+### [32\. Smoke Eater](https://www.amazon.com/dp/B071H8G75M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B071H8G75M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B071H8G75M/?ie=UTF8&tag=giftable02-20)
 
 Don't let the stench of smoke ruin your loved one's evening routine. Give them the gift of a smoke-free environment with this powerful smoke eliminator.
 
@@ -607,11 +607,11 @@ This smoke eater spray is specially designed to eliminate the odor of smoke from
 
 ✔️ Convenient and easy to use
 
-[Buy from Amazon](https://www.amazon.com/dp/B071H8G75M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B071H8G75M/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Smell Proof Bag](https://www.amazon.com/dp/B07YZ1XXNL?ie=UTF8&tag=avadalove-20)
+### [33\. Smell Proof Bag](https://www.amazon.com/dp/B07YZ1XXNL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07YZ1XXNL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07YZ1XXNL?ie=UTF8&tag=giftable02-20)
 
 With this gift for people who smoke, your loved one will be able to enjoy their smoking ritual without worrying about any unwanted odors.
 
@@ -625,7 +625,7 @@ Made from high-quality PU leather, the bag is lined with premium activated carbo
 
 ✔️ Moisture and tear-resistant to protect your goods
 
-[Buy from Amazon](https://www.amazon.com/dp/B07YZ1XXNL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07YZ1XXNL?ie=UTF8&tag=giftable02-20)
 
 [
 

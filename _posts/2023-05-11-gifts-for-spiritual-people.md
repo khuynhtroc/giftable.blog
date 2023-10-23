@@ -75,9 +75,9 @@ The dreamcatcher light features a stunning design that resembles a dreamcatcher,
 
 [Buy from Loveable](https://loveable.ai/collections/best-sellers/products/dreamcatcher-3d-night-light-7-color-change-decor-lamp-custom-dream-catcher-night-lights-best-gift-for-your-kids-mom-211ihpnpll520?variant=44114384126184?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-spiritual-people-to-help-expand-their-minds)
 
-### [4\. Incense Holder And Burner Waterfall](https://www.amazon.com/SPACEKEEPER-Backflow-Waterfall-Aromatherapy-Ornament/dp/B07QRGQ7Z8/?th=1?ie=UTF8&tag=avadalove-20)
+### [4\. Incense Holder And Burner Waterfall](https://www.amazon.com/SPACEKEEPER-Backflow-Waterfall-Aromatherapy-Ornament/dp/B07QRGQ7Z8/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SPACEKEEPER-Backflow-Waterfall-Aromatherapy-Ornament/dp/B07QRGQ7Z8/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SPACEKEEPER-Backflow-Waterfall-Aromatherapy-Ornament/dp/B07QRGQ7Z8/?th=1?ie=UTF8&tag=giftable02-20)
 
 The incense holder and burner waterfall is the ideal spiritual gift for anyone seeking a soothing and aromatic experience. This unique incense holder creates a mesmerizing waterfall effect that adds a touch of tranquility to any space.
 
@@ -93,11 +93,11 @@ As the incense cone burns, the smoke cascades down the burner, creating a waterf
 
 ✔️ Adds a touch of aesthetics to any space
 
-[Buy from Amazon](https://www.amazon.com/SPACEKEEPER-Backflow-Waterfall-Aromatherapy-Ornament/dp/B07QRGQ7Z8/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SPACEKEEPER-Backflow-Waterfall-Aromatherapy-Ornament/dp/B07QRGQ7Z8/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [5\. Moon Phase Wall](https://www.amazon.com/Handmade-Celestial-Decoration-Astrology-Aesthetic/dp/B07T6D2QW5?ie=UTF8&tag=avadalove-20)
+### [5\. Moon Phase Wall](https://www.amazon.com/Handmade-Celestial-Decoration-Astrology-Aesthetic/dp/B07T6D2QW5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Handmade-Celestial-Decoration-Astrology-Aesthetic/dp/B07T6D2QW5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Handmade-Celestial-Decoration-Astrology-Aesthetic/dp/B07T6D2QW5?ie=UTF8&tag=giftable02-20)
 
 This **[moon](/moon-gifts/)** phase wall makes a perfect spiritual decor in your lover’s room. It will be the last puzzle to complete the meditated space on his/her own.
 
@@ -111,7 +111,7 @@ Its modern boho style is a beautiful accent piece to add above a bed headboard, 
 
 ✔️ Spiritual and thought-provoking
 
-[Buy from Amazon](https://www.amazon.com/Handmade-Celestial-Decoration-Astrology-Aesthetic/dp/B07T6D2QW5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Handmade-Celestial-Decoration-Astrology-Aesthetic/dp/B07T6D2QW5?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Evil Eye Wall Hanging](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1471452297/evil-eye-wall-hanging-house-protection)
 
@@ -133,9 +133,9 @@ Hang it near the entrance of your home or any space where you wish to create a p
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1471452297/evil-eye-wall-hanging-house-protection)
 
-### [7\. Rustic Wooden Cat Moon Shelves](https://www.amazon.com/Crystal-Floating-Gemstones-Meditation-Spiritual/dp/B0BHY25NVR/?ie=UTF8&tag=avadalove-20)
+### [7\. Rustic Wooden Cat Moon Shelves](https://www.amazon.com/Crystal-Floating-Gemstones-Meditation-Spiritual/dp/B0BHY25NVR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crystal-Floating-Gemstones-Meditation-Spiritual/dp/B0BHY25NVR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crystal-Floating-Gemstones-Meditation-Spiritual/dp/B0BHY25NVR/?ie=UTF8&tag=giftable02-20)
 
 The rustic wooden cat moon shelves are a unique and charming spiritual gift that combines functionality with artistic design.
 
@@ -151,11 +151,11 @@ The cat moon design adds a mystical and enchanting element to the shelves, makin
 
 ✔️ Enhances interior decoration
 
-[Buy from Amazon](https://www.amazon.com/Crystal-Floating-Gemstones-Meditation-Spiritual/dp/B0BHY25NVR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crystal-Floating-Gemstones-Meditation-Spiritual/dp/B0BHY25NVR/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Oracle Cards](https://www.amazon.com/AFFIRMATION-CARDS-WOMEN-Manifestation-Mindfullness/dp/B08H2D4NS3/?ie=UTF8&tag=avadalove-20)
+### [8\. Oracle Cards](https://www.amazon.com/AFFIRMATION-CARDS-WOMEN-Manifestation-Mindfullness/dp/B08H2D4NS3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AFFIRMATION-CARDS-WOMEN-Manifestation-Mindfullness/dp/B08H2D4NS3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AFFIRMATION-CARDS-WOMEN-Manifestation-Mindfullness/dp/B08H2D4NS3/?ie=UTF8&tag=giftable02-20)
 
 With these 36 daily affirmation cards, this poetically inspired self-care oracle card deck will inspire you to live your days to their fullest potential. Give this deck as a special gift for your spiritual friend or family member.
 
@@ -169,11 +169,11 @@ These cards go deeper than her typical affirmation deck. Each card contains insp
 
 ✔️ Amplifies intuition and self-discovery
 
-[Buy from Amazon](https://www.amazon.com/AFFIRMATION-CARDS-WOMEN-Manifestation-Mindfullness/dp/B08H2D4NS3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AFFIRMATION-CARDS-WOMEN-Manifestation-Mindfullness/dp/B08H2D4NS3/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Motivational Cards With Thought-Provoking Questions](https://www.amazon.com/Affirmations-Motivational-Thought-Provoking-Mindfulness-Inspirational/dp/B09DTBWVJP/?ie=UTF8&tag=avadalove-20)
+### [9\. Motivational Cards With Thought-Provoking Questions](https://www.amazon.com/Affirmations-Motivational-Thought-Provoking-Mindfulness-Inspirational/dp/B09DTBWVJP/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Affirmations-Motivational-Thought-Provoking-Mindfulness-Inspirational/dp/B09DTBWVJP/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Affirmations-Motivational-Thought-Provoking-Mindfulness-Inspirational/dp/B09DTBWVJP/?ie=UTF8&tag=giftable02-20)
 
 These motivational cards With thought-provoking questions are the perfect spiritual gift to inspire and uplift anyone. Each card presents a thought-provoking question that encourages self-reflection and personal growth.
 
@@ -189,11 +189,11 @@ With daily inspiration and guidance, these cards help individuals gain insights 
 
 ✔️ Encourages self-reflection and growth
 
-[Buy from Amazon](https://www.amazon.com/Affirmations-Motivational-Thought-Provoking-Mindfulness-Inspirational/dp/B09DTBWVJP/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Affirmations-Motivational-Thought-Provoking-Mindfulness-Inspirational/dp/B09DTBWVJP/?ie=UTF8&tag=giftable02-20)
 
-### [10\. Bible Verse Blanket](https://www.amazon.com/QETXVI-Inspirational-Thoughts-Religious-Lightweight/dp/B09C87ZHD7/?ie=UTF8&tag=avadalove-20)
+### [10\. Bible Verse Blanket](https://www.amazon.com/QETXVI-Inspirational-Thoughts-Religious-Lightweight/dp/B09C87ZHD7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/QETXVI-Inspirational-Thoughts-Religious-Lightweight/dp/B09C87ZHD7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/QETXVI-Inspirational-Thoughts-Religious-Lightweight/dp/B09C87ZHD7/?ie=UTF8&tag=giftable02-20)
 
 Make a meaningful and spiritual gift for your beloved one with this Bible verse blanket.
 
@@ -207,7 +207,7 @@ With a message printed on the blanket, it stands for your best wishes for your l
 
 ✔️ Versatile for Indoor and outdoor use
 
-[Buy from Amazon](https://www.amazon.com/QETXVI-Inspirational-Thoughts-Religious-Lightweight/dp/B09C87ZHD7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/QETXVI-Inspirational-Thoughts-Religious-Lightweight/dp/B09C87ZHD7/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Tree of Life Mandala Coffee Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1541032729/tree-of-life-mandala-15oz-two-tone)
 
@@ -265,9 +265,9 @@ Handmade from 100% beeswax, this lovely relaxation set includes 10 non drip hone
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/936025698/mini-mindful-moments-candle-set)
 
-### [14\. Top Plaza Bead Chakra Bracelet](https://www.amazon.com/Top-Plaza-Bracelet-Bracelets-Meditation/dp/B07PDPKD48/?ie=UTF8&tag=avadalove-20)
+### [14\. Top Plaza Bead Chakra Bracelet](https://www.amazon.com/Top-Plaza-Bracelet-Bracelets-Meditation/dp/B07PDPKD48/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Top-Plaza-Bracelet-Bracelets-Meditation/dp/B07PDPKD48/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Top-Plaza-Bracelet-Bracelets-Meditation/dp/B07PDPKD48/?ie=UTF8&tag=giftable02-20)
 
 The top plaza bead chakra bracelet is an exquisite and meaningful spiritual gift that promotes balance and harmony.
 
@@ -283,11 +283,11 @@ Made with natural healing stones, this bracelet represents the seven chakras, re
 
 ✔️ Adjustable design fits most wrists
 
-[Buy from Amazon](https://www.amazon.com/Top-Plaza-Bracelet-Bracelets-Meditation/dp/B07PDPKD48/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Top-Plaza-Bracelet-Bracelets-Meditation/dp/B07PDPKD48/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Blessing Salt](https://www.amazon.com/BLESSING-Ceremony-Anointing-Housewarming-Sacrament/dp/B01EI75B86/?ie=UTF8&tag=avadalove-20)
+### [15\. Blessing Salt](https://www.amazon.com/BLESSING-Ceremony-Anointing-Housewarming-Sacrament/dp/B01EI75B86/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BLESSING-Ceremony-Anointing-Housewarming-Sacrament/dp/B01EI75B86/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BLESSING-Ceremony-Anointing-Housewarming-Sacrament/dp/B01EI75B86/?ie=UTF8&tag=giftable02-20)
 
 This blessing salt is a great meditation process that stimulates clarity of thought and attracts positive energy instead of the negative one. A perfect gift for a spiritual person for sure!
 
@@ -301,11 +301,11 @@ Blessed salt has been used throughout the history of Christianity as a form of d
 
 ✔️ Cleansing and purifying properties
 
-[Buy from Amazon](https://www.amazon.com/BLESSING-Ceremony-Anointing-Housewarming-Sacrament/dp/B01EI75B86/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BLESSING-Ceremony-Anointing-Housewarming-Sacrament/dp/B01EI75B86/?ie=UTF8&tag=giftable02-20)
 
-### [16\. Relaxation Tabletop Fountain](https://www.amazon.com/Relaxation-Illuminated-Waterfall-EnviraScape-HoMedics/dp/B000QTUJXS/?ie=UTF8&tag=avadalove-20)
+### [16\. Relaxation Tabletop Fountain](https://www.amazon.com/Relaxation-Illuminated-Waterfall-EnviraScape-HoMedics/dp/B000QTUJXS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Relaxation-Illuminated-Waterfall-EnviraScape-HoMedics/dp/B000QTUJXS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Relaxation-Illuminated-Waterfall-EnviraScape-HoMedics/dp/B000QTUJXS/?ie=UTF8&tag=giftable02-20)
 
 A gift for a spiritual person that can bring a calm and peaceful feeling to them? Look no further, just get this indoor tabletop fountain. Your lover will be thrilled with this special gift.
 
@@ -319,11 +319,11 @@ A gift for a spiritual person that can bring a calm and peaceful feeling to them
 
 ✔️ Spiritual symbol or design
 
-[Buy from Amazon](https://www.amazon.com/Relaxation-Illuminated-Waterfall-EnviraScape-HoMedics/dp/B000QTUJXS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Relaxation-Illuminated-Waterfall-EnviraScape-HoMedics/dp/B000QTUJXS/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Aromatherapy Candles](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?ie=UTF8&tag=avadalove-20)
+### [17\. Aromatherapy Candles](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?ie=UTF8&tag=giftable02-20)
 
 This set of scented candles is a dreamy gift for a spiritual person for sure. So hurry to get it for your spiritual lover.
 
@@ -337,11 +337,11 @@ Scented candles represent light and warmth. Aromatherapy candles with essential 
 
 ✔️ Enhances relaxation and meditation
 
-[Buy from Amazon](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Fossil Stone Necklace](https://www.amazon.com/Ammonite-Pendant-Necklace-Healing-Crystal/dp/B08622YPTL?ie=UTF8&tag=avadalove-20)
+### [18\. Fossil Stone Necklace](https://www.amazon.com/Ammonite-Pendant-Necklace-Healing-Crystal/dp/B08622YPTL?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ammonite-Pendant-Necklace-Healing-Crystal/dp/B08622YPTL?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ammonite-Pendant-Necklace-Healing-Crystal/dp/B08622YPTL?ie=UTF8&tag=giftable02-20)
 
 Come with this fossil chakra gemstone necklace to give your beloved one as a spiritual gift. That would be one of their favorite jewelry so far.
 
@@ -355,7 +355,7 @@ Made of the seven kinds of chip stones, this necklace is also designed with natu
 
 ✔️ Deepens spiritual connections
 
-[Buy from Amazon](https://www.amazon.com/Ammonite-Pendant-Necklace-Healing-Crystal/dp/B08622YPTL?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ammonite-Pendant-Necklace-Healing-Crystal/dp/B08622YPTL?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Heaven Yin Yang Wooden Jigsaw Puzzle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1430149322/heaven-yin-yang-wooden-jigsaw-puzzle) 
 
@@ -399,19 +399,19 @@ ade with high-quality crystals, it reflects and refracts sunlight, creating a da
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1023496157/sun-catcher-crystal-suncatcher-crystal)
 
-### [21\. Phoenix Crystal Bottle](https://www.amazon.com/Phoenix-Crystal-Amethyst-Eco-friendly-BPA-free/dp/B07RXSG2WL/?ie=UTF8&tag=avadalove-20)
+### [21\. Phoenix Crystal Bottle](https://www.amazon.com/Phoenix-Crystal-Amethyst-Eco-friendly-BPA-free/dp/B07RXSG2WL/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Phoenix-Crystal-Amethyst-Eco-friendly-BPA-free/dp/B07RXSG2WL/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Phoenix-Crystal-Amethyst-Eco-friendly-BPA-free/dp/B07RXSG2WL/?ie=UTF8&tag=giftable02-20)
 
 Make a perfect gift for a spiritual person with this phoenix crystal bottled water. Your beloved one will enjoy drinking their favorite beverage with your gift a lot.
 
 Infuse his/her life with sacred crystal water! Personalize your gemstone elixir by using their own favorite crystals or use the gemstones that come with the bottle. The gem-chamber is completely separated from the water. The bottle comes in a stunning package, beautifully wrapped.
 
-[Buy from Amazon](https://www.amazon.com/Phoenix-Crystal-Amethyst-Eco-friendly-BPA-free/dp/B07RXSG2WL/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Phoenix-Crystal-Amethyst-Eco-friendly-BPA-free/dp/B07RXSG2WL/?ie=UTF8&tag=giftable02-20)
 
-### [22\. Women Blessing Cards](https://www.amazon.com/Promises-God-Women-Cards-Blessings/dp/B00T5DYXHE/?ie=UTF8&tag=avadalove-20)
+### [22\. Women Blessing Cards](https://www.amazon.com/Promises-God-Women-Cards-Blessings/dp/B00T5DYXHE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Promises-God-Women-Cards-Blessings/dp/B00T5DYXHE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Promises-God-Women-Cards-Blessings/dp/B00T5DYXHE/?ie=UTF8&tag=giftable02-20)
 
 Start her day on a positive note when your spiritual one reads a card from the Promises From God For Women box of blessings, then spend the day meditating on these truths from Scripture, and if the opportunity presents itself, share a card with a friend or a stranger.
 
@@ -425,11 +425,11 @@ The light teal background of the box is decorated with cute pink flowers and gol
 
 ✔️ Nurtures a sense of gratitude
 
-[Buy from Amazon](https://www.amazon.com/Promises-God-Women-Cards-Blessings/dp/B00T5DYXHE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Promises-God-Women-Cards-Blessings/dp/B00T5DYXHE/?ie=UTF8&tag=giftable02-20)
 
-### [23\. Chakra Stones Decor](https://www.amazon.com/Healing-Crystals-Hanging-Ornament-Meditation/dp/B08GLL3XK9/?ie=UTF8&tag=avadalove-20)
+### [23\. Chakra Stones Decor](https://www.amazon.com/Healing-Crystals-Hanging-Ornament-Meditation/dp/B08GLL3XK9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Healing-Crystals-Hanging-Ornament-Meditation/dp/B08GLL3XK9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Healing-Crystals-Hanging-Ornament-Meditation/dp/B08GLL3XK9/?ie=UTF8&tag=giftable02-20)
 
 Bring a positive and bright energy into your lover’s life with this chakra stone decor. It is your best wishes to send to your beloved one instead of saying it out loud.
 
@@ -443,11 +443,11 @@ A simple tree of life decor can keep them inspired and encouraged, help them fin
 
 ✔️ Stones are natural crystals
 
-[Buy from Amazon](https://www.amazon.com/Healing-Crystals-Hanging-Ornament-Meditation/dp/B08GLL3XK9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Healing-Crystals-Hanging-Ornament-Meditation/dp/B08GLL3XK9/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Healing Crystal Tree Buddha Statue](https://www.amazon.com/Healing-Crystal-Positive-Meditation-Amethyst/dp/B09YQ6WXVB?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Healing Crystal Tree Buddha Statue](https://www.amazon.com/Healing-Crystal-Positive-Meditation-Amethyst/dp/B09YQ6WXVB?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Healing-Crystal-Positive-Meditation-Amethyst/dp/B09YQ6WXVB?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Healing-Crystal-Positive-Meditation-Amethyst/dp/B09YQ6WXVB?th=1?ie=UTF8&tag=giftable02-20)
 
 The healing crystal tree buddha statue is the perfect spiritual gift to bring peace, positive energy, and healing vibes to any space.
 
@@ -463,11 +463,11 @@ The healing crystals, such as amethyst and rose quartz, are known for their heal
 
 ✔️ Brings a sense of serenity and tranquility
 
-[Buy from Amazon](https://www.amazon.com/Healing-Crystal-Positive-Meditation-Amethyst/dp/B09YQ6WXVB?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Healing-Crystal-Positive-Meditation-Amethyst/dp/B09YQ6WXVB?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Guardian Angel Pendant](https://www.amazon.com/Sterling-Guadalupe-Pressed-Pendant-Necklace/dp/B00OCD04KW/?ie=UTF8&tag=avadalove-20)
+### [25\. Guardian Angel Pendant](https://www.amazon.com/Sterling-Guadalupe-Pressed-Pendant-Necklace/dp/B00OCD04KW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sterling-Guadalupe-Pressed-Pendant-Necklace/dp/B00OCD04KW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sterling-Guadalupe-Pressed-Pendant-Necklace/dp/B00OCD04KW/?ie=UTF8&tag=giftable02-20)
 
 The natural properties of real flowers provide a one-of-a-kind look to this pendant. Such a special gift for your spiritual lover.
 
@@ -481,11 +481,11 @@ This unique oval-shape pendant features the Blessed Mother - Mary, and real drie
 
 ✔️ Spiritual guidance and protection
 
-[Buy from Amazon](https://www.amazon.com/Sterling-Guadalupe-Pressed-Pendant-Necklace/dp/B00OCD04KW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sterling-Guadalupe-Pressed-Pendant-Necklace/dp/B00OCD04KW/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Yoga Pose Statue Home Decoration](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX?ie=UTF8&tag=avadalove-20)
+### [26\. Yoga Pose Statue Home Decoration](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX?ie=UTF8&tag=giftable02-20)
 
 The yoga pose statue home decoration is a wonderful spiritual gift that brings tranquility and harmony to any space. With its elegant design and soothing colors, this statue serves as a reminder to find peace within oneself.
 
@@ -501,11 +501,11 @@ Crafted with attention to detail, it beautifully captures the essence of yoga an
 
 ✔️ Inspires inner balance and calmness
 
-[Buy from Amazon](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Leekung-Meditation-Decoration-Figurine-Spiritual/dp/B08S38SFWX?ie=UTF8&tag=giftable02-20)
 
-### [27\. Seven Chakra Tree](https://www.amazon.com/Seven-Chakra-Tree-Life-Spiritual/dp/B09GRNY7C9?ie=UTF8&tag=avadalove-20)
+### [27\. Seven Chakra Tree](https://www.amazon.com/Seven-Chakra-Tree-Life-Spiritual/dp/B09GRNY7C9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Seven-Chakra-Tree-Life-Spiritual/dp/B09GRNY7C9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Seven-Chakra-Tree-Life-Spiritual/dp/B09GRNY7C9?ie=UTF8&tag=giftable02-20)
 
 Wish your soulmate the best luck and a happy life with this seven chakra tree decor. It makes a perfect gift for a spiritual person like her/him.
 
@@ -519,11 +519,11 @@ Something simply beautiful like a seven-chakra gemstone tree can create a space 
 
 ✔️ Spiritual enlightenment handbook
 
-[Buy from Amazon](https://www.amazon.com/Seven-Chakra-Tree-Life-Spiritual/dp/B09GRNY7C9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Seven-Chakra-Tree-Life-Spiritual/dp/B09GRNY7C9?ie=UTF8&tag=giftable02-20)
 
-### [28\. Mindful Message Cards](https://www.amazon.com/Mindful-Messages-Positive-Affirmations-Meditation/dp/B07YYYFJ1D?ie=UTF8&tag=avadalove-20)
+### [28\. Mindful Message Cards](https://www.amazon.com/Mindful-Messages-Positive-Affirmations-Meditation/dp/B07YYYFJ1D?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mindful-Messages-Positive-Affirmations-Meditation/dp/B07YYYFJ1D?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mindful-Messages-Positive-Affirmations-Meditation/dp/B07YYYFJ1D?ie=UTF8&tag=giftable02-20)
 
 Guide your spiritual person’s life with these mindful message cards. She will be very grateful and appreciative when receiving this special gift from you.
 
@@ -537,11 +537,11 @@ All can benefit from the practice of mindfulness gift one to your loved one! Wit
 
 ✔️ Perfect present for open-minded spiritual seekers
 
-[Buy from Amazon](https://www.amazon.com/Mindful-Messages-Positive-Affirmations-Meditation/dp/B07YYYFJ1D?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mindful-Messages-Positive-Affirmations-Meditation/dp/B07YYYFJ1D?ie=UTF8&tag=giftable02-20)
 
-### [29\. Tibetan Bowl Set](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Mindfulness/dp/B07P93VG2Z?ie=UTF8&tag=avadalove-20)
+### [29\. Tibetan Bowl Set](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Mindfulness/dp/B07P93VG2Z?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Mindfulness/dp/B07P93VG2Z?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Mindfulness/dp/B07P93VG2Z?ie=UTF8&tag=giftable02-20)
 
 Give your lover a peaceful and mindful time while doing a meditation with this Tibetan singing bowl set.
 
@@ -555,11 +555,11 @@ This is a full set of meditation bowl, mandala necklace, wooden striker and hand
 
 ✔️ All-inclusive tibetan bowl set
 
-[Buy from Amazon](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Mindfulness/dp/B07P93VG2Z?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tibetan-Singing-Bowl-Set-Mindfulness/dp/B07P93VG2Z?ie=UTF8&tag=giftable02-20)
 
-### [30\. Prayer Journal](https://www.amazon.com/Prayer-Journal-Women-Christian-Reflection/dp/1948209861/?ie=UTF8&tag=avadalove-20)
+### [30\. Prayer Journal](https://www.amazon.com/Prayer-Journal-Women-Christian-Reflection/dp/1948209861/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Prayer-Journal-Women-Christian-Reflection/dp/1948209861/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Prayer-Journal-Women-Christian-Reflection/dp/1948209861/?ie=UTF8&tag=giftable02-20)
 
 Fulfilling every peaceful moment with every happy memory with this prayer journal. Let your beloved one write down what they are grateful for today as a meditation for themselves.
 
@@ -573,11 +573,11 @@ A thriving personal relationship with God begins with prayer, reflection, and gr
 
 ✔️ Supports fasting & prayer practice
 
-[Buy from Amazon](https://www.amazon.com/Prayer-Journal-Women-Christian-Reflection/dp/1948209861/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Prayer-Journal-Women-Christian-Reflection/dp/1948209861/?ie=UTF8&tag=giftable02-20)
 
-### [31\. White Sage Smudging Kit](https://www.amazon.com/JL-Local-Instructions-Blessings-Beginners/dp/B07SNYRL1G/?ie=UTF8&tag=avadalove-20)
+### [31\. White Sage Smudging Kit](https://www.amazon.com/JL-Local-Instructions-Blessings-Beginners/dp/B07SNYRL1G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JL-Local-Instructions-Blessings-Beginners/dp/B07SNYRL1G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JL-Local-Instructions-Blessings-Beginners/dp/B07SNYRL1G/?ie=UTF8&tag=giftable02-20)
 
 The white sage smudging kit is the perfect spiritual gift for anyone seeking positive energy and purification. This kit includes everything you need to start your spiritual cleansing journey.
 
@@ -593,11 +593,11 @@ With its high-quality white sage bundle, you can cleanse your space and remove n
 
 ✔️ Allows for a gentle direction of the smoke
 
-[Buy from Amazon](https://www.amazon.com/JL-Local-Instructions-Blessings-Beginners/dp/B07SNYRL1G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JL-Local-Instructions-Blessings-Beginners/dp/B07SNYRL1G/?ie=UTF8&tag=giftable02-20)
 
-### [32\. LifeGuide Bible Studies](https://www.amazon.com/Spiritual-Gifts-Lifeguide-Bible-Studies/dp/0830830626/?ie=UTF8&tag=avadalove-20)
+### [32\. LifeGuide Bible Studies](https://www.amazon.com/Spiritual-Gifts-Lifeguide-Bible-Studies/dp/0830830626/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Spiritual-Gifts-Lifeguide-Bible-Studies/dp/0830830626/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Spiritual-Gifts-Lifeguide-Bible-Studies/dp/0830830626/?ie=UTF8&tag=giftable02-20)
 
 LifeGuide bible studies are the ideal spiritual present for those seeking a deeper understanding of their faith. These studies provide insightful lessons and guidance to explore spiritual topics and cultivate personal growth.
 
@@ -613,7 +613,7 @@ Each study delves into specific spiritual gifts and their relevance, helping ind
 
 ✔️ Deepens faith and understanding
 
-[Buy from Amazon](https://www.amazon.com/Spiritual-Gifts-Lifeguide-Bible-Studies/dp/0830830626/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Spiritual-Gifts-Lifeguide-Bible-Studies/dp/0830830626/?ie=UTF8&tag=giftable02-20)
 
 ### [33\. Powerful Friendship Set](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1220720875/a-wise-woman-once-said-fck-this-bullsht)
 

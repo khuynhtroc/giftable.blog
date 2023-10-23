@@ -86,9 +86,9 @@ With this versatile bamboo cutting board, you can spruce up your kitchen while a
 
 [Buy from Loveable](https://loveable.ai/products/best-custom-skull-wooden-cutting-board-for-anniversary-birthday-gift-decor-best-gift-for-couple-for-him-for-her-211ihnlnwb879?variant=44140351619304?utm_source=avada&ranking=&utm_source=&utm_campaign=best-goth-valentines-day-gifts-to-express-the-dark-hearts-inside-you)
 
-### [5\. Nightmare Men’s Boxer Shorts Underwear](https://www.amazon.com/Nightmare-Before-Christmas-Underwear-X-Large/dp/B07JVC2L42/?ie=UTF8&tag=avadalove-20)
+### [5\. Nightmare Men’s Boxer Shorts Underwear](https://www.amazon.com/Nightmare-Before-Christmas-Underwear-X-Large/dp/B07JVC2L42/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nightmare-Before-Christmas-Underwear-X-Large/dp/B07JVC2L42/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nightmare-Before-Christmas-Underwear-X-Large/dp/B07JVC2L42/?ie=UTF8&tag=giftable02-20)
 
 These special Nightmare boxer shorts from Yankee Toy Box are the perfect way to reduce stress after a long day at work or school. These boxers come in men's sizes and have fantastic Nightmare Before Christmas cartoon sublimated images.
 
@@ -100,7 +100,7 @@ These special Nightmare boxer shorts from Yankee Toy Box are the perfect way to 
 
 ✔️ Have a funny design
 
-[Buy from Amazon](https://www.amazon.com/Nightmare-Before-Christmas-Underwear-X-Large/dp/B07JVC2L42/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nightmare-Before-Christmas-Underwear-X-Large/dp/B07JVC2L42/?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Goth Horror Valentine’s Day Surprise Mystery Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/942274231/goth-horror-valentines-day-surprise)
 
@@ -166,9 +166,9 @@ A box frame with a hanging clasp on the rear. A pendant with a string and a smal
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/941764536/together-forever-skulls-dark-valentine)
 
-### [10\. Beautiful Gothic Skeleton Lovers Embracing Decor Accent](https://www.amazon.com/DWK-Beautiful-Skeleton-Embracing-Valentines/dp/B0831TYFC4/?ie=UTF8&tag=avadalove-20)
+### [10\. Beautiful Gothic Skeleton Lovers Embracing Decor Accent](https://www.amazon.com/DWK-Beautiful-Skeleton-Embracing-Valentines/dp/B0831TYFC4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DWK-Beautiful-Skeleton-Embracing-Valentines/dp/B0831TYFC4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DWK-Beautiful-Skeleton-Embracing-Valentines/dp/B0831TYFC4/?ie=UTF8&tag=giftable02-20)
 
 A wreath of gothic black roses surrounds two skeleton lovers as they hug interminably in this exquisitely crafted memory box. This one-of-a-kind item, which represents true love and a passion that never dies, is completed by the red interior.
 
@@ -180,7 +180,7 @@ A wreath of gothic black roses surrounds two skeleton lovers as they hug intermi
 
 ✔️ Made to last from durable
 
-[Buy from Amazon](https://www.amazon.com/DWK-Beautiful-Skeleton-Embracing-Valentines/dp/B0831TYFC4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DWK-Beautiful-Skeleton-Embracing-Valentines/dp/B0831TYFC4/?ie=UTF8&tag=giftable02-20)
 
 ### [11\. Spooky Valentine Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1157006243/spooky-valentine-candle-halloween-candle)
 
@@ -374,9 +374,9 @@ A wooden skull and a Raven Skull with Bat Wings Charm have been added to a heart
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=http://etsy.com/listing/754418348/heart-shaped-box-black-goth-valentine)
 
-### [23\. World of Wonders Victorian Gothic Collection](https://www.amazon.com/World-Wonders-Collection-Sculptures-Gifts/dp/B08GCZ56HM/?ie=UTF8&tag=avadalove-20)
+### [23\. World of Wonders Victorian Gothic Collection](https://www.amazon.com/World-Wonders-Collection-Sculptures-Gifts/dp/B08GCZ56HM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/World-Wonders-Collection-Sculptures-Gifts/dp/B08GCZ56HM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/World-Wonders-Collection-Sculptures-Gifts/dp/B08GCZ56HM/?ie=UTF8&tag=giftable02-20)
 
 The Count and his Lady Morticia are imprisoned together for all time, frozen for all time to stare into one other's entrancing eyes. Designed internally and painted by hand by the World of Wonders' talented designers. Poly-resin that will last the test of time is used to delicately create each component.
 
@@ -388,7 +388,7 @@ The Count and his Lady Morticia are imprisoned together for all time, frozen for
 
 ✔️ Have a romantic vibe
 
-[Buy from Amazon](https://www.amazon.com/World-Wonders-Collection-Sculptures-Gifts/dp/B08GCZ56HM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/World-Wonders-Collection-Sculptures-Gifts/dp/B08GCZ56HM/?ie=UTF8&tag=giftable02-20)
 
 ### [24\. Black Enamel Goth Heart Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/633740104/heart-earrings-black-enamel-goth-heart)
 

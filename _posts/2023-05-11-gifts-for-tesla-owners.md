@@ -535,9 +535,9 @@ This phone charger features a compact and portable design, making it ideal for o
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1099392704/arrives-before-fathersday-tesla)
 
-### [27\. Tesla Funny Socks](https://www.amazon.com/Funny-Socks-socks-Cybertruck-Cyborgs/dp/B088P4KWPJ?ie=UTF8&tag=avadalove-20)
+### [27\. Tesla Funny Socks](https://www.amazon.com/Funny-Socks-socks-Cybertruck-Cyborgs/dp/B088P4KWPJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-Socks-socks-Cybertruck-Cyborgs/dp/B088P4KWPJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-Socks-socks-Cybertruck-Cyborgs/dp/B088P4KWPJ?ie=UTF8&tag=giftable02-20)
 
 Looking for Tesla merchandise or Tesla clothing? Have yourself a pair of cybertruck socks right away!
 
@@ -553,11 +553,11 @@ These comical socks are a perfect present for Tesla owners as well as stocking s
 
 ✔️ Thoughtful and fun gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Funny-Socks-socks-Cybertruck-Cyborgs/dp/B088P4KWPJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-Socks-socks-Cybertruck-Cyborgs/dp/B088P4KWPJ?ie=UTF8&tag=giftable02-20)
 
-### [28\. Periodic Table Tesla Shirt](https://www.amazon.com/Toyo-Tees-Periodic-Table-Tesla/dp/B07PLVLJ59?ie=UTF8&tag=avadalove-20)
+### [28\. Periodic Table Tesla Shirt](https://www.amazon.com/Toyo-Tees-Periodic-Table-Tesla/dp/B07PLVLJ59?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Toyo-Tees-Periodic-Table-Tesla/dp/B07PLVLJ59?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Toyo-Tees-Periodic-Table-Tesla/dp/B07PLVLJ59?ie=UTF8&tag=giftable02-20)
 
 If your friend or a close relative is a proud owner of a Tesla, then it is fitting that they are gifted this Periodic Table Tesla Shirt from you to wear.
 
@@ -573,11 +573,11 @@ The listing currently has up to 5 colors of T-shirt for you to choose from, with
 
 ✔️ Thoughtful and stylish gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Toyo-Tees-Periodic-Table-Tesla/dp/B07PLVLJ59?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Toyo-Tees-Periodic-Table-Tesla/dp/B07PLVLJ59?ie=UTF8&tag=giftable02-20)
 
-### [29\. Colors Changing Luminescent Cup Pad](https://www.amazon.com/Holder-Changing-Charging-Luminescent-Roadster/dp/B07WTL2Z36/?ie=UTF8&tag=avadalove-20)
+### [29\. Colors Changing Luminescent Cup Pad](https://www.amazon.com/Holder-Changing-Charging-Luminescent-Roadster/dp/B07WTL2Z36/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Holder-Changing-Charging-Luminescent-Roadster/dp/B07WTL2Z36/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Holder-Changing-Charging-Luminescent-Roadster/dp/B07WTL2Z36/?ie=UTF8&tag=giftable02-20)
 
 With this innovative vehicle device, you may create a stylish and distinctive atmosphere in the comfort of your car or at home.
 
@@ -593,11 +593,11 @@ This led vehicle interior lights will spruce up your ride. A must-try adorable a
 
 ✔️ Thoughtful and fun gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Holder-Changing-Charging-Luminescent-Roadster/dp/B07WTL2Z36/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Holder-Changing-Charging-Luminescent-Roadster/dp/B07WTL2Z36/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Accessories Water Cup Mat](https://www.amazon.com/Farmogo-Accessories-Interior-Decoration-Colorful/dp/B08H4YNXLN?ie=UTF8&tag=avadalove-20)
+### [30\. Accessories Water Cup Mat](https://www.amazon.com/Farmogo-Accessories-Interior-Decoration-Colorful/dp/B08H4YNXLN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Farmogo-Accessories-Interior-Decoration-Colorful/dp/B08H4YNXLN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Farmogo-Accessories-Interior-Decoration-Colorful/dp/B08H4YNXLN?ie=UTF8&tag=giftable02-20)
 
 Get one of these Accessories Water Cup Mat for your friend's car to liven it up at night with these fantastic little feature light sources!
 
@@ -613,11 +613,11 @@ When it detects vibration, the cup mat glows with a light that changes from 7 di
 
 ✔️ Thoughtful and practical gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Farmogo-Accessories-Interior-Decoration-Colorful/dp/B08H4YNXLN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Farmogo-Accessories-Interior-Decoration-Colorful/dp/B08H4YNXLN?ie=UTF8&tag=giftable02-20)
 
-### [31\. Black Frosted Travel Mug](https://www.amazon.com/JDclubs-Tumblers-Insulated-Stainless-Business/dp/B07ZTP8J4V?ie=UTF8&tag=avadalove-20)
+### [31\. Black Frosted Travel Mug](https://www.amazon.com/JDclubs-Tumblers-Insulated-Stainless-Business/dp/B07ZTP8J4V?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JDclubs-Tumblers-Insulated-Stainless-Business/dp/B07ZTP8J4V?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JDclubs-Tumblers-Insulated-Stainless-Business/dp/B07ZTP8J4V?ie=UTF8&tag=giftable02-20)
 
 Is there anything that screams “I own a Tesla” more than a travel mug that has a Tesla logo on it.
 
@@ -633,11 +633,11 @@ This water bottle for hot or cold drinks in a sleek slender shape is designed fo
 
 ✔️ Thoughtful and practical gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/JDclubs-Tumblers-Insulated-Stainless-Business/dp/B07ZTP8J4V?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JDclubs-Tumblers-Insulated-Stainless-Business/dp/B07ZTP8J4V?ie=UTF8&tag=giftable02-20)
 
-### [32\. Embroidered Adjustable Baseball Cap](https://www.amazon.com/Wall-Stickz-Embroidered-Adjustable-Accessory/dp/B07W54X1PY/?ie=UTF8&tag=avadalove-20)
+### [32\. Embroidered Adjustable Baseball Cap](https://www.amazon.com/Wall-Stickz-Embroidered-Adjustable-Accessory/dp/B07W54X1PY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wall-Stickz-Embroidered-Adjustable-Accessory/dp/B07W54X1PY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wall-Stickz-Embroidered-Adjustable-Accessory/dp/B07W54X1PY/?ie=UTF8&tag=giftable02-20)
 
 This baseball cap is ideal for adding a trendy sports hat to your friend's outdoor activities, fitness routines, or just to add a final touch to casual attire.
 
@@ -653,11 +653,11 @@ It is made of cotton and is the ideal match for a busy lifestyle. The one-size-f
 
 ✔️ Thoughtful and stylish gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Wall-Stickz-Embroidered-Adjustable-Accessory/dp/B07W54X1PY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wall-Stickz-Embroidered-Adjustable-Accessory/dp/B07W54X1PY/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Personalized Parking Sign](https://www.amazon.com/Funny-HAHA-Parking-Unworthy-Aluminum/dp/B07SXRD5DW?ie=UTF8&tag=avadalove-20)
+### [33\. Personalized Parking Sign](https://www.amazon.com/Funny-HAHA-Parking-Unworthy-Aluminum/dp/B07SXRD5DW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Funny-HAHA-Parking-Unworthy-Aluminum/dp/B07SXRD5DW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Funny-HAHA-Parking-Unworthy-Aluminum/dp/B07SXRD5DW?ie=UTF8&tag=giftable02-20)
 
 Want a gift for your Tesla owning relative or friend that is slightly out of the norm? Then you surely should not miss out on this Personalized Parking Sign.
 
@@ -673,11 +673,11 @@ The sign is Constructed of Heavy .0032 Aluminum, so it is Durable and Weatherpro
 
 ✔️ Thoughtful and practical gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/Funny-HAHA-Parking-Unworthy-Aluminum/dp/B07SXRD5DW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Funny-HAHA-Parking-Unworthy-Aluminum/dp/B07SXRD5DW?ie=UTF8&tag=giftable02-20)
 
-### [34\. TESLA Coffee Mug](https://www.amazon.com/TESLA-Coffee-Mug-Boyfriend-Accessories/dp/B07QK4389T?ie=UTF8&tag=avadalove-20)
+### [34\. TESLA Coffee Mug](https://www.amazon.com/TESLA-Coffee-Mug-Boyfriend-Accessories/dp/B07QK4389T?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/TESLA-Coffee-Mug-Boyfriend-Accessories/dp/B07QK4389T?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/TESLA-Coffee-Mug-Boyfriend-Accessories/dp/B07QK4389T?ie=UTF8&tag=giftable02-20)
 
 With this High Quality TESLA Coffee Mug, your loved one may become the envy of their office and sip a favorite coffee in elegance.
 
@@ -693,11 +693,11 @@ The High Quality Ceramic finish is a sleek Matte Black with a silky finish that 
 
 ✔️ Thoughtful and practical gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/TESLA-Coffee-Mug-Boyfriend-Accessories/dp/B07QK4389T?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/TESLA-Coffee-Mug-Boyfriend-Accessories/dp/B07QK4389T?ie=UTF8&tag=giftable02-20)
 
-### [35\. Tesla LED Car Cup Holder](https://www.amazon.com/CoolKo-Improved-Waterproof-Vibration-Decoration/dp/B07DKBKZZ6/?ie=UTF8&tag=avadalove-20)
+### [35\. Tesla LED Car Cup Holder](https://www.amazon.com/CoolKo-Improved-Waterproof-Vibration-Decoration/dp/B07DKBKZZ6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CoolKo-Improved-Waterproof-Vibration-Decoration/dp/B07DKBKZZ6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CoolKo-Improved-Waterproof-Vibration-Decoration/dp/B07DKBKZZ6/?ie=UTF8&tag=giftable02-20)
 
 Buy one of these Tesla LED Car Cup Holders for your friend's car to add a wonderful blue light to its upholstery and make it shine at night with this fantastic little feature lighting!
 
@@ -713,7 +713,7 @@ When it detects vibration, the cup mat will automatically switch on with a blue 
 
 ✔️ Thoughtful and stylish gift for Tesla enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/CoolKo-Improved-Waterproof-Vibration-Decoration/dp/B07DKBKZZ6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CoolKo-Improved-Waterproof-Vibration-Decoration/dp/B07DKBKZZ6/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

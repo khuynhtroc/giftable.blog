@@ -143,9 +143,9 @@ This decorative pillow features an allover design and comes with a removable can
 
 [Buy from Loveable](https://shop.loveable.ai/products/75-years-loved-personalized-pillow-anniversary-gifts-207hnthpi316?variant=43418540835048?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
-### [8\. Loving Pair of Elephants Ceramic Sculpture](https://www.amazon.com/Vaudagio-Loving-Pair-Elephants-Beige/dp/B09DTNGRF3/?ie=UTF8&tag=avadalove-20)
+### [8\. Loving Pair of Elephants Ceramic Sculpture](https://www.amazon.com/Vaudagio-Loving-Pair-Elephants-Beige/dp/B09DTNGRF3/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vaudagio-Loving-Pair-Elephants-Beige/dp/B09DTNGRF3/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vaudagio-Loving-Pair-Elephants-Beige/dp/B09DTNGRF3/?ie=UTF8&tag=giftable02-20)
 
 Give him the gift of serenity and trust with this stunning ivory elephant ornament.
 
@@ -159,7 +159,7 @@ Each Elephant in Love is equipped with non-marring felt feet to safeguard your f
 
 ✔️ Versatile and Decorative
 
-[Buy from Amazon](https://www.amazon.com/Vaudagio-Loving-Pair-Elephants-Beige/dp/B09DTNGRF3/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vaudagio-Loving-Pair-Elephants-Beige/dp/B09DTNGRF3/?ie=UTF8&tag=giftable02-20)
 
 ### [9\. Personalized Our Love Song](https://shop.loveable.ai/products/gifts-for-8-years-anniversary-personalized-our-love-song-206hnthca262?variant=43393634894056?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
@@ -197,9 +197,9 @@ The matte canvas is printed with archival inks to prevent fading and warping; it
 
 [Buy from Loveable](https://shop.loveable.ai/products/i-love-my-life-because-it-gave-me-you-personalized-anniversary-birthday-gifts-for-herhim-207hnbnca306?&variant=43407681192168?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
-### [11\. Ivory Anniversary Card](https://www.amazon.com/wedding-Anniversary-Handmade-Couple-Husband/dp/B08KPDTV5R/?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. Ivory Anniversary Card](https://www.amazon.com/wedding-Anniversary-Handmade-Couple-Husband/dp/B08KPDTV5R/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/wedding-Anniversary-Handmade-Couple-Husband/dp/B08KPDTV5R/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/wedding-Anniversary-Handmade-Couple-Husband/dp/B08KPDTV5R/?th=1?ie=UTF8&tag=giftable02-20)
 
 A card commemorating the 14th anniversary of a marriage, which is also known as the "ivory anniversary," featuring a leather elephant made from ivory.
 
@@ -213,7 +213,7 @@ Use this chic and modern Ivory Anniversary card to commemorate your 14th wedding
 
 ✔️ Blank Inside for Personal Message
 
-[Buy from Amazon](https://www.amazon.com/wedding-Anniversary-Handmade-Couple-Husband/dp/B08KPDTV5R/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/wedding-Anniversary-Handmade-Couple-Husband/dp/B08KPDTV5R/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [12\. Matte Canvas](https://shop.loveable.ai/products/every-love-story-is-beautiful-but-ours-is-my-favorite-best-personalized-anniversary-gifts-for-wife-207hnbnca285?variant=43405640368360?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
@@ -233,9 +233,9 @@ The 17 sizes and two orientations (vertical and horizontal) are all on the table
 
 [Buy from Loveable](https://shop.loveable.ai/products/every-love-story-is-beautiful-but-ours-is-my-favorite-best-personalized-anniversary-gifts-for-wife-207hnbnca285?variant=43405640368360?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
-### [13\. Classic Ivory Razor](https://www.amazon.com/Precision-technology-Comfortable-Grooming-Included/dp/B008ELYW7E?ie=UTF8&tag=avadalove-20)
+### [13\. Classic Ivory Razor](https://www.amazon.com/Precision-technology-Comfortable-Grooming-Included/dp/B008ELYW7E?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Precision-technology-Comfortable-Grooming-Included/dp/B008ELYW7E?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Precision-technology-Comfortable-Grooming-Included/dp/B008ELYW7E?ie=UTF8&tag=giftable02-20)
 
 This razor has a classic and luxurious look thanks to its fox ivory grip and chromed blade. This GBS Razor feels great in your hands, so you can shave without any discomfort.
 
@@ -249,11 +249,11 @@ The GBS Unique Precision Razor is an excellent choice for both personal usage an
 
 ✔️ Close, Smooth Shave
 
-[Buy from Amazon](https://www.amazon.com/Precision-technology-Comfortable-Grooming-Included/dp/B008ELYW7E?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Precision-technology-Comfortable-Grooming-Included/dp/B008ELYW7E?ie=UTF8&tag=giftable02-20)
 
-### [14\. Ivory Shaving Set](https://www.amazon.com/G-B-S-Shaving-Blade-Synthetic-Natural/dp/B0195KC7RY/r?ie=UTF8&tag=avadalove-20)
+### [14\. Ivory Shaving Set](https://www.amazon.com/G-B-S-Shaving-Blade-Synthetic-Natural/dp/B0195KC7RY/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/G-B-S-Shaving-Blade-Synthetic-Natural/dp/B0195KC7RY/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/G-B-S-Shaving-Blade-Synthetic-Natural/dp/B0195KC7RY/r?ie=UTF8&tag=giftable02-20)
 
 The men's grooming set include a GBS shaving mug with an apothecary-style handle for a secure grip, capable of holding up to 4 ounces of soap and providing ample capacity for a rich lather.
 
@@ -267,7 +267,7 @@ The shaving brush and razor set comes with a bar of natural shaving soap that sm
 
 ✔️ Subtle, Smooth, and Fresh Aroma
 
-[Buy from Amazon](https://www.amazon.com/G-B-S-Shaving-Blade-Synthetic-Natural/dp/B0195KC7RY/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/G-B-S-Shaving-Blade-Synthetic-Natural/dp/B0195KC7RY/r?ie=UTF8&tag=giftable02-20)
 
 ### [15\. Personalized Canvas Pillow](https://shop.loveable.ai/products/live-in-the-moment-laugh-often-love-unconditionally-personalized-canvas-pillow-best-anniversary-gift-for-her-207hnttpi303?variant=43406433812712?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
@@ -427,9 +427,9 @@ Photographs printed on lustre paper have more vibrant colours and deeper tones. 
 
 [Buy from Loveable](https://shop.loveable.ai/collections/canvas/products/personalized-name-map-canvas-poster-anniversary-gifts-for-momdad-family-traditional-gifts-205hnthca121?variant=43326010491112?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 
-### [24\. Carved Elephant Figurine](https://www.amazon.com/Natural-Gemstones-Elephant-Figurine-Decoration/dp/B01A11OLQQ?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Carved Elephant Figurine](https://www.amazon.com/Natural-Gemstones-Elephant-Figurine-Decoration/dp/B01A11OLQQ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Natural-Gemstones-Elephant-Figurine-Decoration/dp/B01A11OLQQ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Natural-Gemstones-Elephant-Figurine-Decoration/dp/B01A11OLQQ?th=1?ie=UTF8&tag=giftable02-20)
 
 The elephant is a powerful emblem of loyalty, knowledge, longevity, and good fortune. A chakra, healing, or reiki stone can also be used in yoga and meditation.
 
@@ -443,11 +443,11 @@ Put it in your wallet or purse and pull it out whenever you need some quiet time
 
 ✔️ Portable Calm and Tranquility
 
-[Buy from Amazon](https://www.amazon.com/Natural-Gemstones-Elephant-Figurine-Decoration/dp/B01A11OLQQ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Natural-Gemstones-Elephant-Figurine-Decoration/dp/B01A11OLQQ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [25\. Ceramic Wedding Ring](https://www.amazon.com/THREE-KEYS-JEWELRY-Ceramic-Engagement/dp/B017IPHAYI/?ie=UTF8&tag=avadalove-20)
+### [25\. Ceramic Wedding Ring](https://www.amazon.com/THREE-KEYS-JEWELRY-Ceramic-Engagement/dp/B017IPHAYI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/THREE-KEYS-JEWELRY-Ceramic-Engagement/dp/B017IPHAYI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/THREE-KEYS-JEWELRY-Ceramic-Engagement/dp/B017IPHAYI/?ie=UTF8&tag=giftable02-20)
 
 Wedding bands, engagement rings, and promise rings in this style are appropriate for both sexes. The ideal present for him, his family, and his significant others.
 
@@ -461,7 +461,7 @@ Ceramic is scratch-proof, and it won't fade or make you sensitive to metals. The
 
 ✔️ Suitable for Various Occasions
 
-[Buy from Amazon](https://www.amazon.com/THREE-KEYS-JEWELRY-Ceramic-Engagement/dp/B017IPHAYI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/THREE-KEYS-JEWELRY-Ceramic-Engagement/dp/B017IPHAYI/?ie=UTF8&tag=giftable02-20)
 
 ### [26\. “Ivory” Desk Rose](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/192235903/14th-anniversary-gift-ivory-desk-rose)
 
@@ -517,9 +517,9 @@ This beautiful tie set is appropriate for weddings, anniversaries, formal events
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/688685759/ivory-tie-and-pocket-square-ivory-and)
 
-### [29\. Metal Heart Pebble Gift](https://www.amazon.com/14th-Your-One-Million-Gift/dp/B07YX3Q2P8?ie=UTF8&tag=avadalove-20)
+### [29\. Metal Heart Pebble Gift](https://www.amazon.com/14th-Your-One-Million-Gift/dp/B07YX3Q2P8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/14th-Your-One-Million-Gift/dp/B07YX3Q2P8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/14th-Your-One-Million-Gift/dp/B07YX3Q2P8?ie=UTF8&tag=giftable02-20)
 
 You are the only one for me; please don't let go of my heart. We found each other among the millions of other stones rolling about on the beach. It's important that this 14th anniversary present shows how much you care for one another.
 
@@ -533,7 +533,7 @@ It's packaged and ready to present in a black box with a wooden straw. It's desi
 
 ✔️ Perfect for Partner or Spouse
 
-[Buy from Amazon](https://www.amazon.com/14th-Your-One-Million-Gift/dp/B07YX3Q2P8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/14th-Your-One-Million-Gift/dp/B07YX3Q2P8?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Map Customized Photo](https://shop.loveable.ai/collections/canvas/products/hello-will-you-i-do-map-customized-photo-with-name-personalized-canvas-prints-206hnthca226?variant=43368113144040?utm_source=avada&ranking=&utm_source=&utm_campaign=perfect-ivory-gifts-for-him-to-celebrate-14th-anniversary)
 

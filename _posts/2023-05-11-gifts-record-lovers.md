@@ -17,11 +17,6 @@ With the increasing sales of vinyl this decade, it is highly possible that you w
 
 There is nothing quite like looking for gifts that can make record lovers feel satisfied. Understand your need and concern, we have compiled a list of the best gifts for record lovers in your life that could put a smile on their faces as well as suit your budget.
 
-**_Related:_**
-
-- **[Gifts For Theatre Lovers](/gifts-theatre-lovers/)**
-- **[Gifts For Singers](/gifts-for-singers/)**
-
 ### [1\. Customized Lyric Song Canvas Poster](https://loveable.ai/products/song-custom-record-with-lyrics-song-lyrics-upload-photo-vinyl-record-art-square-canvas-gift-for-wedding-gift-for-wife-husband-girlfriend-boyfriend-on-valentines-day-anniversary-birthday-209ihpthca166?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-record-lovers-thatll-be-sure-to-make-their-day)
 
 [](https://loveable.ai/products/song-custom-record-with-lyrics-song-lyrics-upload-photo-vinyl-record-art-square-canvas-gift-for-wedding-gift-for-wife-husband-girlfriend-boyfriend-on-valentines-day-anniversary-birthday-209ihpthca166?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-record-lovers-thatll-be-sure-to-make-their-day)
@@ -330,9 +325,9 @@ Perfect as a gift for record lovers, this piece of artwork makes a thoughtful ad
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1140165964/vinyl-lovers)
 
-### [18\. Vinyl Record Shelf](https://www.etsy.com/listing/800449222/vinyl-record-shelf-album-wall-mount?ie=UTF8&tag=avadalove-20)
+### [18\. Vinyl Record Shelf](https://www.etsy.com/listing/800449222/vinyl-record-shelf-album-wall-mount?ie=UTF8&tag=giftable02-20)
 
-[](https://www.etsy.com/listing/800449222/vinyl-record-shelf-album-wall-mount?ie=UTF8&tag=avadalove-20)
+[](https://www.etsy.com/listing/800449222/vinyl-record-shelf-album-wall-mount?ie=UTF8&tag=giftable02-20)
 
 This vinyl record shelf is a perfect gift for record lovers. Display your most iconic Albums with these floating stands. It is a perfect gift for the vinyl lover in your life.
 
@@ -346,11 +341,11 @@ These floating stands are a perfect way to show off your collection of vinyl and
 
 ✔️ Adds a Nostalgic and Decorative Touch to the Room
 
-[Buy from Amazon](https://www.etsy.com/listing/800449222/vinyl-record-shelf-album-wall-mount?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.etsy.com/listing/800449222/vinyl-record-shelf-album-wall-mount?ie=UTF8&tag=giftable02-20)
 
-### [19\. Big Fudge Vinyl Record Cleaning Kit](https://www.amazon.com/Record-Cleaner-Kit-Complete-4/dp/B07DVSTBXM?ie=UTF8&tag=avadalove-20)
+### [19\. Big Fudge Vinyl Record Cleaning Kit](https://www.amazon.com/Record-Cleaner-Kit-Complete-4/dp/B07DVSTBXM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Record-Cleaner-Kit-Complete-4/dp/B07DVSTBXM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Record-Cleaner-Kit-Complete-4/dp/B07DVSTBXM?ie=UTF8&tag=giftable02-20)
 
 A four-in-one kit for cleaning vinyl records. The ultra-soft velvet brush cleans away any grease or fingerprints, while the xl liquid keeps the vinyl record clean. An added stylus brush for your records will also keep them in pristine condition.
 
@@ -364,11 +359,11 @@ The compact size makes for easy storage and travel. A vinyl lover's dream. This 
 
 ✔️ Essential Tool for Audiophiles and Collectors
 
-[Buy from Amazon](https://www.amazon.com/Record-Cleaner-Kit-Complete-4/dp/B07DVSTBXM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Record-Cleaner-Kit-Complete-4/dp/B07DVSTBXM?ie=UTF8&tag=giftable02-20)
 
-### [20\. KAIU Vinyl Record Storage Holder](https://www.amazon.com/KAIU-Vinyl-Record-Storage-Holder/dp/B07194NGFW/?ie=UTF8&tag=avadalove-20)
+### [20\. KAIU Vinyl Record Storage Holder](https://www.amazon.com/KAIU-Vinyl-Record-Storage-Holder/dp/B07194NGFW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/KAIU-Vinyl-Record-Storage-Holder/dp/B07194NGFW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/KAIU-Vinyl-Record-Storage-Holder/dp/B07194NGFW/?ie=UTF8&tag=giftable02-20)
 
 Give your record-loving friends an awesome present that will stand up to any room of the house. This vinyl record storage holder has a durable ABS plastic frame and a black vinyl exterior to protect your records.
 
@@ -382,11 +377,11 @@ Simply slip the record sleeve into the holder and you're ready to go! With the h
 
 ✔️ Sturdy and Durable Construction
 
-[Buy from Amazon](https://www.amazon.com/KAIU-Vinyl-Record-Storage-Holder/dp/B07194NGFW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/KAIU-Vinyl-Record-Storage-Holder/dp/B07194NGFW/?ie=UTF8&tag=giftable02-20)
 
-### [21\. Funny Music Lover Socks](https://www.amazon.com/Vinyl-Snob-Socks-Novelty-Record/dp/B08C4G1BBN?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Funny Music Lover Socks](https://www.amazon.com/Vinyl-Snob-Socks-Novelty-Record/dp/B08C4G1BBN?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vinyl-Snob-Socks-Novelty-Record/dp/B08C4G1BBN?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vinyl-Snob-Socks-Novelty-Record/dp/B08C4G1BBN?th=1?ie=UTF8&tag=giftable02-20)
 
 Give the music lover in your life a gift that will leave them laughing! A funny stocking topper to help you remember all the music you have loved throughout the year. The amusing music lover socks are a perfect gift for those who enjoy the music they listen to.
 
@@ -400,7 +395,7 @@ They're handcrafted and feature the music lyrics of each song. The Funny Music L
 
 ✔️ Comfortable and Stylish Footwear
 
-[Buy from Amazon](https://www.amazon.com/Vinyl-Snob-Socks-Novelty-Record/dp/B08C4G1BBN?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vinyl-Snob-Socks-Novelty-Record/dp/B08C4G1BBN?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Personalized Music Song Lyrics Cassette Tape Canvas](https://loveable.ai/products/personalized-music-song-lyrics-cassette-tape-canvas-wall-art-any-song-lyrics-on-canvas-best-anniversary-gift-for-wife-208ihnthca509?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-record-lovers-thatll-be-sure-to-make-their-day)
 
@@ -420,9 +415,9 @@ With a simple click, you’ll have your own one-of-a-kind vinyl record player wa
 
 [Buy from Loveable](https://loveable.ai/products/personalized-music-song-lyrics-cassette-tape-canvas-wall-art-any-song-lyrics-on-canvas-best-anniversary-gift-for-wife-208ihnthca509?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-for-record-lovers-thatll-be-sure-to-make-their-day)
 
-### [23\. DuoMuo Coaster Vinyl Record Disk Coasters](https://www.amazon.com/DuoMuo-Coaster-Record-Coasters-Drinks/dp/B0719G58VC?ie=UTF8&tag=avadalove-20)
+### [23\. DuoMuo Coaster Vinyl Record Disk Coasters](https://www.amazon.com/DuoMuo-Coaster-Record-Coasters-Drinks/dp/B0719G58VC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DuoMuo-Coaster-Record-Coasters-Drinks/dp/B0719G58VC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DuoMuo-Coaster-Record-Coasters-Drinks/dp/B0719G58VC?ie=UTF8&tag=giftable02-20)
 
 Your guests will love you for this amazing duo muo coaster vinyl record disk coasters. They're designed to fit record albums and will serve you well for drinks parties. With each set being supplied with six coasters they come in a stylish black box and are ideal for serving tea and coffee.
 
@@ -436,11 +431,11 @@ It is undeniable that This duo mug coaster vinyl record disk coasters for drinks
 
 ✔️ Protects Surfaces and Adds a Retro Vibe
 
-[Buy from Amazon](https://www.amazon.com/DuoMuo-Coaster-Record-Coasters-Drinks/dp/B0719G58VC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DuoMuo-Coaster-Record-Coasters-Drinks/dp/B0719G58VC?ie=UTF8&tag=giftable02-20)
 
-### [24\. OUR CASA Drink Coasters with Holder](https://www.amazon.com/Drink-Coasters-Holder-Table-Lovers/dp/B09B1BD7QD?ie=UTF8&tag=avadalove-20)
+### [24\. OUR CASA Drink Coasters with Holder](https://www.amazon.com/Drink-Coasters-Holder-Table-Lovers/dp/B09B1BD7QD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Drink-Coasters-Holder-Table-Lovers/dp/B09B1BD7QD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Drink-Coasters-Holder-Table-Lovers/dp/B09B1BD7QD?ie=UTF8&tag=giftable02-20)
 
 Bring your love of vinyl records to your table with this lovely set of CASA Drink Coasters with Holder. These coasters feature an elegant finish with a black top that holds the drink perfectly. Each coaster includes a holder to hold a standard straw, straw ring, or cordless speaker.
 
@@ -454,11 +449,11 @@ Use them to protect your favorite albums and discs, they can easily be removed w
 
 ✔️ Convenient Holder for Easy Storage
 
-[Buy from Amazon](https://www.amazon.com/Drink-Coasters-Holder-Table-Lovers/dp/B09B1BD7QD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Drink-Coasters-Holder-Table-Lovers/dp/B09B1BD7QD?ie=UTF8&tag=giftable02-20)
 
-### [25\. LocalBeavers LED Now Playing Vinyl Record Stand](https://www.amazon.com/Handmade-Playing-Storage-Display-Personalised/dp/B07YCTBSH7?ie=UTF8&tag=avadalove-20)
+### [25\. LocalBeavers LED Now Playing Vinyl Record Stand](https://www.amazon.com/Handmade-Playing-Storage-Display-Personalised/dp/B07YCTBSH7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Handmade-Playing-Storage-Display-Personalised/dp/B07YCTBSH7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Handmade-Playing-Storage-Display-Personalised/dp/B07YCTBSH7?ie=UTF8&tag=giftable02-20)
 
 The LED Playing Record Stand is a perfect gift for record lovers. Whether you want to display your own music collection or just enjoy listening to vinyl, you will enjoy this unique accessory.
 
@@ -472,11 +467,11 @@ With its sleek appearance and functionality, the LED light will provide a wonder
 
 ✔️ Perfect for Showcasing Current Music Selections
 
-[Buy from Amazon](https://www.amazon.com/Handmade-Playing-Storage-Display-Personalised/dp/B07YCTBSH7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Handmade-Playing-Storage-Display-Personalised/dp/B07YCTBSH7?ie=UTF8&tag=giftable02-20)
 
-### [26\. Vinyl Record Player Sketch Drawing T-shirt](https://www.amazon.com/Record-Player-Sketch-Drawing-T-shirt/dp/B07PGBDVKP?ie=UTF8&tag=avadalove-20)
+### [26\. Vinyl Record Player Sketch Drawing T-shirt](https://www.amazon.com/Record-Player-Sketch-Drawing-T-shirt/dp/B07PGBDVKP?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Record-Player-Sketch-Drawing-T-shirt/dp/B07PGBDVKP?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Record-Player-Sketch-Drawing-T-shirt/dp/B07PGBDVKP?ie=UTF8&tag=giftable02-20)
 
 Show off your vinyl collection in style with this exclusive vinyl record player sketch drawing t-shirt. A cool design with bold graphics makes this t-shirt a great addition to your wardrobe. This tee will let them show off their love of all things Vinyl.
 
@@ -490,11 +485,11 @@ What is more, this is a beautiful gift idea for a vinyl lover or music lover. Th
 
 ✔️ Unique and Eye-Catching T-Shirt Choice
 
-[Buy from Amazon](https://www.amazon.com/Record-Player-Sketch-Drawing-T-shirt/dp/B07PGBDVKP?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Record-Player-Sketch-Drawing-T-shirt/dp/B07PGBDVKP?ie=UTF8&tag=giftable02-20)
 
-### [27\. Album Mount Vinyl Record Frame](https://www.amazon.com/CollectorMount-Album-Record-Invisible-Adjustable/dp/B00IBZ1CDK?ie=UTF8&tag=avadalove-20)
+### [27\. Album Mount Vinyl Record Frame](https://www.amazon.com/CollectorMount-Album-Record-Invisible-Adjustable/dp/B00IBZ1CDK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/CollectorMount-Album-Record-Invisible-Adjustable/dp/B00IBZ1CDK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/CollectorMount-Album-Record-Invisible-Adjustable/dp/B00IBZ1CDK?ie=UTF8&tag=giftable02-20)
 
 Bring the nostalgic charm of vinyl records into your living room with this stunning frame. Crafted by artisans from wood and metal, it offers a traditional design with a modern finish. Its smooth edges and elegant lines will beautifully display your favorite vinyl, LP, or CD album. The Record Mount Vinyl Record Frame is a perfect gift for record lovers.
 
@@ -508,11 +503,11 @@ It will fit standard-size record albums and even turntable platters with the rem
 
 ✔️ Easy and Convenient Album Changing
 
-[Buy from Amazon](https://www.amazon.com/CollectorMount-Album-Record-Invisible-Adjustable/dp/B00IBZ1CDK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/CollectorMount-Album-Record-Invisible-Adjustable/dp/B00IBZ1CDK?ie=UTF8&tag=giftable02-20)
 
-### [28\. Funny Retro Vinyl Record Coasters](https://www.amazon.com/Coasters-Conversation-Sayings-Housewarming-Registry/dp/B08R8YVH9G/?ie=UTF8&tag=avadalove-20)
+### [28\. Funny Retro Vinyl Record Coasters](https://www.amazon.com/Coasters-Conversation-Sayings-Housewarming-Registry/dp/B08R8YVH9G/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coasters-Conversation-Sayings-Housewarming-Registry/dp/B08R8YVH9G/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coasters-Conversation-Sayings-Housewarming-Registry/dp/B08R8YVH9G/?ie=UTF8&tag=giftable02-20)
 
 Keep it retro, with vinyl records! We all love those old songs, and if your vinyl lover is in need of new coasters, here they are! Just slip them out, place your drink or dinner down and enjoy listening. Or put your feet up and relax with a cup of tea.
 
@@ -526,11 +521,11 @@ These coasters will be a fun addition to their collection. A perfect gift for a 
 
 ✔️ Practical and Decorative for Home Use
 
-[Buy from Amazon](https://www.amazon.com/Coasters-Conversation-Sayings-Housewarming-Registry/dp/B08R8YVH9G/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coasters-Conversation-Sayings-Housewarming-Registry/dp/B08R8YVH9G/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Vinyl Record Shaped Mug](https://www.amazon.com/Gift-Republic-Vinyl-Record-Shaped/dp/B07MVR94JX?ie=UTF8&tag=avadalove-20)
+### [29\. Vinyl Record Shaped Mug](https://www.amazon.com/Gift-Republic-Vinyl-Record-Shaped/dp/B07MVR94JX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gift-Republic-Vinyl-Record-Shaped/dp/B07MVR94JX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gift-Republic-Vinyl-Record-Shaped/dp/B07MVR94JX?ie=UTF8&tag=giftable02-20)
 
 Bring out your vinyl on the go with this record-shaped mug. Featuring a special groove in the shape of a record, it will fit almost any mug and is dishwasher safe. It's a great way to show off your vinyl collection at home or at the office! Vinyl lovers will be overjoyed when they receive this mug.
 
@@ -544,11 +539,11 @@ It's shaped like a record and will hold up to 8oz of liquid. With this gift, the
 
 ✔️ Adds a Fun and Nostalgic Vibe to Coffee Time
 
-[Buy from Amazon](https://www.amazon.com/Gift-Republic-Vinyl-Record-Shaped/dp/B07MVR94JX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gift-Republic-Vinyl-Record-Shaped/dp/B07MVR94JX?ie=UTF8&tag=giftable02-20)
 
-### [30\. 1000 Record Covers Hardcover](https://www.amazon.com/1000-Record-Covers-Michael-Ochs/dp/383655058X/?ie=UTF8&tag=avadalove-20)
+### [30\. 1000 Record Covers Hardcover](https://www.amazon.com/1000-Record-Covers-Michael-Ochs/dp/383655058X/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/1000-Record-Covers-Michael-Ochs/dp/383655058X/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/1000-Record-Covers-Michael-Ochs/dp/383655058X/?ie=UTF8&tag=giftable02-20)
 
 A perfect gift for record lovers, the 1000 Record Covers is an attractive package that protects your records up to 1000x, keeping dust away from vinyl and making it easier to handle. With a sturdy zip closure, this cover is designed for use on LP and CD albums.
 
@@ -562,11 +557,11 @@ It is made from PVC, which makes it durable and reusable. Easy to use, no tools 
 
 ✔️ Ideal Gift for Art and Music Enthusiasts
 
-[Buy from Amazon](https://www.amazon.com/1000-Record-Covers-Michael-Ochs/dp/383655058X/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/1000-Record-Covers-Michael-Ochs/dp/383655058X/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Speed Bluetooth Suitcase](https://www.amazon.com/Crosley-Cruiser-Bluetooth-Suitcase-Turntable/dp/B07BBGLNZH/?ie=UTF8&tag=avadalove-20)
+### [31\. Speed Bluetooth Suitcase](https://www.amazon.com/Crosley-Cruiser-Bluetooth-Suitcase-Turntable/dp/B07BBGLNZH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crosley-Cruiser-Bluetooth-Suitcase-Turntable/dp/B07BBGLNZH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crosley-Cruiser-Bluetooth-Suitcase-Turntable/dp/B07BBGLNZH/?ie=UTF8&tag=giftable02-20)
 
 Your next music listening experience will be even more awesome thanks to the Cruiser Bluetooth speaker. It can also connect to USB memory sticks and features dual HDMI inputs for connecting HDTVs or projectors. Its powerful sound will keep you entertained on the beach or poolside.
 
@@ -580,11 +575,11 @@ And with its built-in Bluetooth technology, you can stream your favorite tunes w
 
 ✔️ Perfect for Music Lovers On-the-Go
 
-[Buy from Amazon](https://www.amazon.com/Crosley-Cruiser-Bluetooth-Suitcase-Turntable/dp/B07BBGLNZH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crosley-Cruiser-Bluetooth-Suitcase-Turntable/dp/B07BBGLNZH/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Now Playing Vinyl Record Stand](https://www.amazon.com/Aikyam-Records-Playing-Minimalist-Spinning/dp/B093CRKK92?ie=UTF8&tag=avadalove-20)
+### [32\. Now Playing Vinyl Record Stand](https://www.amazon.com/Aikyam-Records-Playing-Minimalist-Spinning/dp/B093CRKK92?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Aikyam-Records-Playing-Minimalist-Spinning/dp/B093CRKK92?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Aikyam-Records-Playing-Minimalist-Spinning/dp/B093CRKK92?ie=UTF8&tag=giftable02-20)
 
 The wood record player table is designed specifically for vinyl records. It is easy to assemble and will add a touch of character to any room. The wood record player table is very stable and provides plenty of room for your current playing vinyl record.
 
@@ -598,11 +593,11 @@ Its sleek, high-quality design will complement any interior space, and the durab
 
 ✔️ Adds a Modern and Decorative Touch to Vinyl Collection
 
-[Buy from Amazon](https://www.amazon.com/Aikyam-Records-Playing-Minimalist-Spinning/dp/B093CRKK92?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Aikyam-Records-Playing-Minimalist-Spinning/dp/B093CRKK92?ie=UTF8&tag=giftable02-20)
 
-### [33\. Record Gifts Retro Socks](https://www.amazon.com/Accessories-Record-Musician-1-Pair-Novelty/dp/B07N8JCXGM/?ie=UTF8&tag=avadalove-20)
+### [33\. Record Gifts Retro Socks](https://www.amazon.com/Accessories-Record-Musician-1-Pair-Novelty/dp/B07N8JCXGM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Accessories-Record-Musician-1-Pair-Novelty/dp/B07N8JCXGM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Accessories-Record-Musician-1-Pair-Novelty/dp/B07N8JCXGM/?ie=UTF8&tag=giftable02-20)
 
 For the record lover in your life. Music lover gifts can be a real challenge. They don't necessarily want or need something complicated or high-tech. They like their music. If you can understand that, then you're ready to start shopping. If not, you may find yourself running around the mall trying to find something you can bring home as a gift for the music lover in your life. And let's face it, that music lover doesn't even listen to music. He loves it.
 
@@ -616,7 +611,7 @@ And when he hears it, he listens. So, get him a gift that will turn his ears up 
 
 ✔️ Adds a Fun and Stylish Touch to Outfits
 
-[Buy from Amazon](https://www.amazon.com/Accessories-Record-Musician-1-Pair-Novelty/dp/B07N8JCXGM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Accessories-Record-Musician-1-Pair-Novelty/dp/B07N8JCXGM/?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 

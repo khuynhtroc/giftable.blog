@@ -15,9 +15,9 @@ Color is an important part of life; it affects our emotions, moods, and personal
 
 If you are on the hunt for a gorgeous and unique blue gift for your loved one who adores this dynamic color, we’ve got you covered with a list of some of our favorite blue-themed items. Our suggested gift list ranges from clothing and accessories to **[home decor](/home-decor-gifts/)**, which is suitable for all ages and any occasion. It could be a unique addition to their favorite blue collection. They can enjoy moments in a peaceful, relaxing space. In particular, they will be very touched by your interest in their hobby and consider it a treasured keepsake.
 
-### [1\. LightSaber Chopsticks](https://www.amazon.com/Chop-Sabers-Light-LightSaber-Chopsticks/dp/B01CA2HOZ4/?th=1?ie=UTF8&tag=avadalove-20)
+### [1\. LightSaber Chopsticks](https://www.amazon.com/Chop-Sabers-Light-LightSaber-Chopsticks/dp/B01CA2HOZ4/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Chop-Sabers-Light-LightSaber-Chopsticks/dp/B01CA2HOZ4/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Chop-Sabers-Light-LightSaber-Chopsticks/dp/B01CA2HOZ4/?th=1?ie=UTF8&tag=giftable02-20)
 
 These are certainly the chopsticks you are looking for. It's time to impress all your guests with your epic light saber chopsticks, which will take your sushi nights to another star galaxy, far, far away!
 
@@ -31,11 +31,11 @@ These 2 pairs of BPA-free plastic LED lightsaber chop sticks will make great bir
 
 ✔️ Durable and reusable design.
 
-[Buy from Amazon](https://www.amazon.com/Chop-Sabers-Light-LightSaber-Chopsticks/dp/B01CA2HOZ4/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Chop-Sabers-Light-LightSaber-Chopsticks/dp/B01CA2HOZ4/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [2\. Gift Card](https://www.amazon.com/Amazon-com-Gift-Card-Blue-Bow-Tie/dp/B06WVJBVT4?ie=UTF8&tag=avadalove-20)
+### [2\. Gift Card](https://www.amazon.com/Amazon-com-Gift-Card-Blue-Bow-Tie/dp/B06WVJBVT4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Amazon-com-Gift-Card-Blue-Bow-Tie/dp/B06WVJBVT4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Amazon-com-Gift-Card-Blue-Bow-Tie/dp/B06WVJBVT4?ie=UTF8&tag=giftable02-20)
 
 A gift card is a great way to send your beloved someone something that they really want. A gift card has no fees and no expiration date. The Amazon Gift Card is redeemable for millions of items storewide at Amazon.com.
 
@@ -49,11 +49,11 @@ It is affixed inside a beautiful blue box, which brings along peace and relaxati
 
 ✔️ Recipients have the freedom to choose.
 
-[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Blue-Bow-Tie/dp/B06WVJBVT4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Amazon-com-Gift-Card-Blue-Bow-Tie/dp/B06WVJBVT4?ie=UTF8&tag=giftable02-20)
 
-### [3\. Pressed Flower Teardrop Earrings](https://www.amazon.com/Sterling-Silver-Pressed-Teardrop-Earrings/dp/B002AQSSRO?ie=UTF8&tag=avadalove-20)
+### [3\. Pressed Flower Teardrop Earrings](https://www.amazon.com/Sterling-Silver-Pressed-Teardrop-Earrings/dp/B002AQSSRO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sterling-Silver-Pressed-Teardrop-Earrings/dp/B002AQSSRO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sterling-Silver-Pressed-Teardrop-Earrings/dp/B002AQSSRO?ie=UTF8&tag=giftable02-20)
 
 No woman can resist the beauty of these earrings. Unique translucent teardrop-shape earrings featuring real dried flowers preserved in resin and surrounded by sterling silver settings. The natural properties of real flowers provide a one-of-a-kind look to each piece.
 
@@ -67,11 +67,11 @@ Grown in the fields of Taxco, Mexico, these miniature flowers are gathered by ha
 
 ✔️ Lightweight and comfortable to wear.
 
-[Buy from Amazon](https://www.amazon.com/Sterling-Silver-Pressed-Teardrop-Earrings/dp/B002AQSSRO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sterling-Silver-Pressed-Teardrop-Earrings/dp/B002AQSSRO?ie=UTF8&tag=giftable02-20)
 
-### [4\. Capri Blue Scented Candle](https://www.amazon.com/Capri-Blue-Volcano-Candle-503/dp/B000YBFJQU?th=1?ie=UTF8&tag=avadalove-20)
+### [4\. Capri Blue Scented Candle](https://www.amazon.com/Capri-Blue-Volcano-Candle-503/dp/B000YBFJQU?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Capri-Blue-Volcano-Candle-503/dp/B000YBFJQU?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Capri-Blue-Volcano-Candle-503/dp/B000YBFJQU?th=1?ie=UTF8&tag=giftable02-20)
 
 These chic glass candles, with their signature silhouette and dynamic cobalt blue look, make a great gift to pamper your favorite woman. These candles are fan favorites with a high-quality wax blend that is long-burning. It helps you have the feeling that you're in a scented paradise.
 
@@ -85,11 +85,11 @@ Let's fill your space with the enchanting and tropical scent of unbelievably ico
 
 ✔️ Beautifully designed and visually appealing.
 
-[Buy from Amazon](https://www.amazon.com/Capri-Blue-Volcano-Candle-503/dp/B000YBFJQU?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Capri-Blue-Volcano-Candle-503/dp/B000YBFJQU?th=1?ie=UTF8&tag=giftable02-20)
 
-### [5\. Preserved Rose Birthday Gifts](https://www.amazon.com/ANLUNOB-Forever-Flower-Eternal-Rose/dp/B086QMLJMN?th=1?ie=UTF8&tag=avadalove-20)
+### [5\. Preserved Rose Birthday Gifts](https://www.amazon.com/ANLUNOB-Forever-Flower-Eternal-Rose/dp/B086QMLJMN?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ANLUNOB-Forever-Flower-Eternal-Rose/dp/B086QMLJMN?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ANLUNOB-Forever-Flower-Eternal-Rose/dp/B086QMLJMN?th=1?ie=UTF8&tag=giftable02-20)
 
 Preserved flowers are made from natural Japanese roses with a unique preservation process. Most keep the same color, shape, and feeling as fresh-cut flowers. The artware gift is made of high quality borosilicate heat-resistant glass and is environmentally friendly.
 
@@ -103,11 +103,11 @@ The glass cover is slightly translucent blue, which gives some variation in the 
 
 ✔️ Unique and thoughtful birthday gift.
 
-[Buy from Amazon](https://www.amazon.com/ANLUNOB-Forever-Flower-Eternal-Rose/dp/B086QMLJMN?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ANLUNOB-Forever-Flower-Eternal-Rose/dp/B086QMLJMN?th=1?ie=UTF8&tag=giftable02-20)
 
-### [6\. YETI Rambler 20 oz Tumbler](https://www.amazon.com/YETI-Vacuu-Rambler-Stainless-Steel/dp/B07FM5HLMF?th=1?ie=UTF8&tag=avadalove-20)
+### [6\. YETI Rambler 20 oz Tumbler](https://www.amazon.com/YETI-Vacuu-Rambler-Stainless-Steel/dp/B07FM5HLMF?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YETI-Vacuu-Rambler-Stainless-Steel/dp/B07FM5HLMF?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YETI-Vacuu-Rambler-Stainless-Steel/dp/B07FM5HLMF?th=1?ie=UTF8&tag=giftable02-20)
 
 These Ramblers come standard with the only drink lid that uses the power of magnets to keep your water, beer, or favorite drink on lock. These Ramblers are BPA-free, dishwasher safe, and have a No Sweat Design to make sure your hands stay dry.
 
@@ -121,11 +121,11 @@ These double-wall insulated tumblers are engineered with an 18/8 stainless steel
 
 ✔️ Easy to clean and maintain.
 
-[Buy from Amazon](https://www.amazon.com/YETI-Vacuu-Rambler-Stainless-Steel/dp/B07FM5HLMF?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YETI-Vacuu-Rambler-Stainless-Steel/dp/B07FM5HLMF?th=1?ie=UTF8&tag=giftable02-20)
 
-### [7\. Crinkle Cut Paper Shred Filler](https://www.amazon.com/Crinkle-Filler-Wrapping-Basket-Filling/dp/B075RSW5V5/?ie=UTF8&tag=avadalove-20)
+### [7\. Crinkle Cut Paper Shred Filler](https://www.amazon.com/Crinkle-Filler-Wrapping-Basket-Filling/dp/B075RSW5V5/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crinkle-Filler-Wrapping-Basket-Filling/dp/B075RSW5V5/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crinkle-Filler-Wrapping-Basket-Filling/dp/B075RSW5V5/?ie=UTF8&tag=giftable02-20)
 
 This item contains 1 LB of crinkle-cut paper shred filler in sky blue. This high quality crinkle paper shred is environmentally safe, recyclable and made from non-toxic dyes to obtain vibrant colors. Crinkle-cut colored shredded paper makes a great bed for displaying your product.
 
@@ -139,11 +139,11 @@ It is perfect for gift wrapping and basket-filling those extra spaces you have i
 
 ✔️ Adds a visually appealing and decorative touch.
 
-[Buy from Amazon](https://www.amazon.com/Crinkle-Filler-Wrapping-Basket-Filling/dp/B075RSW5V5/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crinkle-Filler-Wrapping-Basket-Filling/dp/B075RSW5V5/?ie=UTF8&tag=giftable02-20)
 
-### [8\. Blue Rose in Glass Dome](https://www.amazon.com/Blingstar-Artificial-Girlfriend-Christmas-Anniversary/dp/B08SVYWD8P?ie=UTF8&tag=avadalove-20)
+### [8\. Blue Rose in Glass Dome](https://www.amazon.com/Blingstar-Artificial-Girlfriend-Christmas-Anniversary/dp/B08SVYWD8P?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Blingstar-Artificial-Girlfriend-Christmas-Anniversary/dp/B08SVYWD8P?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Blingstar-Artificial-Girlfriend-Christmas-Anniversary/dp/B08SVYWD8P?ie=UTF8&tag=giftable02-20)
 
 This blue glass rose will never wither or decay, symbolizing that your love for her will never change no matter what happens. The rose in the glass dome is wrapped around LED fairy lights. It glows with warm light through the transparent glass in the dark, creating a romantic ambience and accompanying people as they spend lonely nights.
 
@@ -157,11 +157,11 @@ That's a good way to express your feelings to your mom, wife, daughter, grandma,
 
 ✔️ Long-lasting beauty without the need for maintenance.
 
-[Buy from Amazon](https://www.amazon.com/Blingstar-Artificial-Girlfriend-Christmas-Anniversary/dp/B08SVYWD8P?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Blingstar-Artificial-Girlfriend-Christmas-Anniversary/dp/B08SVYWD8P?ie=UTF8&tag=giftable02-20)
 
-### [9\. Ceramic Mug Set](https://www.amazon.com/DOWAN-Coffee-Large-Ceramic-Holidays/dp/B07Z5MCPK7?ie=UTF8&tag=avadalove-20)
+### [9\. Ceramic Mug Set](https://www.amazon.com/DOWAN-Coffee-Large-Ceramic-Holidays/dp/B07Z5MCPK7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/DOWAN-Coffee-Large-Ceramic-Holidays/dp/B07Z5MCPK7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/DOWAN-Coffee-Large-Ceramic-Holidays/dp/B07Z5MCPK7?ie=UTF8&tag=giftable02-20)
 
 Coffee mugs with the words "blessed" and "thankful" are thoughtful gifts for the teacher, mother, father, coworker couple, and Christian. This mug is made of strong, thick ceramic that is lead-free, cadmium-free, and of high quality.
 
@@ -175,11 +175,11 @@ Suitable for hot and cold drinks. The big handle can keep the tea mug from rotat
 
 ✔️ Stylish and versatile design.
 
-[Buy from Amazon](https://www.amazon.com/DOWAN-Coffee-Large-Ceramic-Holidays/dp/B07Z5MCPK7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/DOWAN-Coffee-Large-Ceramic-Holidays/dp/B07Z5MCPK7?ie=UTF8&tag=giftable02-20)
 
-### [10\. Multi-Purpose Bandana Gift Sets](https://www.amazon.com/Levis-Mens-Printed-Bandana-Multi/dp/B011SJZLVO?ie=UTF8&tag=avadalove-20)
+### [10\. Multi-Purpose Bandana Gift Sets](https://www.amazon.com/Levis-Mens-Printed-Bandana-Multi/dp/B011SJZLVO?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Levis-Mens-Printed-Bandana-Multi/dp/B011SJZLVO?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Levis-Mens-Printed-Bandana-Multi/dp/B011SJZLVO?ie=UTF8&tag=giftable02-20)
 
 This Levi’s bandana will satisfy anyone in your life. The only limit to styling these unisex bandanas is your creativity. From a face mask to wrapping it around your wrist to using it as a headband to style your hair, our Levi’s bandanas are as versatile as they are functional.
 
@@ -193,11 +193,11 @@ It features various colors, from the **[classic red](/red-gifts/)**, white, and 
 
 ✔️ Practical and fashionable gift option.
 
-[Buy from Amazon](https://www.amazon.com/Levis-Mens-Printed-Bandana-Multi/dp/B011SJZLVO?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Levis-Mens-Printed-Bandana-Multi/dp/B011SJZLVO?ie=UTF8&tag=giftable02-20)
 
-### [11\. Leather Writing Journal Notebook](https://www.amazon.com/Notebook-MALEDEN-Refillable-Sketchbook-Journals/dp/B01GRMG6NO?th=1?ie=UTF8&tag=avadalove-20)
+### [11\. Leather Writing Journal Notebook](https://www.amazon.com/Notebook-MALEDEN-Refillable-Sketchbook-Journals/dp/B01GRMG6NO?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Notebook-MALEDEN-Refillable-Sketchbook-Journals/dp/B01GRMG6NO?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Notebook-MALEDEN-Refillable-Sketchbook-Journals/dp/B01GRMG6NO?th=1?ie=UTF8&tag=giftable02-20)
 
 The Leather Journal is made of high quality PU leather and is soft in the hands and durable for travel or outdoor adventure. Inserts are craft paper, which can keep your writing and drawing the same as the beginning to help you reread easily in the future.
 
@@ -211,11 +211,11 @@ Both the cover and the insert work to give you a permanent memory. Blank papers 
 
 ✔️ Perfect for capturing thoughts and ideas.
 
-[Buy from Amazon](https://www.amazon.com/Notebook-MALEDEN-Refillable-Sketchbook-Journals/dp/B01GRMG6NO?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Notebook-MALEDEN-Refillable-Sketchbook-Journals/dp/B01GRMG6NO?th=1?ie=UTF8&tag=giftable02-20)
 
-### [12\. Mini Jewelry Box](https://www.amazon.com/small-jewelry-box-Portable-organizer/dp/B081YY79MF?th=1?ie=UTF8&tag=avadalove-20)
+### [12\. Mini Jewelry Box](https://www.amazon.com/small-jewelry-box-Portable-organizer/dp/B081YY79MF?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/small-jewelry-box-Portable-organizer/dp/B081YY79MF?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/small-jewelry-box-Portable-organizer/dp/B081YY79MF?th=1?ie=UTF8&tag=giftable02-20)
 
 This trendy jewelry organizer box displays your small jewelry, including necklaces, bracelets, earrings, rings, and more.
 
@@ -229,11 +229,11 @@ The soft lining inside helps to protect your precious items from scratches while
 
 ✔️ Protects delicate items from scratches and damage.
 
-[Buy from Amazon](https://www.amazon.com/small-jewelry-box-Portable-organizer/dp/B081YY79MF?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/small-jewelry-box-Portable-organizer/dp/B081YY79MF?th=1?ie=UTF8&tag=giftable02-20)
 
-### [13\. Adidas Striker 2 Backpack](https://www.amazon.com/adidas-Striker-Backpack-Collegiate-Black/dp/B0714DCCLZ/?th=1?ie=UTF8&tag=avadalove-20)
+### [13\. Adidas Striker 2 Backpack](https://www.amazon.com/adidas-Striker-Backpack-Collegiate-Black/dp/B0714DCCLZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/adidas-Striker-Backpack-Collegiate-Black/dp/B0714DCCLZ/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/adidas-Striker-Backpack-Collegiate-Black/dp/B0714DCCLZ/?th=1?ie=UTF8&tag=giftable02-20)
 
 The Striker backpack is versatile enough to carry you throughout the day, from practice to school and everywhere in between. The 4 zippered outside pockets plus internal zippered organization will keep you organized and game-ready.
 
@@ -247,11 +247,11 @@ It has padded shoulder straps and a back panel for extra comfort. With blue love
 
 ✔️ Comfortable to wear with adjustable straps.
 
-[Buy from Amazon](https://www.amazon.com/adidas-Striker-Backpack-Collegiate-Black/dp/B0714DCCLZ/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/adidas-Striker-Backpack-Collegiate-Black/dp/B0714DCCLZ/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [14\. Bath Gift Set for Women](https://www.amazon.com/Baskets-Women-Earth-Gifts-Ocean/dp/B0711YX6D1?ie=UTF8&tag=avadalove-20)
+### [14\. Bath Gift Set for Women](https://www.amazon.com/Baskets-Women-Earth-Gifts-Ocean/dp/B0711YX6D1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Baskets-Women-Earth-Gifts-Ocean/dp/B0711YX6D1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Baskets-Women-Earth-Gifts-Ocean/dp/B0711YX6D1?ie=UTF8&tag=giftable02-20)
 
 Have fun in the tub with a fragrant and delightful assortment of luxury spa products in this spa gift basket.
 
@@ -265,11 +265,11 @@ Fragrant essential oils inspired by the ocean uplift the mind, promote overall w
 
 ✔️ Beautifully packaged for gifting purposes.
 
-[Buy from Amazon](https://www.amazon.com/Baskets-Women-Earth-Gifts-Ocean/dp/B0711YX6D1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Baskets-Women-Earth-Gifts-Ocean/dp/B0711YX6D1?ie=UTF8&tag=giftable02-20)
 
-### [15\. Bed Rest Reading Pillow](https://www.amazon.com/ZOEMO-Bed-Rest-Reading-Pillow/dp/B07FNWPT1B?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Bed Rest Reading Pillow](https://www.amazon.com/ZOEMO-Bed-Rest-Reading-Pillow/dp/B07FNWPT1B?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZOEMO-Bed-Rest-Reading-Pillow/dp/B07FNWPT1B?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZOEMO-Bed-Rest-Reading-Pillow/dp/B07FNWPT1B?th=1?ie=UTF8&tag=giftable02-20)
 
 This Premium Reading Bedrest with Neck Roll Pillow is specially designed to ensure your comfort and health during this relaxing time for you and your children.
 
@@ -283,11 +283,11 @@ The bonus neck roll pillow gives you extra comfort when you lie down. It is idea
 
 ✔️Convenient storage pockets for books, remotes, and other essentials.
 
-[Buy from Amazon](https://www.amazon.com/ZOEMO-Bed-Rest-Reading-Pillow/dp/B07FNWPT1B?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZOEMO-Bed-Rest-Reading-Pillow/dp/B07FNWPT1B?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Rise Trifold Wallet](https://www.amazon.com/PUMA-Little-Trifold-Wallet-yellow/dp/B0743MGFFN/?ie=UTF8&tag=avadalove-20)
+### [16\. Rise Trifold Wallet](https://www.amazon.com/PUMA-Little-Trifold-Wallet-yellow/dp/B0743MGFFN/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/PUMA-Little-Trifold-Wallet-yellow/dp/B0743MGFFN/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/PUMA-Little-Trifold-Wallet-yellow/dp/B0743MGFFN/?ie=UTF8&tag=giftable02-20)
 
 This wallet will make a wonderful gift for anyone who loves blue. It is made of 100% polyester with a fold-closure design. The PUMA Rise trifold wallet is a great place for kids to stash their cash.
 
@@ -301,11 +301,11 @@ They'll take it anywhere. It's easy to close with plenty of compartments. Don't 
 
 ✔️ Durable construction for long-lasting functionality.
 
-[Buy from Amazon](https://www.amazon.com/PUMA-Little-Trifold-Wallet-yellow/dp/B0743MGFFN/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/PUMA-Little-Trifold-Wallet-yellow/dp/B0743MGFFN/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Bridal Bouquet Charm](https://www.amazon.com/Something-Wedding-Bouquet-Sixpence-Keepsake/dp/B09WQRJ549/?ie=UTF8&tag=avadalove-20)
+### [17\. Bridal Bouquet Charm](https://www.amazon.com/Something-Wedding-Bouquet-Sixpence-Keepsake/dp/B09WQRJ549/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Something-Wedding-Bouquet-Sixpence-Keepsake/dp/B09WQRJ549/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Something-Wedding-Bouquet-Sixpence-Keepsake/dp/B09WQRJ549/?ie=UTF8&tag=giftable02-20)
 
 Five exquisite charms are attached to a small kilt pin, making it ideal to attach to the bride's flowers or discreetly to her dress. The pin has nearly everything the bride needs for her big day; a horseshoe and chimney sweep to bring luck, a sixpence to bring wealth, an angel to watch over her and, for that something blue, a small heart.
 
@@ -319,11 +319,11 @@ It will be a lovely and unique keepsake to remember her special day, especially 
 
 ✔️Serves as a beautiful keepsake after the wedding.
 
-[Buy from Amazon](https://www.amazon.com/Something-Wedding-Bouquet-Sixpence-Keepsake/dp/B09WQRJ549/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Something-Wedding-Bouquet-Sixpence-Keepsake/dp/B09WQRJ549/?ie=UTF8&tag=giftable02-20)
 
-### [18\. Cozy Hug Wearable Throw Blanket](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B09N625BK8?th=1?ie=UTF8&tag=avadalove-20)
+### [18\. Cozy Hug Wearable Throw Blanket](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B09N625BK8?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B09N625BK8?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B09N625BK8?th=1?ie=UTF8&tag=giftable02-20)
 
 Do you like to wear your blanket around your shoulders but it won’t stay in place? Dream of a premium, super-soft, plush, polyester flannel fleece blanket with wrap and walk-around comfort. Unlike blankets that slip over the front of the body or sweatshirt blankets, this snuggly blanket is worn like a neckband-free cape.
 
@@ -337,11 +337,11 @@ You can use it as a camping blanket or picnic blanket, then wrap up to enjoy the
 
 ✔️Stylish design adds a touch of comfort to your attire.
 
-[Buy from Amazon](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B09N625BK8?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Dreamighty-Cozy-Wearable-Throw-Blanket/dp/B09N625BK8?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. Hey Girl Tea Infuser Bottle](https://www.amazon.com/Hey-Girl-Tea-Infuser-Bottle/dp/B09RZJ8WSG?ie=UTF8&tag=avadalove-20)
+### [19\. Hey Girl Tea Infuser Bottle](https://www.amazon.com/Hey-Girl-Tea-Infuser-Bottle/dp/B09RZJ8WSG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hey-Girl-Tea-Infuser-Bottle/dp/B09RZJ8WSG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hey-Girl-Tea-Infuser-Bottle/dp/B09RZJ8WSG?ie=UTF8&tag=giftable02-20)
 
 Ditch the boring tea tumbler and grab a whole new way of doing teas, coffees, and fruit waters with this tea infuser bottle.
 
@@ -355,7 +355,7 @@ This travel tea mug and water bottle extraordinaire comes wrapped in super sweet
 
 ✔️Keeps your tea hot for extended periods.
 
-[Buy from Amazon](https://www.amazon.com/Hey-Girl-Tea-Infuser-Bottle/dp/B09RZJ8WSG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hey-Girl-Tea-Infuser-Bottle/dp/B09RZJ8WSG?ie=UTF8&tag=giftable02-20)
 
 ### [20\. Blue Gift Box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1048745497/blue-gift-box-just-because-care-package)
 
@@ -535,9 +535,9 @@ This wind chime makes a perfect gift for a wind chime lover or anyone that enjoy
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/486359945/wind-chime-made-from-cobalt-blue-glass)
 
-### [30\. Couch Cup Holder Tray](https://www.amazon.com/Silicone-Anti-Spill-Anti-Slip-Weighted-Cellphone/dp/B097H2TQ2W/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Couch Cup Holder Tray](https://www.amazon.com/Silicone-Anti-Spill-Anti-Slip-Weighted-Cellphone/dp/B097H2TQ2W/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Silicone-Anti-Spill-Anti-Slip-Weighted-Cellphone/dp/B097H2TQ2W/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Silicone-Anti-Spill-Anti-Slip-Weighted-Cellphone/dp/B097H2TQ2W/?th=1?ie=UTF8&tag=giftable02-20)
 
 Are you someone who spends a lot of time on your couch? Introducing the Silicone Couch Tray—a practical solution for you to have everything you need within reach while you enjoy watching TV—get lazy, stay organized and live smart.
 
@@ -551,11 +551,11 @@ Made from premium quality silicone, this sofa arm table is fitted with four meta
 
 ✔️Provides a stable surface for placing items while lounging.
 
-[Buy from Amazon](https://www.amazon.com/Silicone-Anti-Spill-Anti-Slip-Weighted-Cellphone/dp/B097H2TQ2W/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Silicone-Anti-Spill-Anti-Slip-Weighted-Cellphone/dp/B097H2TQ2W/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Waterproof Portable Bluetooth Speaker](https://www.amazon.com/JBL-FLIP-Waterproof-Portable-Bluetooth/dp/B088NDXBFJ?ie=UTF8&tag=avadalove-20)
+### [31\. Waterproof Portable Bluetooth Speaker](https://www.amazon.com/JBL-FLIP-Waterproof-Portable-Bluetooth/dp/B088NDXBFJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JBL-FLIP-Waterproof-Portable-Bluetooth/dp/B088NDXBFJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JBL-FLIP-Waterproof-Portable-Bluetooth/dp/B088NDXBFJ?ie=UTF8&tag=giftable02-20)
 
 This waterproof portable Bluetooth speaker is made from 100% recycled plastic. With a Bluetooth design and up to 12 hours of use, you can take it anywhere, especially on camping trips. Premium JBL sound quality will help you enjoy your music in the best way.
 
@@ -569,11 +569,11 @@ Have a fun and happy time with your family. Especially with its striking blue de
 
 ✔️Portable and easy to carry, providing on-the-go entertainment.
 
-[Buy from Amazon](https://www.amazon.com/JBL-FLIP-Waterproof-Portable-Bluetooth/dp/B088NDXBFJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JBL-FLIP-Waterproof-Portable-Bluetooth/dp/B088NDXBFJ?ie=UTF8&tag=giftable02-20)
 
-### [32\. BagDream Kraft Paper Bags](https://www.amazon.com/BagDream-5-25x3-75x8-Inches-Shopping-Handles/dp/B08FBYD45C/?ie=UTF8&tag=avadalove-20)
+### [32\. BagDream Kraft Paper Bags](https://www.amazon.com/BagDream-5-25x3-75x8-Inches-Shopping-Handles/dp/B08FBYD45C/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BagDream-5-25x3-75x8-Inches-Shopping-Handles/dp/B08FBYD45C/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BagDream-5-25x3-75x8-Inches-Shopping-Handles/dp/B08FBYD45C/?ie=UTF8&tag=giftable02-20)
 
 BagDream kraft paper bags are made of recycled paper, which are recyclable. The small navy blue gift bags have a healthier and more upscale look than plastic.
 
@@ -587,11 +587,11 @@ The small gift bags can be customized for any occasion or even represent your bu
 
 ✔️Simple and versatile design suitable for various purposes.
 
-[Buy from Amazon](https://www.amazon.com/BagDream-5-25x3-75x8-Inches-Shopping-Handles/dp/B08FBYD45C/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BagDream-5-25x3-75x8-Inches-Shopping-Handles/dp/B08FBYD45C/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Fidget Toys](https://www.amazon.com/Fidget-Toys-Spinners-Learning-Education/dp/B09QX8RQPC?th=1?ie=UTF8&tag=avadalove-20)
+### [33\. Fidget Toys](https://www.amazon.com/Fidget-Toys-Spinners-Learning-Education/dp/B09QX8RQPC?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fidget-Toys-Spinners-Learning-Education/dp/B09QX8RQPC?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fidget-Toys-Spinners-Learning-Education/dp/B09QX8RQPC?th=1?ie=UTF8&tag=giftable02-20)
 
 Your children will adore this eye-catching, beautifully designed, double-sided sensory toy. This is a two-in-one decompression game, which can be a fidget spinner toy or a jigsaw puzzle. The middle can be rotated 360 degrees, and then you need to find a way to match the color of the beads correctly. It is a creative and stylish sensory toy that both children and adults can play with.
 
@@ -605,11 +605,11 @@ It can exercise hand-eye coordination, spatial thinking, and logical thinking an
 
 ✔️Improves fine motor skills and dexterity.
 
-[Buy from Amazon](https://www.amazon.com/Fidget-Toys-Spinners-Learning-Education/dp/B09QX8RQPC?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fidget-Toys-Spinners-Learning-Education/dp/B09QX8RQPC?th=1?ie=UTF8&tag=giftable02-20)
 
-### [34\. Performance Wristband 2-Pack](https://www.amazon.com/Under-Armour-Mens-Performance-Wristband/dp/B00Z83ZJG4?ie=UTF8&tag=avadalove-20)
+### [34\. Performance Wristband 2-Pack](https://www.amazon.com/Under-Armour-Mens-Performance-Wristband/dp/B00Z83ZJG4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Under-Armour-Mens-Performance-Wristband/dp/B00Z83ZJG4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Under-Armour-Mens-Performance-Wristband/dp/B00Z83ZJG4?ie=UTF8&tag=giftable02-20)
 
 If your beloved ones are into blue, there's nothing better than giving them this performance wristband. The headband is constructed of multi-channel performance fibers. The material wicks sweat and dries really fast.
 
@@ -623,11 +623,11 @@ It is a perfectly useful item for your beloved ones while doing exercise. The co
 
 ✔️ Provides real-time feedback and motivation.
 
-[Buy from Amazon](https://www.amazon.com/Under-Armour-Mens-Performance-Wristband/dp/B00Z83ZJG4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Under-Armour-Mens-Performance-Wristband/dp/B00Z83ZJG4?ie=UTF8&tag=giftable02-20)
 
-### [35\. Three Photo Collage Frame](https://www.amazon.com/Daybyday-Picture-Foldable-Christmas-Tabletop/dp/B09D95F6T4?th=1?ie=UTF8&tag=avadalove-20)
+### [35\. Three Photo Collage Frame](https://www.amazon.com/Daybyday-Picture-Foldable-Christmas-Tabletop/dp/B09D95F6T4?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Daybyday-Picture-Foldable-Christmas-Tabletop/dp/B09D95F6T4?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Daybyday-Picture-Foldable-Christmas-Tabletop/dp/B09D95F6T4?th=1?ie=UTF8&tag=giftable02-20)
 
 Modern & Boho navy blue with wood grain delivers a relaxing feeling to your home decoration. A special double-sided display photo frame could put your six favorite photos in one place at one time. A foldable frame with opening hinges makes it fold and stand on its own on the desk vertically.
 
@@ -641,7 +641,7 @@ This photo frame is made of a crystal clear, nice quality glass front, which mea
 
 ✔️ Makes it easy to showcase cherished memories.
 
-[Buy from Amazon](https://www.amazon.com/Daybyday-Picture-Foldable-Christmas-Tabletop/dp/B09D95F6T4?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Daybyday-Picture-Foldable-Christmas-Tabletop/dp/B09D95F6T4?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [36\. Thin blue line bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/583474226/police-thin-blue-line-bracelet-thin-blue)
 

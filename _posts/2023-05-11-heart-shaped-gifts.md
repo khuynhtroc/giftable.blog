@@ -263,9 +263,9 @@ Purchasing the necklace to give your girlfriends or your wife is better. The hea
 
 [Buy from Loveable](https://loveable.ai/products/love-songs-luxury-necklace-custom-message-card-jewelry-gift-for-her-custom-photo-209ihpthje321?variant=43936525517032?utm_source=avada&ranking=&utm_source=&utm_campaign=best-heart-shaped-gifts-to-show-youre-big-heart-person)
 
-### [16\. Gift Box](https://www.amazon.com/JOHOUSE-7-8Inches-Valentines-Christmas-Decoration/dp/B08YN23TXD/?ie=UTF8&tag=avadalove-20)
+### [16\. Gift Box](https://www.amazon.com/JOHOUSE-7-8Inches-Valentines-Christmas-Decoration/dp/B08YN23TXD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JOHOUSE-7-8Inches-Valentines-Christmas-Decoration/dp/B08YN23TXD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JOHOUSE-7-8Inches-Valentines-Christmas-Decoration/dp/B08YN23TXD/?ie=UTF8&tag=giftable02-20)
 
 The gift box was manufactured with a 3D design to make it look like a real heart-shaped one. It brings people an authentic feeling and easy to makes them feel heartwarming. Sending the pretty gift box is a fantastic choice for couples.
 
@@ -277,11 +277,11 @@ The gift box was manufactured with a 3D design to make it look like a real heart
 
 ✔️ Reusable for next time
 
-[Buy from Amazon](https://www.amazon.com/JOHOUSE-7-8Inches-Valentines-Christmas-Decoration/dp/B08YN23TXD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JOHOUSE-7-8Inches-Valentines-Christmas-Decoration/dp/B08YN23TXD/?ie=UTF8&tag=giftable02-20)
 
-### [17\. Ceramic Trinket Dish](https://www.amazon.com/Kate-Aspen-Trinket-Medium-White/dp/B08WH9SGNZ?th=1?ie=UTF8&tag=avadalove-20)
+### [17\. Ceramic Trinket Dish](https://www.amazon.com/Kate-Aspen-Trinket-Medium-White/dp/B08WH9SGNZ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kate-Aspen-Trinket-Medium-White/dp/B08WH9SGNZ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kate-Aspen-Trinket-Medium-White/dp/B08WH9SGNZ?th=1?ie=UTF8&tag=giftable02-20)
 
 There is a saying that a kitchen is where women are the most charming. So, kitchen items like ceramic dishes would make them feel you care about their daily life. Besides, the heart-shaped gift is so beautiful that evoking people's cooking passion.
 
@@ -293,11 +293,11 @@ There is a saying that a kitchen is where women are the most charming. So, kitch
 
 ✔️ Embellish your home
 
-[Buy from Amazon](https://www.amazon.com/Kate-Aspen-Trinket-Medium-White/dp/B08WH9SGNZ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kate-Aspen-Trinket-Medium-White/dp/B08WH9SGNZ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [18\. Rose Quartz Stone](https://www.amazon.com/rockcloud-Healing-Crystal-Natural-Balancing/dp/B01J3APTHQ?th=1?ie=UTF8&tag=avadalove-20)
+### [18\. Rose Quartz Stone](https://www.amazon.com/rockcloud-Healing-Crystal-Natural-Balancing/dp/B01J3APTHQ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/rockcloud-Healing-Crystal-Natural-Balancing/dp/B01J3APTHQ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/rockcloud-Healing-Crystal-Natural-Balancing/dp/B01J3APTHQ?th=1?ie=UTF8&tag=giftable02-20)
 
 Rose Quartz represents love, and stone is forever and eternal, so why not take advantage of these natural meanings to show your heart love to your loved one? The heart-shaped gift may melt anyone's heart and warm up their heart.
 
@@ -309,11 +309,11 @@ Rose Quartz represents love, and stone is forever and eternal, so why not take a
 
 ✔️ Carry lucky meaning
 
-[Buy from Amazon](https://www.amazon.com/rockcloud-Healing-Crystal-Natural-Balancing/dp/B01J3APTHQ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/rockcloud-Healing-Crystal-Natural-Balancing/dp/B01J3APTHQ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [19\. Heart Cork Coasters](https://www.amazon.com/Kate-Aspen-Heart-Cork-Coasters/dp/B00HWS1TFI/?th=1?ie=UTF8&tag=avadalove-20)
+### [19\. Heart Cork Coasters](https://www.amazon.com/Kate-Aspen-Heart-Cork-Coasters/dp/B00HWS1TFI/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kate-Aspen-Heart-Cork-Coasters/dp/B00HWS1TFI/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kate-Aspen-Heart-Cork-Coasters/dp/B00HWS1TFI/?th=1?ie=UTF8&tag=giftable02-20)
 
 Women are half of the world so cosseting them would be done more to make them happy every day. If you are getting in the struggle to think of a gift for them, the heart-shaped cork coasters are simple but it is sincere to express your all emotion to them.
 
@@ -325,11 +325,11 @@ Women are half of the world so cosseting them would be done more to make them ha
 
 ✔️ Insulation
 
-[Buy from Amazon](https://www.amazon.com/Kate-Aspen-Heart-Cork-Coasters/dp/B00HWS1TFI/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kate-Aspen-Heart-Cork-Coasters/dp/B00HWS1TFI/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [20\. Cast Iron Heart Trivet](https://www.amazon.com/Decorative-Kitchen-Countertop-Vintage-6-75X6-5/dp/B00J82MTJQ?th=1?ie=UTF8&tag=avadalove-20)
+### [20\. Cast Iron Heart Trivet](https://www.amazon.com/Decorative-Kitchen-Countertop-Vintage-6-75X6-5/dp/B00J82MTJQ?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decorative-Kitchen-Countertop-Vintage-6-75X6-5/dp/B00J82MTJQ?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decorative-Kitchen-Countertop-Vintage-6-75X6-5/dp/B00J82MTJQ?th=1?ie=UTF8&tag=giftable02-20)
 
 The heart trivet carries a vintage style, and the heart shape is a sweet gift to him/her. Therefore, there are no reasons to hesitate to grab this one to give your loved one and express your want-ta-talk word.
 
@@ -341,11 +341,11 @@ The heart trivet carries a vintage style, and the heart shape is a sweet gift to
 
 ✔️ No rust
 
-[Buy from Amazon](https://www.amazon.com/Decorative-Kitchen-Countertop-Vintage-6-75X6-5/dp/B00J82MTJQ?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decorative-Kitchen-Countertop-Vintage-6-75X6-5/dp/B00J82MTJQ?th=1?ie=UTF8&tag=giftable02-20)
 
-### [21\. Heart Salt Lamp](https://www.amazon.com/Himalayan-Glow-944AC-Heart-Multicolor/dp/B07BN6K59L/?th=1?ie=UTF8&tag=avadalove-20)
+### [21\. Heart Salt Lamp](https://www.amazon.com/Himalayan-Glow-944AC-Heart-Multicolor/dp/B07BN6K59L/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Himalayan-Glow-944AC-Heart-Multicolor/dp/B07BN6K59L/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Himalayan-Glow-944AC-Heart-Multicolor/dp/B07BN6K59L/?th=1?ie=UTF8&tag=giftable02-20)
 
 Creating the house with a warm and cozy atmosphere with the salt lamp. The items have heart shapes, so it is so cute to put and decorate in a house. It is a great idea to give your loved one and express your sentiments to them.
 
@@ -357,7 +357,7 @@ Creating the house with a warm and cozy atmosphere with the salt lamp. The items
 
 ✔️ Consume less electricity
 
-[Buy from Amazon](https://www.amazon.com/Himalayan-Glow-944AC-Heart-Multicolor/dp/B07BN6K59L/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Himalayan-Glow-944AC-Heart-Multicolor/dp/B07BN6K59L/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [22\. Personalized Heart Acrylic Plaque](https://loveable.ai/products/love-you-forever-you-always-know-what-to-say-best-personalized-heart-acrylic-plaque-gift-for-wedding-anniversary-208ihpthap073?variant=43753069052136?utm_source=avada&ranking=&utm_source=&utm_campaign=best-heart-shaped-gifts-to-show-youre-big-heart-person)
 
@@ -471,9 +471,9 @@ The tags were cut in a heart shape, so it is so adorable and cute. You can buy i
 
 [Buy from Esty](https://www.etsy.com/listing/1054028760/50-heart-shaped-2-inch-wedding-favor)
 
-### [29\. Heart Pocket Stone](https://www.amazon.com/Loveliome-Natural-Amethyst-Pocket-Healing/dp/B07HB5547P?th=1?ie=UTF8&tag=avadalove-20)
+### [29\. Heart Pocket Stone](https://www.amazon.com/Loveliome-Natural-Amethyst-Pocket-Healing/dp/B07HB5547P?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Loveliome-Natural-Amethyst-Pocket-Healing/dp/B07HB5547P?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Loveliome-Natural-Amethyst-Pocket-Healing/dp/B07HB5547P?th=1?ie=UTF8&tag=giftable02-20)
 
 The stone has a heart shape which is a witness for your love, so it is so amazing when purchasing it to give to him/her on valentine's or anniversary. Besides, the feature of stone is solid and hard to erosion, so it likes your love, forever with time.
 
@@ -485,11 +485,11 @@ The stone has a heart shape which is a witness for your love, so it is so amazin
 
 ✔️ Spirit meaning
 
-[Buy from Amazon](https://www.amazon.com/Loveliome-Natural-Amethyst-Pocket-Healing/dp/B07HB5547P?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Loveliome-Natural-Amethyst-Pocket-Healing/dp/B07HB5547P?th=1?ie=UTF8&tag=giftable02-20)
 
-### [30\. Neon Heart Lights](https://www.amazon.com/VIFULIN-Decorations-Hanging-Battery-Operated/dp/B09SPVGZKS/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. Neon Heart Lights](https://www.amazon.com/VIFULIN-Decorations-Hanging-Battery-Operated/dp/B09SPVGZKS/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/VIFULIN-Decorations-Hanging-Battery-Operated/dp/B09SPVGZKS/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/VIFULIN-Decorations-Hanging-Battery-Operated/dp/B09SPVGZKS/?th=1?ie=UTF8&tag=giftable02-20)
 
 The heart-shaped lights are lovely and good for creating a cozy and romantic atmosphere. The gift is like your heart which always lights up when being with you. The pink color contributes to building up a mood for any event.
 
@@ -501,11 +501,11 @@ The heart-shaped lights are lovely and good for creating a cozy and romantic atm
 
 ✔️ Beautiful design
 
-[Buy from Amazon](https://www.amazon.com/VIFULIN-Decorations-Hanging-Battery-Operated/dp/B09SPVGZKS/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/VIFULIN-Decorations-Hanging-Battery-Operated/dp/B09SPVGZKS/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. HUG Wooden Cutout Letter](https://www.amazon.com/JKJYSJ-Anniversary-Thanksgiving-Relatives%EF%BC%8CFriends-Heart-shaped/dp/B09SYR7423/r?th=1?ie=UTF8&tag=avadalove-20)
+### [31\. HUG Wooden Cutout Letter](https://www.amazon.com/JKJYSJ-Anniversary-Thanksgiving-Relatives%EF%BC%8CFriends-Heart-shaped/dp/B09SYR7423/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/JKJYSJ-Anniversary-Thanksgiving-Relatives%EF%BC%8CFriends-Heart-shaped/dp/B09SYR7423/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/JKJYSJ-Anniversary-Thanksgiving-Relatives%EF%BC%8CFriends-Heart-shaped/dp/B09SYR7423/r?th=1?ie=UTF8&tag=giftable02-20)
 
 A hug is a small and normal activity of humans, but it contains a lot of meaning, so buying a hug cutout letter reminds people of this message. The jar's shape is a heart that will embrace to hug that making gifts more momentous.
 
@@ -517,11 +517,11 @@ A hug is a small and normal activity of humans, but it contains a lot of meaning
 
 ✔️ A emotional gift
 
-[Buy from Amazon](https://www.amazon.com/JKJYSJ-Anniversary-Thanksgiving-Relatives%EF%BC%8CFriends-Heart-shaped/dp/B09SYR7423/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/JKJYSJ-Anniversary-Thanksgiving-Relatives%EF%BC%8CFriends-Heart-shaped/dp/B09SYR7423/r?th=1?ie=UTF8&tag=giftable02-20)
 
-### [32\. Love Suar Wood Sculpture](https://www.amazon.com/NOVICA-Shaped-Natural-Romantic-Sculpture/dp/B00817HJRQ/?ie=UTF8&tag=avadalove-20)
+### [32\. Love Suar Wood Sculpture](https://www.amazon.com/NOVICA-Shaped-Natural-Romantic-Sculpture/dp/B00817HJRQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/NOVICA-Shaped-Natural-Romantic-Sculpture/dp/B00817HJRQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/NOVICA-Shaped-Natural-Romantic-Sculpture/dp/B00817HJRQ/?ie=UTF8&tag=giftable02-20)
 
 The wood sculpture was sculptured delicately with the heart symbol. The product shows a love affair, so it is a wonderful gift to express your sentiment. You also purchase to decorate your new house.
 
@@ -533,11 +533,11 @@ The wood sculpture was sculptured delicately with the heart symbol. The product 
 
 ✔️ Increase the charm for home
 
-[Buy from Amazon](https://www.amazon.com/NOVICA-Shaped-Natural-Romantic-Sculpture/dp/B00817HJRQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/NOVICA-Shaped-Natural-Romantic-Sculpture/dp/B00817HJRQ/?ie=UTF8&tag=giftable02-20)
 
-### [33\. Jewelry Box](https://www.amazon.com/Vintage-Heart-shaped-Necklace-Bridesmaid-Thanksgiving/dp/B0982YMMCD?th=1?ie=UTF8&tag=avadalove-20)
+### [33\. Jewelry Box](https://www.amazon.com/Vintage-Heart-shaped-Necklace-Bridesmaid-Thanksgiving/dp/B0982YMMCD?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Vintage-Heart-shaped-Necklace-Bridesmaid-Thanksgiving/dp/B0982YMMCD?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Vintage-Heart-shaped-Necklace-Bridesmaid-Thanksgiving/dp/B0982YMMCD?th=1?ie=UTF8&tag=giftable02-20)
 
 The jewelry box could be used to keep earrings, rings, and small items. The design is a heart shape, so it is suitable for couples and, on the proposal, weddings. Taking vintage is the theme for artwork; it creates a memorable feeling.
 
@@ -549,11 +549,11 @@ The jewelry box could be used to keep earrings, rings, and small items. The desi
 
 ✔️ Portable
 
-[Buy from Amazon](https://www.amazon.com/Vintage-Heart-shaped-Necklace-Bridesmaid-Thanksgiving/dp/B0982YMMCD?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Vintage-Heart-shaped-Necklace-Bridesmaid-Thanksgiving/dp/B0982YMMCD?th=1?ie=UTF8&tag=giftable02-20)
 
-### [34\. Jewelry Gift Box](https://loveable.appspot.com/admin/plugins/content-manager/collectionType/application::productitems.productitems/create?ie=UTF8&tag=avadalove-20)
+### [34\. Jewelry Gift Box](https://loveable.appspot.com/admin/plugins/content-manager/collectionType/application::productitems.productitems/create?ie=UTF8&tag=giftable02-20)
 
-[](https://loveable.appspot.com/admin/plugins/content-manager/collectionType/application::productitems.productitems/create?ie=UTF8&tag=avadalove-20)
+[](https://loveable.appspot.com/admin/plugins/content-manager/collectionType/application::productitems.productitems/create?ie=UTF8&tag=giftable02-20)
 
 The box is for keeping earrings for your wife. The red heart-shaped box symbolizes your love, so it is so suitable to keep some small pieces of jewelry to give loved ones on their birthday or special days in the year.
 
@@ -565,7 +565,7 @@ The box is for keeping earrings for your wife. The red heart-shaped box symboliz
 
 ✔️ The quality of color is good
 
-[Buy from Amazon](https://loveable.appspot.com/admin/plugins/content-manager/collectionType/application::productitems.productitems/create?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://loveable.appspot.com/admin/plugins/content-manager/collectionType/application::productitems.productitems/create?ie=UTF8&tag=giftable02-20)
 
 ### [35\. Heart Hoop Earrings](https://www.etsy.com/listing/769699193/small-gold-heart-hoop-earringssmall-gold)
 

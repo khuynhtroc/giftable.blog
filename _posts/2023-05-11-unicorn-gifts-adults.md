@@ -197,9 +197,9 @@ Made from premium-quality materials, it provides a cozy and soft feel against yo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/748174438/unicorn-onesie-unicorn-adult-onesie)
 
-### [11\. Rainbow Unicorn Necklace](https://www.amazon.com/Unicorns-Necklace-Rainbow-Unicorn-Necklaces/dp/B097BGYTB6?ie=UTF8&tag=avadalove-20)
+### [11\. Rainbow Unicorn Necklace](https://www.amazon.com/Unicorns-Necklace-Rainbow-Unicorn-Necklaces/dp/B097BGYTB6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Unicorns-Necklace-Rainbow-Unicorn-Necklaces/dp/B097BGYTB6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Unicorns-Necklace-Rainbow-Unicorn-Necklaces/dp/B097BGYTB6?ie=UTF8&tag=giftable02-20)
 
 The unicorn necklace is a unique gift for kids, boys, or anybody who has liked unicorns all their life.
 
@@ -213,11 +213,11 @@ The rainbow unicorn necklace is made of either rhodium, gold, or silver plating 
 
 ✔️ Adjustable chain length for customization
 
-[Buy from Amazon](https://www.amazon.com/Unicorns-Necklace-Rainbow-Unicorn-Necklaces/dp/B097BGYTB6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Unicorns-Necklace-Rainbow-Unicorn-Necklaces/dp/B097BGYTB6?ie=UTF8&tag=giftable02-20)
 
-### [12\. Unicorn Coffee Mug](https://www.amazon.com/5Aup-Christmas-Unicorn-Birthday-Daughter/dp/B07PWDM9LD/?ie=UTF8&tag=avadalove-20)
+### [12\. Unicorn Coffee Mug](https://www.amazon.com/5Aup-Christmas-Unicorn-Birthday-Daughter/dp/B07PWDM9LD/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/5Aup-Christmas-Unicorn-Birthday-Daughter/dp/B07PWDM9LD/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/5Aup-Christmas-Unicorn-Birthday-Daughter/dp/B07PWDM9LD/?ie=UTF8&tag=giftable02-20)
 
 This Unicorn **[Coffee Cup](/gifts-coffee-lovers/)** is certain to gratify any unicorn enthusiast, whether you're searching for a daily coffee mug for yourself, family, friends, or coworkers.
 
@@ -231,11 +231,11 @@ Words are written on both sides of the cup, which is constructed of 11 ounces of
 
 ✔️ Generous 11 oz capacity for ample beverages
 
-[Buy from Amazon](https://www.amazon.com/5Aup-Christmas-Unicorn-Birthday-Daughter/dp/B07PWDM9LD/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/5Aup-Christmas-Unicorn-Birthday-Daughter/dp/B07PWDM9LD/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Unicorn Glass Coffee Mug](https://www.amazon.com/Wish-Could-Stab-Idiots-Head/dp/B01N6PSK0X?ie=UTF8&tag=avadalove-20)
+### [13\. Unicorn Glass Coffee Mug](https://www.amazon.com/Wish-Could-Stab-Idiots-Head/dp/B01N6PSK0X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wish-Could-Stab-Idiots-Head/dp/B01N6PSK0X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wish-Could-Stab-Idiots-Head/dp/B01N6PSK0X?ie=UTF8&tag=giftable02-20)
 
 Savor your morning coffee with a humorous design! This coffee cup is a great way to start a discourse and is guaranteed to entertain anyone.
 
@@ -249,11 +249,11 @@ The I Wish I Could Stab Idiots With My Head - Unicorn Glass Coffee Mug design is
 
 ✔️ Microwave and dishwasher safe for convenience
 
-[Buy from Amazon](https://www.amazon.com/Wish-Could-Stab-Idiots-Head/dp/B01N6PSK0X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wish-Could-Stab-Idiots-Head/dp/B01N6PSK0X?ie=UTF8&tag=giftable02-20)
 
-### [14\. Unicorn Stemless Wine Glass](https://www.amazon.com/IE-Laserware-Unicorn-Engraved-Stemless/dp/B079WJ23NQ/?ie=UTF8&tag=avadalove-20)
+### [14\. Unicorn Stemless Wine Glass](https://www.amazon.com/IE-Laserware-Unicorn-Engraved-Stemless/dp/B079WJ23NQ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/IE-Laserware-Unicorn-Engraved-Stemless/dp/B079WJ23NQ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/IE-Laserware-Unicorn-Engraved-Stemless/dp/B079WJ23NQ/?ie=UTF8&tag=giftable02-20)
 
 The iconic "Unicorn" has developed through time to become the lovely depiction laser engraved on this wine glass.
 
@@ -267,11 +267,11 @@ This sweet image is permanently etched into the glass, giving it a "frosted" loo
 
 ✔️ High-quality glass material for durability
 
-[Buy from Amazon](https://www.amazon.com/IE-Laserware-Unicorn-Engraved-Stemless/dp/B079WJ23NQ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/IE-Laserware-Unicorn-Engraved-Stemless/dp/B079WJ23NQ/?ie=UTF8&tag=giftable02-20)
 
-### [15\. Sequins Notebook Set](https://www.amazon.com/WERNNSAI-Sequins-Notebook-Set-Notebooks/dp/B08GHR7DTK?ie=UTF8&tag=avadalove-20)
+### [15\. Sequins Notebook Set](https://www.amazon.com/WERNNSAI-Sequins-Notebook-Set-Notebooks/dp/B08GHR7DTK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/WERNNSAI-Sequins-Notebook-Set-Notebooks/dp/B08GHR7DTK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/WERNNSAI-Sequins-Notebook-Set-Notebooks/dp/B08GHR7DTK?ie=UTF8&tag=giftable02-20)
 
 Surprise that unicorn enthusiast person you know with this Sequins Notebook Set and watch them jump in excitement!
 
@@ -285,7 +285,7 @@ This set comes with a sequin notebook, a ballpoint pen, a keychain and a bracele
 
 ✔️ High-quality paper for smooth writing
 
-[Buy from Amazon](https://www.amazon.com/WERNNSAI-Sequins-Notebook-Set-Notebooks/dp/B08GHR7DTK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/WERNNSAI-Sequins-Notebook-Set-Notebooks/dp/B08GHR7DTK?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Unicorn Earrings](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1105662939/unicorn-earrings-unicorn-jewelry-unicorn)
 
@@ -323,9 +323,9 @@ The hand stamped statement on the metal cuff is roughly 3/8 inch broad by 6 inch
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/483720137/im-done-adulting-hand-stamped-cuff)
 
-### [18\. Unicorn Necklace](https://www.amazon.com/Shonyin-Necklace-Christmas-Valentines-Granddaughter/dp/B08LYMFPJC?ie=UTF8&tag=avadalove-20)
+### [18\. Unicorn Necklace](https://www.amazon.com/Shonyin-Necklace-Christmas-Valentines-Granddaughter/dp/B08LYMFPJC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Shonyin-Necklace-Christmas-Valentines-Granddaughter/dp/B08LYMFPJC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Shonyin-Necklace-Christmas-Valentines-Granddaughter/dp/B08LYMFPJC?ie=UTF8&tag=giftable02-20)
 
 Unicorns may be able to protect you from harmful influences. She represents righteousness, fearlessness, elegance, nobleness, and purity.
 
@@ -339,7 +339,7 @@ This unicorn necklace is constructed of 316L stainless steel, which is lead and 
 
 ✔️ Suitable for Christmas, birthdays, and Valentine's Day
 
-[Buy from Amazon](https://www.amazon.com/Shonyin-Necklace-Christmas-Valentines-Granddaughter/dp/B08LYMFPJC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Shonyin-Necklace-Christmas-Valentines-Granddaughter/dp/B08LYMFPJC?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Unicorn Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/572037704/unicorn-bracelet-dainty-unicorn-bracelet)
 
@@ -683,9 +683,9 @@ This double-walled, vacuum-insulated stainless steel mug has an open port top an
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/707536842/i-wish-i-was-a-unicorn-engraved)
 
-### [38\. Unicorn Tumbler](https://www.amazon.com/Crisky-Insulated-Nephew-Unique-Christmas-Thanksgiving/dp/B09YTWN7F2?ie=UTF8&tag=avadalove-20)
+### [38\. Unicorn Tumbler](https://www.amazon.com/Crisky-Insulated-Nephew-Unique-Christmas-Thanksgiving/dp/B09YTWN7F2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Crisky-Insulated-Nephew-Unique-Christmas-Thanksgiving/dp/B09YTWN7F2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Crisky-Insulated-Nephew-Unique-Christmas-Thanksgiving/dp/B09YTWN7F2?ie=UTF8&tag=giftable02-20)
 
 This unicorn-themed birthday present idea is ideal for putting a grin on your beloved's face on a special day.
 
@@ -699,7 +699,7 @@ The cups, which are constructed of food-grade stainless steel and include Vacuum
 
 ✔️ Double-wall vacuum insulation and spill-proof lid
 
-[Buy from Amazon](https://www.amazon.com/Crisky-Insulated-Nephew-Unique-Christmas-Thanksgiving/dp/B09YTWN7F2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Crisky-Insulated-Nephew-Unique-Christmas-Thanksgiving/dp/B09YTWN7F2?ie=UTF8&tag=giftable02-20)
 
 ### [39\. Unicorn Socks](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/604826997/unicorn-socks-funny-socks-gift-for-her)
 

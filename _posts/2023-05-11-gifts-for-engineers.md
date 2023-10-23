@@ -489,9 +489,9 @@ Highly elastic, sturdy, and comfy, with a heel and toe structure for all-day com
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1096861334/it-developer-socks-it-engineer-socks-it)
 
-### [27\. Mechanical Engineer Keychain](https://www.amazon.com/Mechanical-Engineering-Graduation-Mathematics-Structural/dp/B08G47D75H?ie=UTF8&tag=avadalove-20)
+### [27\. Mechanical Engineer Keychain](https://www.amazon.com/Mechanical-Engineering-Graduation-Mathematics-Structural/dp/B08G47D75H?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mechanical-Engineering-Graduation-Mathematics-Structural/dp/B08G47D75H?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mechanical-Engineering-Graduation-Mathematics-Structural/dp/B08G47D75H?ie=UTF8&tag=giftable02-20)
 
 This amusing engineer key chain is a unique way to express your support or gratitude to an engineer, an engineering student, or a recent engineering graduate. Excellent construction with the appropriate size and weight. Sensitive skin is unaffected.
 
@@ -505,11 +505,11 @@ This is a gift that will last a lifetime, no matter what the occasion. You don't
 
 ✔️ Great gift for mechanical engineering graduates or professionals
 
-[Buy from Amazon](https://www.amazon.com/Mechanical-Engineering-Graduation-Mathematics-Structural/dp/B08G47D75H?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mechanical-Engineering-Graduation-Mathematics-Structural/dp/B08G47D75H?ie=UTF8&tag=giftable02-20)
 
-### [28\. Tactical Pen](https://www.amazon.com/Tactical-Christmas-Anniversary-Boyfriend-Emergency/dp/B07WFPM9J6?th=1?ie=UTF8&tag=avadalove-20)
+### [28\. Tactical Pen](https://www.amazon.com/Tactical-Christmas-Anniversary-Boyfriend-Emergency/dp/B07WFPM9J6?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tactical-Christmas-Anniversary-Boyfriend-Emergency/dp/B07WFPM9J6?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tactical-Christmas-Anniversary-Boyfriend-Emergency/dp/B07WFPM9J6?th=1?ie=UTF8&tag=giftable02-20)
 
 The tactical pen can make it easier for your loved ones who work as architects to work at home, in the field, or on a daily basis, for example. When someone you care about is in danger, it can also be used to appeal for help and defend their safety.
 
@@ -523,11 +523,11 @@ It's a well-made tiny tactical pen that combines the most essential EDC tools an
 
 ✔️ Stylish design that makes it a great gift for any occasion
 
-[Buy from Amazon](https://www.amazon.com/Tactical-Christmas-Anniversary-Boyfriend-Emergency/dp/B07WFPM9J6?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tactical-Christmas-Anniversary-Boyfriend-Emergency/dp/B07WFPM9J6?th=1?ie=UTF8&tag=giftable02-20)
 
-### [29\. Architect Bracelet](https://www.amazon.com/AKTAP-Engineer-Graduation-Architect-Engineering/dp/B07RXW9RDN?ie=UTF8&tag=avadalove-20)
+### [29\. Architect Bracelet](https://www.amazon.com/AKTAP-Engineer-Graduation-Architect-Engineering/dp/B07RXW9RDN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AKTAP-Engineer-Graduation-Architect-Engineering/dp/B07RXW9RDN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AKTAP-Engineer-Graduation-Architect-Engineering/dp/B07RXW9RDN?ie=UTF8&tag=giftable02-20)
 
 Feminism has grown fashionable, and women are now employed in a variety of new fields. Give all the female architects in your life this expanding bracelet. This bracelet is the ideal present for her.
 
@@ -541,11 +541,11 @@ Give this lovely bracelet to your female engineers as a token of your gratitude 
 
 ✔️ Perfect gift for engineers and architects to showcase their profession
 
-[Buy from Amazon](https://www.amazon.com/AKTAP-Engineer-Graduation-Architect-Engineering/dp/B07RXW9RDN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AKTAP-Engineer-Graduation-Architect-Engineering/dp/B07RXW9RDN?ie=UTF8&tag=giftable02-20)
 
-### [30\. 3D Assembly Wooden Puzzle](https://www.amazon.com/ROBOTIME-Laser-Cut-Locomotive-Mechanical-Boyfriend/dp/B076ZM1K6Z/?th=1?ie=UTF8&tag=avadalove-20)
+### [30\. 3D Assembly Wooden Puzzle](https://www.amazon.com/ROBOTIME-Laser-Cut-Locomotive-Mechanical-Boyfriend/dp/B076ZM1K6Z/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ROBOTIME-Laser-Cut-Locomotive-Mechanical-Boyfriend/dp/B076ZM1K6Z/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ROBOTIME-Laser-Cut-Locomotive-Mechanical-Boyfriend/dp/B076ZM1K6Z/?th=1?ie=UTF8&tag=giftable02-20)
 
 This is a well-designed DIY kit that necessitates some hands-on work to finish. The entire set is well-designed, with close tolerances and excellent workmanship. Your engineers will be astounded by the innovative interlocking mechanisms.
 
@@ -559,11 +559,11 @@ Without the use of glue or chemicals, the pieces are put together. The component
 
 ✔️ No glue required, easy to assemble with clear instructions provided
 
-[Buy from Amazon](https://www.amazon.com/ROBOTIME-Laser-Cut-Locomotive-Mechanical-Boyfriend/dp/B076ZM1K6Z/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ROBOTIME-Laser-Cut-Locomotive-Mechanical-Boyfriend/dp/B076ZM1K6Z/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [31\. Engineer Lined Notebook](https://www.amazon.com/Engineer-Arguing-Just-Explaining-Right/dp/1659522137/?ie=UTF8&tag=avadalove-20)
+### [31\. Engineer Lined Notebook](https://www.amazon.com/Engineer-Arguing-Just-Explaining-Right/dp/1659522137/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engineer-Arguing-Just-Explaining-Right/dp/1659522137/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engineer-Arguing-Just-Explaining-Right/dp/1659522137/?ie=UTF8&tag=giftable02-20)
 
 One of the engineer's most important tools is a notebook, which is used for technical sketches and sophisticated mathematical computations. Giving a cool engineer notebook to a recently minted or future engineer is a great way to show him how much you care.
 
@@ -577,11 +577,11 @@ Particularly for engineers who need to keep track of important notes, drawings, 
 
 ✔️ Compact and portable size for easy carrying and use on the go
 
-[Buy from Amazon](https://www.amazon.com/Engineer-Arguing-Just-Explaining-Right/dp/1659522137/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engineer-Arguing-Just-Explaining-Right/dp/1659522137/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Engineer Bracelet](https://www.amazon.com/FEELMEM-Engineer-Construction-Expandable-Engineering/dp/B07F8Y1WCV?ie=UTF8&tag=avadalove-20)
+### [32\. Engineer Bracelet](https://www.amazon.com/FEELMEM-Engineer-Construction-Expandable-Engineering/dp/B07F8Y1WCV?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/FEELMEM-Engineer-Construction-Expandable-Engineering/dp/B07F8Y1WCV?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/FEELMEM-Engineer-Construction-Expandable-Engineering/dp/B07F8Y1WCV?ie=UTF8&tag=giftable02-20)
 
 This engineer bangle features a unique design that the lucky engineer will adore. If your favorite engineer is a woman, this bracelet will show your admiration for her because a female building designer is unusual and cool - someone who solves problems you didn't know existed and uses ways you don't comprehend.
 
@@ -595,11 +595,11 @@ This Engineer Bracelet will arrive in a lovely wrapper, ready to give as a gift 
 
 ✔️ Made of high-quality stainless steel for durability and long-lasting shine
 
-[Buy from Amazon](https://www.amazon.com/FEELMEM-Engineer-Construction-Expandable-Engineering/dp/B07F8Y1WCV?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/FEELMEM-Engineer-Construction-Expandable-Engineering/dp/B07F8Y1WCV?ie=UTF8&tag=giftable02-20)
 
-### [33\. Engraved Quote Pen](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=avadalove-20)
+### [33\. Engraved Quote Pen](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=giftable02-20)
 
 This gorgeous pen is ideal for an architect who appreciates the finer points of a product. When he or she first sees the pen, he or she will be unable to overlook Nikola Tesla's famous motivating phrase.
 
@@ -613,11 +613,11 @@ When you examine the pen closely, you will notice the delicate elements that mak
 
 ✔️ Made of premium materials for durability and a luxurious feel
 
-[Buy from Amazon](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Nikola-Tesla-Engraved-Quote-Intellectuals/dp/B07KNMPLQX/?ie=UTF8&tag=giftable02-20)
 
-### [34\. Engineer Tumbler](https://www.amazon.com/Cpskup-Engineer-Stainless-Insulated-Christmas/dp/B08FWYXZW1?ie=UTF8&tag=avadalove-20)
+### [34\. Engineer Tumbler](https://www.amazon.com/Cpskup-Engineer-Stainless-Insulated-Christmas/dp/B08FWYXZW1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Cpskup-Engineer-Stainless-Insulated-Christmas/dp/B08FWYXZW1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Cpskup-Engineer-Stainless-Insulated-Christmas/dp/B08FWYXZW1?ie=UTF8&tag=giftable02-20)
 
 This food-grade stainless steel present for guys is strong and long-lasting. Its sweat-proof design keeps the surface of the men's travel tumbler dry at all times. The tumbler's shape and dimensions are compatible with cup holders. From spring to winter, this cup will go with your architect.
 
@@ -631,11 +631,11 @@ Whether it's summer or winter, it'll make a great gift for the engineers in your
 
 ✔️ Perfect size for on-the-go convenience, fits most cup holders
 
-[Buy from Amazon](https://www.amazon.com/Cpskup-Engineer-Stainless-Insulated-Christmas/dp/B08FWYXZW1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Cpskup-Engineer-Stainless-Insulated-Christmas/dp/B08FWYXZW1?ie=UTF8&tag=giftable02-20)
 
-### [35\. Engineers Black Book](https://www.amazon.com/Engineers-Black-Book-3rd-Inch/dp/0958057141/?ie=UTF8&tag=avadalove-20)
+### [35\. Engineers Black Book](https://www.amazon.com/Engineers-Black-Book-3rd-Inch/dp/0958057141/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engineers-Black-Book-3rd-Inch/dp/0958057141/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engineers-Black-Book-3rd-Inch/dp/0958057141/?ie=UTF8&tag=giftable02-20)
 
 This book is a Technical Engineering Resource Book that compiles the most regularly used engineering data into an easy-to-read, user-friendly manner. This handy pocketbook is jam-packed with current, valuable, practical, and hard-to-find data.
 
@@ -649,11 +649,11 @@ One of the most useful books for any engineer or tradesperson who enjoys working
 
 ✔️ Durable and high-quality construction for long-lasting usability
 
-[Buy from Amazon](https://www.amazon.com/Engineers-Black-Book-3rd-Inch/dp/0958057141/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engineers-Black-Book-3rd-Inch/dp/0958057141/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Leonardo da Vinci Catapult Kit](https://www.amazon.com/Leonardo-da-Vinci-Catapult-Kit/dp/B00CWMXU88?ie=UTF8&tag=avadalove-20)
+### [36\. Leonardo da Vinci Catapult Kit](https://www.amazon.com/Leonardo-da-Vinci-Catapult-Kit/dp/B00CWMXU88?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Leonardo-da-Vinci-Catapult-Kit/dp/B00CWMXU88?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Leonardo-da-Vinci-Catapult-Kit/dp/B00CWMXU88?ie=UTF8&tag=giftable02-20)
 
 This high-quality model is enjoyable to construct and much more enjoyable to use for model enthusiasts. It makes a lovely present and is a great way to unwind. Your favorite engineers' skills to create and build their own construction or vehicle will be honed with a building catapult kit.
 
@@ -667,11 +667,11 @@ It's more than a present. There are other brain puzzles in this set. The model c
 
 ✔️ Easy-to-follow instructions and all necessary components included for assembly
 
-[Buy from Amazon](https://www.amazon.com/Leonardo-da-Vinci-Catapult-Kit/dp/B00CWMXU88?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Leonardo-da-Vinci-Catapult-Kit/dp/B00CWMXU88?ie=UTF8&tag=giftable02-20)
 
-### [37\. Bamboo Cutting Board](https://www.amazon.com/Engineering-Engineer-Rectangle-Bamboo-Cutting/dp/B0163598NU?ie=UTF8&tag=avadalove-20)
+### [37\. Bamboo Cutting Board](https://www.amazon.com/Engineering-Engineer-Rectangle-Bamboo-Cutting/dp/B0163598NU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Engineering-Engineer-Rectangle-Bamboo-Cutting/dp/B0163598NU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Engineering-Engineer-Rectangle-Bamboo-Cutting/dp/B0163598NU?ie=UTF8&tag=giftable02-20)
 
 Engineers will appreciate this culinary equipment as a birthday or gag present. He or she can cut on one solid side while displaying the engraved side. All in one, you'll have a lovely piece of home décor as well as useful culinary equipment.
 
@@ -685,11 +685,11 @@ Bamboo is stronger, lighter, and more environmentally friendly than traditional 
 
 ✔️ Versatile cutting board suitable for various food preparation tasks
 
-[Buy from Amazon](https://www.amazon.com/Engineering-Engineer-Rectangle-Bamboo-Cutting/dp/B0163598NU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Engineering-Engineer-Rectangle-Bamboo-Cutting/dp/B0163598NU?ie=UTF8&tag=giftable02-20)
 
-### [38\. Math Wall Clock](https://www.amazon.com/Decodyne-Math-Wall-Clock-Equation/dp/B01IABQ4FU?ie=UTF8&tag=avadalove-20)
+### [38\. Math Wall Clock](https://www.amazon.com/Decodyne-Math-Wall-Clock-Equation/dp/B01IABQ4FU?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Decodyne-Math-Wall-Clock-Equation/dp/B01IABQ4FU?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Decodyne-Math-Wall-Clock-Equation/dp/B01IABQ4FU?ie=UTF8&tag=giftable02-20)
 
 This Math Wall Clock is a unique method to keep track of the hours. Instead of Roman numerals or standard numbers, each boundary is marked with a new equation. The wall clock's outstanding design ideally stimulates your designers to come up with a slew of fantastic ideas for their work.
 
@@ -703,11 +703,11 @@ The black and white color pattern gives the clock a chalkboard appearance and wi
 
 ✔️ Silent sweep movement for a noise-free and peaceful environment
 
-[Buy from Amazon](https://www.amazon.com/Decodyne-Math-Wall-Clock-Equation/dp/B01IABQ4FU?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Decodyne-Math-Wall-Clock-Equation/dp/B01IABQ4FU?ie=UTF8&tag=giftable02-20)
 
-### [39\. Engineer Mug](https://www.amazon.com/Kware-Engineer-Sensitive-Changing-Graduation/dp/B07FLP4N87/?th=1?ie=UTF8&tag=avadalove-20)
+### [39\. Engineer Mug](https://www.amazon.com/Kware-Engineer-Sensitive-Changing-Graduation/dp/B07FLP4N87/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kware-Engineer-Sensitive-Changing-Graduation/dp/B07FLP4N87/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kware-Engineer-Sensitive-Changing-Graduation/dp/B07FLP4N87/?th=1?ie=UTF8&tag=giftable02-20)
 
 Are you looking for a gift that your engineers will actually use and appreciate? You can use this Coffee Mug as a surprise for them. This mug contains more than just a humorous message. The image is properly printed to withstand microwave and dishwasher use.
 
@@ -721,11 +721,11 @@ After a long day of hard work, your building enthusiasts will be able to unwind 
 
 ✔️ Suitable for both hot and cold beverages, making it versatile and practical
 
-[Buy from Amazon](https://www.amazon.com/Kware-Engineer-Sensitive-Changing-Graduation/dp/B07FLP4N87/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kware-Engineer-Sensitive-Changing-Graduation/dp/B07FLP4N87/?th=1?ie=UTF8&tag=giftable02-20)
 
-### [40\. Funny Engineer T-Shirt](https://www.amazon.com/Enginer-Engineer-Engineering-Mechanical-Electrical/dp/B08LP554LS?ie=UTF8&tag=avadalove-20)
+### [40\. Funny Engineer T-Shirt](https://www.amazon.com/Enginer-Engineer-Engineering-Mechanical-Electrical/dp/B08LP554LS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Enginer-Engineer-Engineering-Mechanical-Electrical/dp/B08LP554LS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Enginer-Engineer-Engineering-Mechanical-Electrical/dp/B08LP554LS?ie=UTF8&tag=giftable02-20)
 
 Everyone's first option is always a comfortable and convenient t-shirt. A wonderful t-shirt like this would also make a great present for an engineer. This shirt is gently tapered to be a little less boxy than the old style of mass-market t-shirt, which we suggest for the designers in your circle.
 
@@ -739,7 +739,7 @@ This lightweight shirt has a casual wardrobe essential fit for comfy everyday we
 
 ✔️ Available in a range of sizes to ensure a perfect fit
 
-[Buy from Amazon](https://www.amazon.com/Enginer-Engineer-Engineering-Mechanical-Electrical/dp/B08LP554LS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Enginer-Engineer-Engineering-Mechanical-Electrical/dp/B08LP554LS?ie=UTF8&tag=giftable02-20)
 
 ### [41\. 20oz Stainless Steel Tumbler](https://loveable.us/products/debugging-definition-computer-programmer-20oz-stainless-steel-tumbler-gift-for-programmer-coder-309ihpbntu1040?variant=44845722632424?utm_source=avada&ranking=&utm_source=&utm_campaign=special-gifts-for-engineers-that-theyll-definitely-love)
 

@@ -75,7 +75,7 @@ You can have it in a unique style, like your initials on the monogram. Made of p
 
 [](https://loveable.ai/products/funny-men-boxer-for-mens-boxer-briefs-best-birthday-gifts-for-friends-boyfriend-husband-211ihplnmb548?variant=44133893964008?utm_source=avada&ranking=&utm_source=&utm_campaign=priceless-gag-gifts-for-husband-who-like-pranks)
 
-This funny men's boxer for men on special occasions is perfect for men who love having fun with their friends or family. Whether it's a birthday, anniversary, or even just a simple Friday night gathering, this is the **[perfect gift for men](https://avada.io/loveable/perfect-gift-him/)**.
+This funny men's boxer for men on special occasions is perfect for men who love having fun with their friends or family. Whether it's a birthday, anniversary, or even just a simple Friday night gathering, this is the **[perfect gift for men](/perfect-gift-him/)**.
 
 The elastic waistband provides a secure and comfortable hold without digging into the skin. The breathable fabric is a blend of cotton and polyester, offering softness and stretchability.
 
@@ -86,8 +86,6 @@ The elastic waistband provides a secure and comfortable hold without digging int
 ✔️ Makes you look handsome and sexy
 
 ✔️ A nice gesture to show appreciation and to say thank you
-
-Check out more: **[Best Gifts for Male Friends](https://avada.io/loveable/gifts-for-guy-friends/)**
 
 [Buy from Loveable](https://loveable.ai/products/funny-men-boxer-for-mens-boxer-briefs-best-birthday-gifts-for-friends-boyfriend-husband-211ihplnmb548?variant=44133893964008?utm_source=avada&ranking=&utm_source=&utm_campaign=priceless-gag-gifts-for-husband-who-like-pranks)
 
@@ -113,7 +111,7 @@ The two sides are the same image so even if it is flipped, the image still appea
 
 [](https://shop.loveable.ai/products/hello-will-you-i-do-map-customized-photo-with-name-personalized-canvas-prints-206hnthca226?variant=43368112980200?utm_source=avada&ranking=&utm_source=&utm_campaign=priceless-gag-gifts-for-husband-who-like-pranks)
 
-Whether you're going on **[a road trip](https://avada.io/loveable/road-trips-gifts/)** or are simply traveling for a romantic getaway, you'll want a way to celebrate those memories on the road.
+Whether you're going on **[a road trip](/road-trips-gifts/)** or are simply traveling for a romantic getaway, you'll want a way to celebrate those memories on the road.
 
 Personalized with your event information and names on the back, it makes a special keepsake for a couple to remember their special occasion. Choose the style and size you want, then add your own personal message to the top of the frame and choose your preferred colors and text style.
 
@@ -133,7 +131,7 @@ Personalized with your event information and names on the back, it makes a speci
 
 This exact reproduction of the brass version weights about a pound and is just as amusing as the original.
 
-You can STICK this to practically any flat surface with the provided two-pound mounting tape. Great for **[gag gifts](https://avada.io/loveable/gag-gifts-dad/)**, apartments, man caves, and any other humorous place you can think of.
+You can STICK this to practically any flat surface with the provided two-pound mounting tape. Great for **[gag gifts](/gag-gifts-dad/)**, apartments, man caves, and any other humorous place you can think of.
 
 **Pros:**
 
@@ -151,7 +149,7 @@ You can STICK this to practically any flat surface with the provided two-pound m
 
 Ink for the projector pen is black. Very great quality—brilliant it's and projects well, and it'll please your hubby for any special event.
 
-It's based on a legend, and it's built of wood to be the ultimate gag present with a comical penis. The tiger king pen is an ideal **[Valentine's Day gift](https://avada.io/loveable/valentine-gifts-for-husband/)**. It's a classic April Fools' joke and Father's Day present.
+It's based on a legend, and it's built of wood to be the ultimate gag present with a comical penis. The tiger king pen is an ideal **[Valentine's Day gift](/valentine-gifts-for-husband/)**. It's a classic April Fools' joke and Father's Day present.
 
 **Pros:**
 
@@ -163,9 +161,9 @@ It's based on a legend, and it's built of wood to be the ultimate gag present wi
 
 [Buy from Esty](https://www.etsy.com/listing/935748158/projector-pen-white-elephant-gag-gift)
 
-### [9\. Stainless Steel Tumbler](https://www.amazon.com/Macorner-Husband-Tumbler-Christmas-Gift/dp/B09C66FWVW/?ie=UTF8&tag=avadalove-20)
+### [9\. Stainless Steel Tumbler](https://www.amazon.com/Macorner-Husband-Tumbler-Christmas-Gift/dp/B09C66FWVW/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Macorner-Husband-Tumbler-Christmas-Gift/dp/B09C66FWVW/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Macorner-Husband-Tumbler-Christmas-Gift/dp/B09C66FWVW/?ie=UTF8&tag=giftable02-20)
 
 This beautiful stainless steel tumbler with vacuum insulation makes a wonderful present for newlyweds or older couples.
 
@@ -179,13 +177,13 @@ Tumbler is appropriate for both indoor and outdoor use. Ideal for drinking at ho
 
 ✔️ A long-lasting and reliable choice
 
-[Buy from Amazon](https://www.amazon.com/Macorner-Husband-Tumbler-Christmas-Gift/dp/B09C66FWVW/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Macorner-Husband-Tumbler-Christmas-Gift/dp/B09C66FWVW/?ie=UTF8&tag=giftable02-20)
 
 ### [10\. Belly Button Cleaner](https://www.etsy.com/listing/1342340681/belly-button-lint-brush-gag-gift?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Belly+Button+Cleaner&ref=sr_gallery-1-1&bes=1&organic_search_click=1)
 
 [](https://www.etsy.com/listing/1342340681/belly-button-lint-brush-gag-gift?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Belly+Button+Cleaner&ref=sr_gallery-1-1&bes=1&organic_search_click=1)
 
-This is a **[hilarious birthday present](https://avada.io/loveable/funny-birthday-gifts/)**. It's perfect for a large birthday or a secret Santa gift for your guy who has everything.
+This is a **[hilarious birthday present](/funny-birthday-gifts/)**. It's perfect for a large birthday or a secret Santa gift for your guy who has everything.
 
 This belly button cleaner is a great gift that is sure to make someone giggle. It has the potential to create some memorable moments! When your husband receives this humorous gift, he will laugh a lot and enjoy it. This adds to the fun of a party or any other occasion.
 
@@ -311,7 +309,7 @@ This is the ideal gag gift for your spouse, and he will adore it when he receive
 
 [](https://www.etsy.com/listing/1222341738/adorable-squishy-penis-stress-toy?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Squishy+penis+pal&ref=sr_gallery-1-1&bes=1&sts=1&organic_search_click=1)
 
-Small squishy penis gag present that looks great on a desk! It's also a terrific **[white elephant present](https://avada.io/loveable/funny-white-elephant-gift-ideas/)**.
+Small squishy penis gag present that looks great on a desk! It's also a terrific **[white elephant present](/funny-white-elephant-gift-ideas/)**.
 
 When you hit this tiny cute gift to your spouse while going to the bedroom, he will be surprised and laugh a lot. Ideal for everyday use, funny family get-togethers, and spouse joke gifts.
 
@@ -329,7 +327,7 @@ When you hit this tiny cute gift to your spouse while going to the bedroom, he w
 
 [](https://www.etsy.com/listing/1409698912/personalized-boxers-for-men-custom?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Personalized+Funny+Boxers&ref=sr_gallery-1-1&pro=1&organic_search_click=1)
 
-These wicked boxers are the ideal Valentine's Day **[present for your fiance](https://avada.io/loveable/gifts-fiance/)**, husband, or boyfriend! Give your boyfriend a gift he can use all year. Valentine's Day is renowned as the holiday of love...give him a gift he can use all year.
+These wicked boxers are the ideal Valentine's Day **[present for your fiance](/gifts-fiance/)**, husband, or boyfriend! Give your boyfriend a gift he can use all year. Valentine's Day is renowned as the holiday of love...give him a gift he can use all year.
 
 This pair of boxer underwear is comfortable and durable. Please leave a remark at checkout if you have a color preference. 
 

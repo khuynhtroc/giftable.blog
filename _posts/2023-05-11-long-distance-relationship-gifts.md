@@ -219,9 +219,9 @@ Our Custom Two State will remind your significant other that you are always ther
 
 [Buy from Loveable](https://loveable.ai/products/i-miss-your-face-long-distance-friendship-gift-custom-two-state-state-to-state-going-away-gift-for-best-friend-210icnnpap033?variant=43977473065192?utm_source=avada&ranking=&utm_source=&utm_campaign=best-long-distance-relationship-gifts-for-your-wonderful-journey)
 
-### [12\. I Love You The Most Throw Pillow Cover](https://www.amazon.com/XUWELL-Valentines-Distance-Relationship-Cushion/dp/B08RP2HVZ8?ie=UTF8&tag=avadalove-20)
+### [12\. I Love You The Most Throw Pillow Cover](https://www.amazon.com/XUWELL-Valentines-Distance-Relationship-Cushion/dp/B08RP2HVZ8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/XUWELL-Valentines-Distance-Relationship-Cushion/dp/B08RP2HVZ8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/XUWELL-Valentines-Distance-Relationship-Cushion/dp/B08RP2HVZ8?ie=UTF8&tag=giftable02-20)
 
 Bring comfort and warmth into someone's home with a unique throw pillow cover. This soft, colorful pillow cover features the words 'I Love You've embroidered across a red and black background.
 
@@ -235,11 +235,11 @@ Machine washable, durable, and long-lasting. It is a perfect long-distance relat
 
 ✔️ Useful gift ever
 
-[Buy from Amazon](https://www.amazon.com/XUWELL-Valentines-Distance-Relationship-Cushion/dp/B08RP2HVZ8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/XUWELL-Valentines-Distance-Relationship-Cushion/dp/B08RP2HVZ8?ie=UTF8&tag=giftable02-20)
 
-### [13\. Engraved State Map Disc Necklace](https://www.amazon.com/ProJewelry-Relationships-Personalized-Customized-Friendship/dp/B086JSWVLY/?ie=UTF8&tag=avadalove-20)
+### [13\. Engraved State Map Disc Necklace](https://www.amazon.com/ProJewelry-Relationships-Personalized-Customized-Friendship/dp/B086JSWVLY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ProJewelry-Relationships-Personalized-Customized-Friendship/dp/B086JSWVLY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ProJewelry-Relationships-Personalized-Customized-Friendship/dp/B086JSWVLY/?ie=UTF8&tag=giftable02-20)
 
 This beautiful custom-made necklace is engraved on the back of a unique state map of your choice, available from our suppliers. You can see examples here.
 
@@ -253,11 +253,11 @@ To make it extra special, we can add a special message too. Let the recipient sh
 
 ✔️ Gorgeous style for girlfriend
 
-[Buy from Amazon](https://www.amazon.com/ProJewelry-Relationships-Personalized-Customized-Friendship/dp/B086JSWVLY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ProJewelry-Relationships-Personalized-Customized-Friendship/dp/B086JSWVLY/?ie=UTF8&tag=giftable02-20)
 
-### [14\. BBTO Howlite Bracelet](https://www.amazon.com/BBTO-Howlite-Bracelet-Couples-Distance/dp/B07LGQSP95?ie=UTF8&tag=avadalove-20)
+### [14\. BBTO Howlite Bracelet](https://www.amazon.com/BBTO-Howlite-Bracelet-Couples-Distance/dp/B07LGQSP95?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BBTO-Howlite-Bracelet-Couples-Distance/dp/B07LGQSP95?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BBTO-Howlite-Bracelet-Couples-Distance/dp/B07LGQSP95?ie=UTF8&tag=giftable02-20)
 
 Long-distance relationships have a way of becoming more than just a phone call or an email away. This bracelet will help your significant other feel your presence.
 
@@ -271,11 +271,11 @@ The Howlite Bracelet is made from beautiful and versatile agate stone, providing
 
 ✔️ Combination of art
 
-[Buy from Amazon](https://www.amazon.com/BBTO-Howlite-Bracelet-Couples-Distance/dp/B07LGQSP95?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BBTO-Howlite-Bracelet-Couples-Distance/dp/B07LGQSP95?ie=UTF8&tag=giftable02-20)
 
-### [15\. Promise Distance Matching Bracelets](https://www.amazon.com/MANVEN-Bracelet-Bracelets-Boyfriend-Girlfriend/dp/B0827N69M7?ie=UTF8&tag=avadalove-20)
+### [15\. Promise Distance Matching Bracelets](https://www.amazon.com/MANVEN-Bracelet-Bracelets-Boyfriend-Girlfriend/dp/B0827N69M7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/MANVEN-Bracelet-Bracelets-Boyfriend-Girlfriend/dp/B0827N69M7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/MANVEN-Bracelet-Bracelets-Boyfriend-Girlfriend/dp/B0827N69M7?ie=UTF8&tag=giftable02-20)
 
 When you're going long distances, a little extra comfort and security never hurt. With these bracelets, you can promise the other person that you'll keep your hands warm, safe, and dry all the way across the country.
 
@@ -289,11 +289,11 @@ The special stuff is the pink ribbon and the hand stitching. Just think of the p
 
 ✔️ Lovely package
 
-[Buy from Amazon](https://www.amazon.com/MANVEN-Bracelet-Bracelets-Boyfriend-Girlfriend/dp/B0827N69M7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/MANVEN-Bracelet-Bracelets-Boyfriend-Girlfriend/dp/B0827N69M7?ie=UTF8&tag=giftable02-20)
 
-### [16\. Puzzle Keychain](https://www.amazon.com/Keychain-Couples-Distance-Relationships-Friendship/dp/B07BNG9Q7L?ie=UTF8&tag=avadalove-20)
+### [16\. Puzzle Keychain](https://www.amazon.com/Keychain-Couples-Distance-Relationships-Friendship/dp/B07BNG9Q7L?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Couples-Distance-Relationships-Friendship/dp/B07BNG9Q7L?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Couples-Distance-Relationships-Friendship/dp/B07BNG9Q7L?ie=UTF8&tag=giftable02-20)
 
 Long-distance couples can always enjoy something special together by taking home this amazing, puzzle-inspired keychain. The perfect long-distance relationship gift.
 
@@ -307,11 +307,11 @@ Simply place all the pieces in the correct order, then connect them to complete 
 
 ✔️ Symbolizes love connection
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Couples-Distance-Relationships-Friendship/dp/B07BNG9Q7L?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Couples-Distance-Relationships-Friendship/dp/B07BNG9Q7L?ie=UTF8&tag=giftable02-20)
 
-### [17\. DESIMTION Couples Bracelets](https://www.amazon.com/Bracelets-Boyfriend-Girlfriend-Distance-Relationships/dp/B08DD4L9FY/?ie=UTF8&tag=avadalove-20)
+### [17\. DESIMTION Couples Bracelets](https://www.amazon.com/Bracelets-Boyfriend-Girlfriend-Distance-Relationships/dp/B08DD4L9FY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bracelets-Boyfriend-Girlfriend-Distance-Relationships/dp/B08DD4L9FY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bracelets-Boyfriend-Girlfriend-Distance-Relationships/dp/B08DD4L9FY/?ie=UTF8&tag=giftable02-20)
 
 Get ready to keep your connection alive and strong through the entire universe. This exclusive piece is designed to bring together two people with a deep and meaningful bond, no matter how far they are apart.
 
@@ -325,7 +325,7 @@ This bracelet will be sure to make a strong impression on those you love and kee
 
 ✔️ Expresses deep affection
 
-[Buy from Amazon](https://www.amazon.com/Bracelets-Boyfriend-Girlfriend-Distance-Relationships/dp/B08DD4L9FY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bracelets-Boyfriend-Girlfriend-Distance-Relationships/dp/B08DD4L9FY/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Distance Means So Little Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/463422883/long-distance-relationshiplong-distance)
 
@@ -471,9 +471,9 @@ This is a perfect long-distance relationship gift. Simply add a name or names th
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/670093795/couple-name-morse-code-bracelet-couple)
 
-### [26\. Engraved Wood Keychain](https://www.amazon.com/gp/product/B083JS2RHK?ie=UTF8&tag=avadalove-20)
+### [26\. Engraved Wood Keychain](https://www.amazon.com/gp/product/B083JS2RHK?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B083JS2RHK?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B083JS2RHK?ie=UTF8&tag=giftable02-20)
 
 This keychain is a perfect long-distance relationship gift for boyfriends and girlfriends. Features the phrase "I love you more than the miles between us" engraved in the middle of the keychain. Your relationship will be filled with happiness and joy with this lovely keychain.
 
@@ -487,19 +487,19 @@ Whether you're planning to propose, celebrate a milestone in your relationship, 
 
 ✔️ Meaningful love symbols
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B083JS2RHK?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B083JS2RHK?ie=UTF8&tag=giftable02-20)
 
-### [27\. Kissing Mugs Set](https://www.amazon.com/gp/product/B01MSWMUG8/?ie=UTF8&tag=avadalove-20)
+### [27\. Kissing Mugs Set](https://www.amazon.com/gp/product/B01MSWMUG8/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B01MSWMUG8/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B01MSWMUG8/?ie=UTF8&tag=giftable02-20)
 
 Let's face it, the only thing that really makes a person feel loved is someone giving them a special kiss. That's why we created these gorgeous mugs, each one hand painted with a romantic kiss on one side, and an equally passionate 'Kiss Me' heart on the other. Just pour a cup of hot cocoa and place them close together in a quiet corner, and you'll be sharing a moment like no other! This is a high-quality gift that will definitely put a smile on someone’s face.
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B01MSWMUG8/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B01MSWMUG8/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Long Distance Mugs](https://www.amazon.com/BOLDLOFT-Distance-Relationships-Couples-Boyfriend/dp/B00F30G2UE/?ie=UTF8&tag=avadalove-20)
+### [28\. Long Distance Mugs](https://www.amazon.com/BOLDLOFT-Distance-Relationships-Couples-Boyfriend/dp/B00F30G2UE/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BOLDLOFT-Distance-Relationships-Couples-Boyfriend/dp/B00F30G2UE/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BOLDLOFT-Distance-Relationships-Couples-Boyfriend/dp/B00F30G2UE/?ie=UTF8&tag=giftable02-20)
 
 The no-distance mugs are a perfect long-distance relationship gift. The BOLDLOFT cups keep cold drinks cool for hours so that no matter how far apart you are, you will always be able to share in each other’s company.
 
@@ -513,11 +513,11 @@ Made from BPA-free plastic, these mugs are dishwasher-safe, and microwave-safe a
 
 ✔️ You may even get a few new friends along the way
 
-[Buy from Amazon](https://www.amazon.com/BOLDLOFT-Distance-Relationships-Couples-Boyfriend/dp/B00F30G2UE/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BOLDLOFT-Distance-Relationships-Couples-Boyfriend/dp/B00F30G2UE/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Friendship Lamp](https://www.amazon.com/Friendship-Lamp-Long-Distance-Connection-Relationship/dp/B07NF2Z192?ie=UTF8&tag=avadalove-20)
+### [29\. Friendship Lamp](https://www.amazon.com/Friendship-Lamp-Long-Distance-Connection-Relationship/dp/B07NF2Z192?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Friendship-Lamp-Long-Distance-Connection-Relationship/dp/B07NF2Z192?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Friendship-Lamp-Long-Distance-Connection-Relationship/dp/B07NF2Z192?ie=UTF8&tag=giftable02-20)
 
 The touch LED light lamp is a perfect long-distance relationship gift for Valentine's Day. The lamp is designed to be used as a lamp, a desk lamp, or a night light. It is ideal for use in dorm rooms, guest bedrooms, living rooms, or anywhere in the home.
 
@@ -531,11 +531,11 @@ The base of the lamp is an adjustable height armature stand with a safety lock, 
 
 ✔️ Unique and cherished
 
-[Buy from Amazon](https://www.amazon.com/Friendship-Lamp-Long-Distance-Connection-Relationship/dp/B07NF2Z192?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Friendship-Lamp-Long-Distance-Connection-Relationship/dp/B07NF2Z192?ie=UTF8&tag=giftable02-20)
 
-### [30\. PU Leather Keychain](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ/?ie=UTF8&tag=avadalove-20)
+### [30\. PU Leather Keychain](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ/?ie=UTF8&tag=giftable02-20)
 
 Give a long-distance relationship token of how special they are with this stainless-steel keychain with PU leather. A great gift for anyone living apart, or those about to experience it for the first time.
 
@@ -549,11 +549,11 @@ Great for lovers, newlyweds, sweethearts, and couples! With your name engraved o
 
 ✔️ Heart-themed accessories adored
 
-[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Keepsake-Stainless-Inspirational/dp/B09LLTQKTZ/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Love Personalized Map Framed Print](https://www.amazon.com/Distance-Personalized-Wedding-Keepsake-Engagement/dp/B08NWGLDFY?ie=UTF8&tag=avadalove-20)
+### [31\. Love Personalized Map Framed Print](https://www.amazon.com/Distance-Personalized-Wedding-Keepsake-Engagement/dp/B08NWGLDFY?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Distance-Personalized-Wedding-Keepsake-Engagement/dp/B08NWGLDFY?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Personalized-Wedding-Keepsake-Engagement/dp/B08NWGLDFY?ie=UTF8&tag=giftable02-20)
 
 What better way to show someone how much you care than by sending them a gift that lets them see where you are in the world? This long-distance love customized map framed print, complete with a blue ribbon and card, is sure to let her know how much she means to you.
 
@@ -567,11 +567,11 @@ Add an image of you and your sweetheart together on the back side of the frame a
 
 ✔️ Expresses passion warmly
 
-[Buy from Amazon](https://www.amazon.com/Distance-Personalized-Wedding-Keepsake-Engagement/dp/B08NWGLDFY?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Personalized-Wedding-Keepsake-Engagement/dp/B08NWGLDFY?ie=UTF8&tag=giftable02-20)
 
-### [32\. Homesick Premium Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-Love-Letters/dp/B08YP7S5W1?ie=UTF8&tag=avadalove-20)
+### [32\. Homesick Premium Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-Love-Letters/dp/B08YP7S5W1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homesick-Scented-Candle-Love-Letters/dp/B08YP7S5W1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homesick-Scented-Candle-Love-Letters/dp/B08YP7S5W1?ie=UTF8&tag=giftable02-20)
 
 Premium Scented Candle will add an uplifting, soothing smell to any room in your house. A perfect long-distance relationship gift. Give this scent as a token of your love and you will be thanked over and over.
 
@@ -585,11 +585,11 @@ Each candle is scented with sweet scents, including Lavender, Rose Petals, Cinna
 
 ✔️ Embraces love memories
 
-[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-Love-Letters/dp/B08YP7S5W1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-Love-Letters/dp/B08YP7S5W1?ie=UTF8&tag=giftable02-20)
 
-### [33\. Capsule Letters Message in a Bottle](https://www.amazon.com/INFMETRY-Capsule-Letters-Message-Bottle/dp/B0136A7PLM/?ie=UTF8&tag=avadalove-20)
+### [33\. Capsule Letters Message in a Bottle](https://www.amazon.com/INFMETRY-Capsule-Letters-Message-Bottle/dp/B0136A7PLM/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/INFMETRY-Capsule-Letters-Message-Bottle/dp/B0136A7PLM/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/INFMETRY-Capsule-Letters-Message-Bottle/dp/B0136A7PLM/?ie=UTF8&tag=giftable02-20)
 
 When you're in a long-distance relationship and you want to show them how much you care, nothing's better than a little bit of your heart. And nothing beats a handwritten note that's been waiting patiently in the mail for ages.
 
@@ -603,7 +603,7 @@ So, grab some pretty stationery and pen (or pencil) and send them an INFMETRY Ca
 
 ✔️ Fashionable love symbols
 
-[Buy from Amazon](https://www.amazon.com/INFMETRY-Capsule-Letters-Message-Bottle/dp/B0136A7PLM/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/INFMETRY-Capsule-Letters-Message-Bottle/dp/B0136A7PLM/?ie=UTF8&tag=giftable02-20)
 
 ### [34\. Miles Have Nothing on Us Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1141655496/long-distance-relationship-miles-have)
 
@@ -623,9 +623,9 @@ Show your love to someone who may have moved away with this stunning keychain fe
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1141655496/long-distance-relationship-miles-have)
 
-### [35\. SANNYRA Pinky Promise Bracelets](https://www.amazon.com/SANNYRA-Bracelets-Friendship-Alphabets-Pieces%EF%BC%8CValentines/dp/B08HMGKJDY/?ie=UTF8&tag=avadalove-20)
+### [35\. SANNYRA Pinky Promise Bracelets](https://www.amazon.com/SANNYRA-Bracelets-Friendship-Alphabets-Pieces%EF%BC%8CValentines/dp/B08HMGKJDY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/SANNYRA-Bracelets-Friendship-Alphabets-Pieces%EF%BC%8CValentines/dp/B08HMGKJDY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/SANNYRA-Bracelets-Friendship-Alphabets-Pieces%EF%BC%8CValentines/dp/B08HMGKJDY/?ie=UTF8&tag=giftable02-20)
 
 What does it mean to love someone so much, that you'd cross the country to spend time with them? Sannyra's Pinky Promise is one way to express your undying devotion and love. This beautiful, custom, pink and white friendship bracelet has letters across the front of the sterling silver clasp.
 
@@ -639,11 +639,11 @@ The design is finished with a heart and loop closure. With each matching pair of
 
 ✔️ Love-inspired jewelry worn
 
-[Buy from Amazon](https://www.amazon.com/SANNYRA-Bracelets-Friendship-Alphabets-Pieces%EF%BC%8CValentines/dp/B08HMGKJDY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/SANNYRA-Bracelets-Friendship-Alphabets-Pieces%EF%BC%8CValentines/dp/B08HMGKJDY/?ie=UTF8&tag=giftable02-20)
 
-### [36\. Tarsus Magnetic Couple Bracelet](https://www.amazon.com/Tarsus-Relationship-Bracelets-Boyfriend-Girlfriend/dp/B098TG7F93/?ie=UTF8&tag=avadalove-20)
+### [36\. Tarsus Magnetic Couple Bracelet](https://www.amazon.com/Tarsus-Relationship-Bracelets-Boyfriend-Girlfriend/dp/B098TG7F93/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tarsus-Relationship-Bracelets-Boyfriend-Girlfriend/dp/B098TG7F93/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tarsus-Relationship-Bracelets-Boyfriend-Girlfriend/dp/B098TG7F93/?ie=UTF8&tag=giftable02-20)
 
 The Tarsus couple bracelets are a perfect long-distance relationship gift. It gives you a chance to show your loved one how much you care. This bracelet will give your significant other a strong feeling and make him feel happy and special.
 
@@ -657,11 +657,11 @@ This bracelet will certainly help you to keep the bond between you strong. The b
 
 ✔️ Boosts love positivity
 
-[Buy from Amazon](https://www.amazon.com/Tarsus-Relationship-Bracelets-Boyfriend-Girlfriend/dp/B098TG7F93/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tarsus-Relationship-Bracelets-Boyfriend-Girlfriend/dp/B098TG7F93/?ie=UTF8&tag=giftable02-20)
 
-### [37\. Lovebox Color & Photo](https://www.amazon.com/gp/product/B08X4QW78J?ie=UTF8&tag=avadalove-20)
+### [37\. Lovebox Color & Photo](https://www.amazon.com/gp/product/B08X4QW78J?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B08X4QW78J?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B08X4QW78J?ie=UTF8&tag=giftable02-20)
 
 With this stunning design, you will make a lasting impression on anyone who receives this stunning Lovebox. This compact device connects to your home Wi-Fi and features a variety of different sound effects to express your affection with the push of a button.
 
@@ -675,11 +675,11 @@ The Lovebox has an LCD display that features a beautiful heart graphic and the a
 
 ✔️ Inspirational love accessories
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B08X4QW78J?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B08X4QW78J?ie=UTF8&tag=giftable02-20)
 
-### [38\. Reversible Decor Throw Pillow Case](https://www.amazon.com/Distance-Relationship-Reversible-Boyfriend-Girlfriend/dp/B09NPM1YXY/r?ie=UTF8&tag=avadalove-20)
+### [38\. Reversible Decor Throw Pillow Case](https://www.amazon.com/Distance-Relationship-Reversible-Boyfriend-Girlfriend/dp/B09NPM1YXY/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Distance-Relationship-Reversible-Boyfriend-Girlfriend/dp/B09NPM1YXY/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Relationship-Reversible-Boyfriend-Girlfriend/dp/B09NPM1YXY/r?ie=UTF8&tag=giftable02-20)
 
 We know how hard it can be to express your true feelings when your significant other is far away. We can help you solve that problem with the “Always Remember We are Under the Same Sky” throw pillow cover.
 
@@ -693,11 +693,11 @@ With it, you will feel close to him or her with each toss and turn, snore, cough
 
 ✔️ lovely way to remind them they're under the same sky
 
-[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Reversible-Boyfriend-Girlfriend/dp/B09NPM1YXY/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Relationship-Reversible-Boyfriend-Girlfriend/dp/B09NPM1YXY/r?ie=UTF8&tag=giftable02-20)
 
-### [39\. Conversation Cards Game for Couples](https://www.amazon.com/gp/product/B078RDNFSC/?ie=UTF8&tag=avadalove-20)
+### [39\. Conversation Cards Game for Couples](https://www.amazon.com/gp/product/B078RDNFSC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B078RDNFSC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B078RDNFSC/?ie=UTF8&tag=giftable02-20)
 
 The hilarious couple cards game is a perfect long-distance relationship gift. These cards come in a durable box and are printed on high-quality cardstock, making them an excellent gift. It is perfect for couples at all stages of a relationship.
 
@@ -711,11 +711,11 @@ This kind of game introduces a new twist on the traditional game of conversation
 
 ✔️ Stylish love statement
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B078RDNFSC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B078RDNFSC/?ie=UTF8&tag=giftable02-20)
 
-### [40\. Long Distance Friendship Lamps](https://www.amazon.com/Long-Distance-Friendship-Lamps-LuvLinkTM/dp/B09HRM2W6K?ie=UTF8&tag=avadalove-20)
+### [40\. Long Distance Friendship Lamps](https://www.amazon.com/Long-Distance-Friendship-Lamps-LuvLinkTM/dp/B09HRM2W6K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Long-Distance-Friendship-Lamps-LuvLinkTM/dp/B09HRM2W6K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Long-Distance-Friendship-Lamps-LuvLinkTM/dp/B09HRM2W6K?ie=UTF8&tag=giftable02-20)
 
 It's time to take your romance to the next level. Why wait? Start with these stunning romance lamps. The bright shades of these lamps are designed to focus and maximize candlelight. This beautiful gift will be appreciated for years to come.
 
@@ -729,11 +729,11 @@ Place the love light in a special spot and watch your loved one’s heart flutte
 
 ✔️ Expresses affection dearly
 
-[Buy from Amazon](https://www.amazon.com/Long-Distance-Friendship-Lamps-LuvLinkTM/dp/B09HRM2W6K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Long-Distance-Friendship-Lamps-LuvLinkTM/dp/B09HRM2W6K?ie=UTF8&tag=giftable02-20)
 
-### [41\. Tarsus Pinky Promise Couple Bracelets](https://www.amazon.com/Tarsus-Bracelets-Valentines-Girlfriend-Boyfriend/dp/B083NCSP9Z/?ie=UTF8&tag=avadalove-20)
+### [41\. Tarsus Pinky Promise Couple Bracelets](https://www.amazon.com/Tarsus-Bracelets-Valentines-Girlfriend-Boyfriend/dp/B083NCSP9Z/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Tarsus-Bracelets-Valentines-Girlfriend-Boyfriend/dp/B083NCSP9Z/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Tarsus-Bracelets-Valentines-Girlfriend-Boyfriend/dp/B083NCSP9Z/?ie=UTF8&tag=giftable02-20)
 
 This pinky promise bracelet is a symbol of loyalty, friendship, commitment, and everlasting love between lovers, friends, or family. A promise between two people that is strong and true will surely last for years to come, and this bracelet is a lovely way to seal the deal.
 
@@ -747,11 +747,11 @@ Hence, these Couple Bracelets are a perfect long-distance relationship gift. Eac
 
 ✔️ Heartfelt keepsakes cherished
 
-[Buy from Amazon](https://www.amazon.com/Tarsus-Bracelets-Valentines-Girlfriend-Boyfriend/dp/B083NCSP9Z/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Tarsus-Bracelets-Valentines-Girlfriend-Boyfriend/dp/B083NCSP9Z/?ie=UTF8&tag=giftable02-20)
 
-### [42\. Love Messages in a Bottle](https://www.amazon.com/Distance-Relationships-Boyfriend-Girlfriend-Pre-Written/dp/B08XY99QX4/?ie=UTF8&tag=avadalove-20)
+### [42\. Love Messages in a Bottle](https://www.amazon.com/Distance-Relationships-Boyfriend-Girlfriend-Pre-Written/dp/B08XY99QX4/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Distance-Relationships-Boyfriend-Girlfriend-Pre-Written/dp/B08XY99QX4/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Distance-Relationships-Boyfriend-Girlfriend-Pre-Written/dp/B08XY99QX4/?ie=UTF8&tag=giftable02-20)
 
 This bottle is a perfect long-distance relationship gift! The message in a bottle gives you the chance to send your own words to someone special, and you can select your message or create your own romantic poem to include in the bottle.
 
@@ -765,11 +765,11 @@ It is a unique gift that lets you express your love to someone far away by sendi
 
 ✔️ Personalized love tokens
 
-[Buy from Amazon](https://www.amazon.com/Distance-Relationships-Boyfriend-Girlfriend-Pre-Written/dp/B08XY99QX4/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Distance-Relationships-Boyfriend-Girlfriend-Pre-Written/dp/B08XY99QX4/?ie=UTF8&tag=giftable02-20)
 
-### [43\. Coordinates Copper Cuff Bracelet](https://www.amazon.com/gp/product/B079397257?ie=UTF8&tag=avadalove-20)
+### [43\. Coordinates Copper Cuff Bracelet](https://www.amazon.com/gp/product/B079397257?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B079397257?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B079397257?ie=UTF8&tag=giftable02-20)
 
 The copper bracelet is an original bracelet crafted in copper and designed to symbolize the love between people. Made of solid copper, this bracelet is a perfect long-distance relationship gift and an ideal gift for every occasion.
 
@@ -783,11 +783,11 @@ Crafted from copper, this cuff is finished with a brushed bronze accent to bring
 
 ✔️ Inspirational love symbols
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B079397257?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B079397257?ie=UTF8&tag=giftable02-20)
 
-### [44\. Fill-in-the-Blank Journal](https://www.amazon.com/gp/product/B078WTM12T/?ie=UTF8&tag=avadalove-20)
+### [44\. Fill-in-the-Blank Journal](https://www.amazon.com/gp/product/B078WTM12T/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/gp/product/B078WTM12T/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/gp/product/B078WTM12T/?ie=UTF8&tag=giftable02-20)
 
 This beautifully designed love letter book from Knock Knock will bring back those unforgettable memories of days when the world was a little sweeter.
 
@@ -801,7 +801,7 @@ Each page is filled with heartwarming words that will put a smile on your loved 
 
 ✔️ Expresses fondness sentimentally
 
-[Buy from Amazon](https://www.amazon.com/gp/product/B078WTM12T/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/gp/product/B078WTM12T/?ie=UTF8&tag=giftable02-20)
 
 ### [45\. Couple Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1161733439/distance-means-so-little-when-you-mean)
 
@@ -821,9 +821,9 @@ It is available in several different finishes so you are sure to find one that w
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1161733439/distance-means-so-little-when-you-mean)
 
-### [46\. Bond Touch Pair of Bracelets](https://www.amazon.com/BOND-TOUCH-Pair-Bracelets-Silver/dp/B07VBP4R7F/?ie=UTF8&tag=avadalove-20)
+### [46\. Bond Touch Pair of Bracelets](https://www.amazon.com/BOND-TOUCH-Pair-Bracelets-Silver/dp/B07VBP4R7F/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BOND-TOUCH-Pair-Bracelets-Silver/dp/B07VBP4R7F/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BOND-TOUCH-Pair-Bracelets-Silver/dp/B07VBP4R7F/?ie=UTF8&tag=giftable02-20)
 
 Long-distance relationships have a lot of ups and downs. They test friendships, they make or break careers, they test the limits of love, and they test patience. These silver loop connection bracelets are designed with care, with the love and support of your partner in mind.
 
@@ -837,11 +837,11 @@ You can wear them together, or separately. Wear them on different arms or wrists
 
 ✔️ Thoughtful distance reminders
 
-[Buy from Amazon](https://www.amazon.com/BOND-TOUCH-Pair-Bracelets-Silver/dp/B07VBP4R7F/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BOND-TOUCH-Pair-Bracelets-Silver/dp/B07VBP4R7F/?ie=UTF8&tag=giftable02-20)
 
-### [47\. Heart Of Two Places Map Wooden Plaque](https://www.amazon.com/dp/B0CF8GWDLJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+### [47\. Heart Of Two Places Map Wooden Plaque](https://www.amazon.com/dp/B0CF8GWDLJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B0CF8GWDLJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B0CF8GWDLJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 The Heart of Two Places Map Wooden Plaque is a poignant gift for couples in a long-distance relationship. It beautifully symbolizes the bond that love shares, no matter how far apart.
 
@@ -857,7 +857,7 @@ Crafted on a solid wooden plaque, the two locations' maps hold significant value
 
 ✔️ Personalization options
 
-[Buy from Amazon](https://www.amazon.com/dp/B0CF8GWDLJ?ref=myi_title_dp?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B0CF8GWDLJ?ref=myi_title_dp?ie=UTF8&tag=giftable02-20)
 
 ## Final thought
 

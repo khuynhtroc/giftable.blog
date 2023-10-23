@@ -159,9 +159,9 @@ There is nothing greater than summarizing your beloved person’s characteristic
 
 [Buy from Lovable](https://loveable.ai/products/custom-definition-mother-a-person-who-loves-unconditionally-a-character-builder-best-scented-soy-candle-gift-for-her-mother-daughter-girlfriends-209ihpthsc302?variant=43886946025704)
 
-### [10\. 6 Packs Aromatherapy Candle](https://www.amazon.com/Scented-Anniversary-Birthday-Aromatherapy-Graduation/dp/B088D2DPC8?ie=UTF8&tag=avadalove-20)
+### [10\. 6 Packs Aromatherapy Candle](https://www.amazon.com/Scented-Anniversary-Birthday-Aromatherapy-Graduation/dp/B088D2DPC8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scented-Anniversary-Birthday-Aromatherapy-Graduation/dp/B088D2DPC8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scented-Anniversary-Birthday-Aromatherapy-Graduation/dp/B088D2DPC8?ie=UTF8&tag=giftable02-20)
 
 If a personalized candle pack with 8 ones is too much and 4 ones are too little, an aromatherapy candle combo with 6 ones is exactly the perfect choice for you. A durable box collects 6 candles which are contained in a gorgeous ceramic jar designed with vivid elements that wouldn't disappoint you.
 
@@ -173,11 +173,11 @@ If a personalized candle pack with 8 ones is too much and 4 ones are too little,
 
 ✔️ Gift for several occasions
 
-[Buy from Amazon](https://www.amazon.com/Scented-Anniversary-Birthday-Aromatherapy-Graduation/dp/B088D2DPC8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scented-Anniversary-Birthday-Aromatherapy-Graduation/dp/B088D2DPC8?ie=UTF8&tag=giftable02-20)
 
-### [11\. 8 Pack Scented Candles Gifts](https://www.amazon.com/Scented-Aromatherapy-Portable-Birthday-Romantic/dp/B08GSQVML7?ie=UTF8&tag=avadalove-20)
+### [11\. 8 Pack Scented Candles Gifts](https://www.amazon.com/Scented-Aromatherapy-Portable-Birthday-Romantic/dp/B08GSQVML7?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Scented-Aromatherapy-Portable-Birthday-Romantic/dp/B08GSQVML7?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Scented-Aromatherapy-Portable-Birthday-Romantic/dp/B08GSQVML7?ie=UTF8&tag=giftable02-20)
 
 This pack of personalized candles could be a suitable selection as a gift for a family or some people wanting to try various scents and find their favorite. Each candle in this pack represents an attractive fragrance with marvelous flower elements outside and would be a multi-function as candle and decoration for your room.
 
@@ -189,11 +189,11 @@ This pack of personalized candles could be a suitable selection as a gift for a 
 
 ✔️ Perfect for a family gift
 
-[Buy from Amazon](https://www.amazon.com/Scented-Aromatherapy-Portable-Birthday-Romantic/dp/B08GSQVML7?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Scented-Aromatherapy-Portable-Birthday-Romantic/dp/B08GSQVML7?ie=UTF8&tag=giftable02-20)
 
-### [12\. Owl Candles](https://www.amazon.com/Kinforse-Scented-Candles-Warming-Novelty/dp/B09DTYCT59/?ie=UTF8&tag=avadalove-20)
+### [12\. Owl Candles](https://www.amazon.com/Kinforse-Scented-Candles-Warming-Novelty/dp/B09DTYCT59/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Kinforse-Scented-Candles-Warming-Novelty/dp/B09DTYCT59/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Kinforse-Scented-Candles-Warming-Novelty/dp/B09DTYCT59/?ie=UTF8&tag=giftable02-20)
 
 Anyone crazy about something bringing sweety and cute vibes can not ignore the magnificent beauty of delightful personalized candles. These loveable cowls are created with delicate designs with vivid colors and make your experience when using these candles become extremely great than any others.
 
@@ -205,11 +205,11 @@ Anyone crazy about something bringing sweety and cute vibes can not ignore the m
 
 ✔️ Amazing idea gift
 
-[Buy from Amazon](https://www.amazon.com/Kinforse-Scented-Candles-Warming-Novelty/dp/B09DTYCT59/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Kinforse-Scented-Candles-Warming-Novelty/dp/B09DTYCT59/?ie=UTF8&tag=giftable02-20)
 
-### [13\. Aromatherapy Candles](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9?ie=UTF8&tag=avadalove-20)
+### [13\. Aromatherapy Candles](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9?ie=UTF8&tag=giftable02-20)
 
 If you fall in love with amazing personalized candles but want to try different kinds of scents hidden in each candle, don’t hesitate to choose this aromatherapy candle. You would receive a box which is a collection gathering 4 tendency kinds of scents from Lavender, Lemon, and even Mediterranean Fig scented candles.
 
@@ -221,11 +221,11 @@ If you fall in love with amazing personalized candles but want to try different 
 
 ✔️ High-quality soy wax
 
-[Buy from Amazon](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/YINUO-LIGHT-Aromatherapy-Upgraded-Lavender/dp/B07TC7FYG9?ie=UTF8&tag=giftable02-20)
 
-### [14\. Pavilion Gift Candle](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+### [14\. Pavilion Gift Candle](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
 Let’s add some pure and peaceful vibes to your room with these personalized ceramic candles. It’s a great choice for you to light up a small fire and transfer messages printed on it that every one existing in our life represents to a fire. Even when that fire has gone, their good marks will maintain forever in our life because of their good personality.
 
@@ -237,11 +237,11 @@ Let’s add some pure and peaceful vibes to your room with these personalized ce
 
 ✔️ Good for gifting
 
-[Buy from Amazon](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Light-Your-Way-Memorial-19176/dp/B06XDSH2H1?ie=UTF8&tag=giftable02-20)
 
-### [15\. Coconut Candles](https://www.amazon.com/dp/B001L2MD2E?th=1?ie=UTF8&tag=avadalove-20)
+### [15\. Coconut Candles](https://www.amazon.com/dp/B001L2MD2E?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B001L2MD2E?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B001L2MD2E?th=1?ie=UTF8&tag=giftable02-20)
 
 Anyone who falls in love with coconut couldn’t ignore this kind of personalized candle. This coconut candle bringing for you a natural scent with several artistic flower elements and an elegant design exactly could make you enjoy and immerse yourself in it.
 
@@ -253,11 +253,11 @@ Anyone who falls in love with coconut couldn’t ignore this kind of personalize
 
 ✔️ Personalized your jar
 
-[Buy from Amazon](https://www.amazon.com/dp/B001L2MD2E?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B001L2MD2E?th=1?ie=UTF8&tag=giftable02-20)
 
-### [16\. Yankee Candle](https://www.amazon.com/dp/B001L2MD2E?ie=UTF8&tag=avadalove-20)
+### [16\. Yankee Candle](https://www.amazon.com/dp/B001L2MD2E?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B001L2MD2E?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B001L2MD2E?ie=UTF8&tag=giftable02-20)
 
 Sparkling cinnamon is the scent attracting tremendous love from several customers. Filled with sweet cherry red candle wax with the top scent - Sparkling cinnamon and various kinds of the jar, this personalized Yankee Candle is sure to satisfy any standard of customers.
 
@@ -269,11 +269,11 @@ Sparkling cinnamon is the scent attracting tremendous love from several customer
 
 ✔️ Personalized kind of jar
 
-[Buy from Amazon](https://www.amazon.com/dp/B001L2MD2E?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B001L2MD2E?ie=UTF8&tag=giftable02-20)
 
-### [17\. To My Bestie Candle](https://www.amazon.com/My-Bestie-Candle-Holder-Personalized/dp/B091FBQKMM?ie=UTF8&tag=avadalove-20)
+### [17\. To My Bestie Candle](https://www.amazon.com/My-Bestie-Candle-Holder-Personalized/dp/B091FBQKMM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/My-Bestie-Candle-Holder-Personalized/dp/B091FBQKMM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/My-Bestie-Candle-Holder-Personalized/dp/B091FBQKMM?ie=UTF8&tag=giftable02-20)
 
 Have you ever made a purposeful promise to your bestie on a daily basis? Let's personalized candles be your darling witness in that agreement. This candle is engraved with thoughtful hand signals and made from vintage solid wood to reflect a beautiful relationship built based on trust and love.
 
@@ -285,11 +285,11 @@ Have you ever made a purposeful promise to your bestie on a daily basis? Let's p
 
 ✔️ Double candles burnt
 
-[Buy from Amazon](https://www.amazon.com/My-Bestie-Candle-Holder-Personalized/dp/B091FBQKMM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/My-Bestie-Candle-Holder-Personalized/dp/B091FBQKMM?ie=UTF8&tag=giftable02-20)
 
-### [18\. Handcrafted Soy Candle](https://www.amazon.com/Personalized-Handcrafted-Candle-Scents-Choose/dp/B088CXZQXH/?ie=UTF8&tag=avadalove-20)
+### [18\. Handcrafted Soy Candle](https://www.amazon.com/Personalized-Handcrafted-Candle-Scents-Choose/dp/B088CXZQXH/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Personalized-Handcrafted-Candle-Scents-Choose/dp/B088CXZQXH/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Personalized-Handcrafted-Candle-Scents-Choose/dp/B088CXZQXH/?ie=UTF8&tag=giftable02-20)
 
 Wanting to add some vintage vibes to your vintage structure room? Let’s enjoy the romantic atmosphere created by this handcrafted soy candle. Warm brown combined with a small rope and astonishing scents brings you not only an amazing decoration but also a lovely “friend” after a stressful day.
 
@@ -301,7 +301,7 @@ Wanting to add some vintage vibes to your vintage structure room? Let’s enjoy 
 
 ✔️ Durable jar
 
-[Buy from Amazon](https://www.amazon.com/Personalized-Handcrafted-Candle-Scents-Choose/dp/B088CXZQXH/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Personalized-Handcrafted-Candle-Scents-Choose/dp/B088CXZQXH/?ie=UTF8&tag=giftable02-20)
 
 ### [19\. Wedding Gift Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/968297427/wedding-gift-for-couple-personalised)
 

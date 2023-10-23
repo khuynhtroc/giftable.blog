@@ -219,9 +219,9 @@ With a compact size of 2 inches in length and 1.2 inches in width, it's the perf
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1068872041/i-use-to-be-married-but-i-am-so-much)
 
-### [12\. Vintage Writing Journal](https://www.amazon.com/Refillable-Notebook-Bloggers-Teachers-Students/dp/B00ZW9265G?ie=UTF8&tag=avadalove-20)
+### [12\. Vintage Writing Journal](https://www.amazon.com/Refillable-Notebook-Bloggers-Teachers-Students/dp/B00ZW9265G?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Refillable-Notebook-Bloggers-Teachers-Students/dp/B00ZW9265G?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Refillable-Notebook-Bloggers-Teachers-Students/dp/B00ZW9265G?ie=UTF8&tag=giftable02-20)
 
 When your ex-writing wife's journal is not in use, the cover has a cord to keep it closed. Enjoy the new assortment of notebooks and journals from the office supplies category, which includes everything she needs for keeping track of important information or for everyday use.
 
@@ -235,7 +235,7 @@ This traveler's notebook was created with the intention of creating a classic Mi
 
 ✔️ Compact and portable size for easy carrying on the go
 
-[Buy from Amazon](https://www.amazon.com/Refillable-Notebook-Bloggers-Teachers-Students/dp/B00ZW9265G?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Refillable-Notebook-Bloggers-Teachers-Students/dp/B00ZW9265G?ie=UTF8&tag=giftable02-20)
 
 ### [13\. The Perfect Pair Necklace](https://shop.loveable.ai/products/we-belong-together-sorry-gifts-wife-necklace?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-to-give-your-ex-wife-if-you-really-need-to-do-so)
 
@@ -255,9 +255,9 @@ It’s crafted in **[platinum](/platinum-anniversary-gifts/)** and hangs from a 
 
 [Buy from Loveable](https://shop.loveable.ai/products/we-belong-together-sorry-gifts-wife-necklace?utm_source=avada&ranking=&utm_source=&utm_campaign=best-gifts-to-give-your-ex-wife-if-you-really-need-to-do-so)
 
-### [14\. Wearable Fleece Blanket](https://www.amazon.com/Catalonia-Wearable-Blanket-Sleeves-Pockets/dp/B07YLK3RKJ?ie=UTF8&tag=avadalove-20)
+### [14\. Wearable Fleece Blanket](https://www.amazon.com/Catalonia-Wearable-Blanket-Sleeves-Pockets/dp/B07YLK3RKJ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Catalonia-Wearable-Blanket-Sleeves-Pockets/dp/B07YLK3RKJ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Catalonia-Wearable-Blanket-Sleeves-Pockets/dp/B07YLK3RKJ?ie=UTF8&tag=giftable02-20)
 
 Warm feet with a fleece blanket with arms and built-in foot pockets. Sleeves protect shoulders and arms while keeping hands free, and they won't fall down. The door opens from the back. During the winter, keep toasty from head to toe whether reading, playing, or watching TV on a bed, sofa, etc.
 
@@ -271,7 +271,7 @@ Carry your phone or controller in the front pouch. It's also constructed of 100 
 
 ✔️ Made from high-quality and soft materials for warmth and durability
 
-[Buy from Amazon](https://www.amazon.com/Catalonia-Wearable-Blanket-Sleeves-Pockets/dp/B07YLK3RKJ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Catalonia-Wearable-Blanket-Sleeves-Pockets/dp/B07YLK3RKJ?ie=UTF8&tag=giftable02-20)
 
 ### [15\. You Are The Best Thing I Ever Found On The Internet Mug](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1400484525/you-are-the-best-thing-i-ever-found-on)
 
@@ -291,9 +291,9 @@ With a generous 11-ounce capacity, it's the perfect size for enjoying your favor
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1400484525/you-are-the-best-thing-i-ever-found-on)
 
-### [16\. World’s Greatest Ex-Wife Mug](https://www.amazon.com/Greatest-Ex-Wife-Novelty-Mothers-Grandma/dp/B075MX7KN5?ie=UTF8&tag=avadalove-20)
+### [16\. World’s Greatest Ex-Wife Mug](https://www.amazon.com/Greatest-Ex-Wife-Novelty-Mothers-Grandma/dp/B075MX7KN5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Greatest-Ex-Wife-Novelty-Mothers-Grandma/dp/B075MX7KN5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Greatest-Ex-Wife-Novelty-Mothers-Grandma/dp/B075MX7KN5?ie=UTF8&tag=giftable02-20)
 
 This mug is designed to make your ex-wife smile and show her that she is cherished. Mugs are printed on both sides, making them suitable for both rights and left-handed people.
 
@@ -307,11 +307,11 @@ Furthermore, this coffee mug is an excellent drinking vessel. The smooth white c
 
 ✔️ Dishwasher and microwave safe for easy cleaning and convenient use
 
-[Buy from Amazon](https://www.amazon.com/Greatest-Ex-Wife-Novelty-Mothers-Grandma/dp/B075MX7KN5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Greatest-Ex-Wife-Novelty-Mothers-Grandma/dp/B075MX7KN5?ie=UTF8&tag=giftable02-20)
 
-### [17\. You’re My Favorite Asshole Keychain](https://www.amazon.com/LParkin-You-Favorite-Asshole-Keychain/dp/B078Z7QQF7/?ie=UTF8&tag=avadalove-20)
+### [17\. You’re My Favorite Asshole Keychain](https://www.amazon.com/LParkin-You-Favorite-Asshole-Keychain/dp/B078Z7QQF7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/LParkin-You-Favorite-Asshole-Keychain/dp/B078Z7QQF7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/LParkin-You-Favorite-Asshole-Keychain/dp/B078Z7QQF7/?ie=UTF8&tag=giftable02-20)
 
 Who will be grateful for this gift? You are the only one who truly understands that individual. Someone you know is sure to appreciate this hand-stamped, brilliantly hilarious keychain, which is corrosion-resistant, hypoallergenic, and won't tarnish. It's your ex-wife we're talking about.
 
@@ -325,7 +325,7 @@ This witty keychain is a great present for any occasion. It comes packaged in a 
 
 ✔️ Great gift idea for friends, family, or anyone with a sense of humor
 
-[Buy from Amazon](https://www.amazon.com/LParkin-You-Favorite-Asshole-Keychain/dp/B078Z7QQF7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/LParkin-You-Favorite-Asshole-Keychain/dp/B078Z7QQF7/?ie=UTF8&tag=giftable02-20)
 
 ### [18\. My Last Fuck Funny Candle](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1276845623/my-last-fuck-candle-funny-candles-no)
 

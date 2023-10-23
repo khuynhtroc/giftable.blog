@@ -85,9 +85,9 @@ Your crayon letter will coordinate with the colour scheme of the theme card. Fee
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1434923286/name-crayons-crayon-letters-mini-block)
 
-### [5\. Graphite Wooden Tree Rustic Twig Pencils](https://www.amazon.com/BSIRI-Graphite-Pencils-Camping-Lumberjack/dp/B073GPSHWQ?ie=UTF8&tag=avadalove-20)
+### [5\. Graphite Wooden Tree Rustic Twig Pencils](https://www.amazon.com/BSIRI-Graphite-Pencils-Camping-Lumberjack/dp/B073GPSHWQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BSIRI-Graphite-Pencils-Camping-Lumberjack/dp/B073GPSHWQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BSIRI-Graphite-Pencils-Camping-Lumberjack/dp/B073GPSHWQ?ie=UTF8&tag=giftable02-20)
 
 Embrace the charm of nature with "Graphite Wooden Tree Rustic Twig Pencils," where creativity blooms and ideas take root with every stroke!
 
@@ -101,7 +101,7 @@ This delightful set of 12 wooden pencils is specially designed for kids, promisi
 
 ✔️ Ideal gift for artists and budding writers
 
-[Buy from Amazon](https://www.amazon.com/BSIRI-Graphite-Pencils-Camping-Lumberjack/dp/B073GPSHWQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BSIRI-Graphite-Pencils-Camping-Lumberjack/dp/B073GPSHWQ?ie=UTF8&tag=giftable02-20)
 
 ### [6\. Personalized Name Sign Wooden Art](https://loveable.ai/products/birthday-gift-idea-for-himher-name-sign-dorm-decor-office-decor-personalized-2-layeres-wooden-art-pieces-208hnbnlp501?variant=43671713251560?utm_source=avada&ranking=&utm_source=&utm_campaign=best-inexpensive-gifts-for-students-from-teachers-that-theyll-surely-happy)
 
@@ -225,9 +225,9 @@ As an End-of-the-School-Year Student Gift, Personalised Wish Bracelets will be m
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/788511812/rushed-personalized-end-of-year-school)
 
-### [13\. Dr. Seuss Cat in the Hat Postcards for Teachers](https://www.amazon.com/Eureka-School-Seuss-Postcards-Teachers/dp/B00290O6AE?ie=UTF8&tag=avadalove-20)
+### [13\. Dr. Seuss Cat in the Hat Postcards for Teachers](https://www.amazon.com/Eureka-School-Seuss-Postcards-Teachers/dp/B00290O6AE?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Eureka-School-Seuss-Postcards-Teachers/dp/B00290O6AE?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Eureka-School-Seuss-Postcards-Teachers/dp/B00290O6AE?ie=UTF8&tag=giftable02-20)
 
 You will receive 36 postcards with artwork by Dr. Seuss.Each mailable Dr.Seuss postcard measures 4 inches wide by 6 inches high, so you can keep parents updated on your child's academic progress.
 
@@ -241,7 +241,7 @@ This bright teacher stationery is perfect for communicating with parents, planni
 
 ✔️ Convenient mailable format
 
-[Buy from Amazon](https://www.amazon.com/Eureka-School-Seuss-Postcards-Teachers/dp/B00290O6AE?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Eureka-School-Seuss-Postcards-Teachers/dp/B00290O6AE?ie=UTF8&tag=giftable02-20)
 
 ### [14\. Pop it Bracelet’s Customized with YOUR GRADE](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1215007303/gifts-for-students-end-of-year-gifts-for)
 
@@ -261,9 +261,9 @@ Here's a one-of-a-kind gift for your pupils when the school year comes to a clos
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1215007303/gifts-for-students-end-of-year-gifts-for)
 
-### [15\. Wood Economy Meterstick](https://www.amazon.com/ETA-hand2mind-Meterstick-Yardstick-Classroom/dp/B01D9KHONS?ie=UTF8&tag=avadalove-20)
+### [15\. Wood Economy Meterstick](https://www.amazon.com/ETA-hand2mind-Meterstick-Yardstick-Classroom/dp/B01D9KHONS?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ETA-hand2mind-Meterstick-Yardstick-Classroom/dp/B01D9KHONS?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ETA-hand2mind-Meterstick-Yardstick-Classroom/dp/B01D9KHONS?ie=UTF8&tag=giftable02-20)
 
 For use in the classroom, the d Economy Meterstick/Yardstick is convenient and accurate. Each side features a different scale in either centimetres or inches. Strong wood is used to construct this long-lasting instrument. Were sized at 39.3" x 1" x 1/8"The ten-pack will come in handy for a wide variety of applications, including but not limited to: mathematics, design, art, and craft.
 
@@ -275,7 +275,7 @@ For use in the classroom, the d Economy Meterstick/Yardstick is convenient and a
 
 ✔️ Pack of 10 for a cost-effective solution
 
-[Buy from Amazon](https://www.amazon.com/ETA-hand2mind-Meterstick-Yardstick-Classroom/dp/B01D9KHONS?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ETA-hand2mind-Meterstick-Yardstick-Classroom/dp/B01D9KHONS?ie=UTF8&tag=giftable02-20)
 
 ### [16\. Last Day of School Printable Tag](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1237485207/last-day-of-school-printable-tag)
 
@@ -311,9 +311,9 @@ It's important to make sure kids stay hydrated throughout the hot summer months.
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1006732634/end-of-the-year-student-gift-kids-water)
 
-### [18\. Cute Cat Paw Pencil Sharpener](https://www.amazon.com/Sharpener-Supplies-Student-Practical-Durable/dp/B098PYKHD9?ie=UTF8&tag=avadalove-20)
+### [18\. Cute Cat Paw Pencil Sharpener](https://www.amazon.com/Sharpener-Supplies-Student-Practical-Durable/dp/B098PYKHD9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Sharpener-Supplies-Student-Practical-Durable/dp/B098PYKHD9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Sharpener-Supplies-Student-Practical-Durable/dp/B098PYKHD9?ie=UTF8&tag=giftable02-20)
 
 The adorable pencil sharpener has a cat paw design. They are both useful and long-lasting school supplies for students, as well as prized presents for children. You can already tell that your students are overjoyed by these new sharpeners. When they take it to class or use it at home, they'll think of you.
 
@@ -325,7 +325,7 @@ The adorable pencil sharpener has a cat paw design. They are both useful and lon
 
 ✔️ Durable construction
 
-[Buy from Amazon](https://www.amazon.com/Sharpener-Supplies-Student-Practical-Durable/dp/B098PYKHD9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Sharpener-Supplies-Student-Practical-Durable/dp/B098PYKHD9?ie=UTF8&tag=giftable02-20)
 
 ### [19\. GoodbyeWelcomeHello Friendship Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1204365962/goodbyewelcomehello-friendship-bracelet)
 
@@ -363,9 +363,9 @@ Each bracelet comes in its own clear bag, sealed with a lovely label. To wish so
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1227473649/pop-it-bracelet-end-of-the-year-gifts)
 
-### [21\. Mini Geared Clock](https://www.amazon.com/ETA-hand2mind-Geared-Clocks-Classroom/dp/B00S6C3VR8?ie=UTF8&tag=avadalove-20)
+### [21\. Mini Geared Clock](https://www.amazon.com/ETA-hand2mind-Geared-Clocks-Classroom/dp/B00S6C3VR8?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ETA-hand2mind-Geared-Clocks-Classroom/dp/B00S6C3VR8?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ETA-hand2mind-Geared-Clocks-Classroom/dp/B00S6C3VR8?ie=UTF8&tag=giftable02-20)
 
 These simple 12-hour clocks are perfect for teaching kids how to keep track of time. Each classroom clock measures 4 inches across and features movable hands to help younger students conceptualise time.
 
@@ -379,7 +379,7 @@ The red hand of the learning time clock represents the hour, while the blue hand
 
 ✔️ Realistic analog clock experience
 
-[Buy from Amazon](https://www.amazon.com/ETA-hand2mind-Geared-Clocks-Classroom/dp/B00S6C3VR8?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ETA-hand2mind-Geared-Clocks-Classroom/dp/B00S6C3VR8?ie=UTF8&tag=giftable02-20)
 
 ### [22\. School Leaver 2022 Keyring Gifts](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1225834394/school-leaver-2022-keyring-gifts-teacher)
 
@@ -415,9 +415,9 @@ These Personalised End of Year Bookmarks are perfect if you want to give your st
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1212733580/personalised-end-of-year-bookmarks)
 
-### [24\. 21 Pack Mini Cubes](https://www.amazon.com/AROIC-Puzzle-Favors%EF%BC%8CBirthday-Supplies-Pieces/dp/B07YYFHBPH/r?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. 21 Pack Mini Cubes](https://www.amazon.com/AROIC-Puzzle-Favors%EF%BC%8CBirthday-Supplies-Pieces/dp/B07YYFHBPH/r?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AROIC-Puzzle-Favors%EF%BC%8CBirthday-Supplies-Pieces/dp/B07YYFHBPH/r?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AROIC-Puzzle-Favors%EF%BC%8CBirthday-Supplies-Pieces/dp/B07YYFHBPH/r?th=1?ie=UTF8&tag=giftable02-20)
 
 The 21 Mini Magic Cube is only one of the many educational toys available in this set constructed from non-toxic, odourless ABS plastic. Each cube measures about 1.18 inches, making them a convenient option for relieving boredom and stress. Children's memory, problem-solving skills, and manual dexterity can all use a boost, and this toy can provide it. Those would make wonderful presents for your pupils.
 
@@ -429,7 +429,7 @@ The 21 Mini Magic Cube is only one of the many educational toys available in thi
 
 ✔️ Portable and stress-relieving
 
-[Buy from Amazon](https://www.amazon.com/AROIC-Puzzle-Favors%EF%BC%8CBirthday-Supplies-Pieces/dp/B07YYFHBPH/r?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AROIC-Puzzle-Favors%EF%BC%8CBirthday-Supplies-Pieces/dp/B07YYFHBPH/r?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Personalised Wooden Bookmark](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1066808853/personalised-wooden-bookmark-gift-idea)
 
@@ -447,9 +447,9 @@ These lovely handcrafted wooden bookmarks can be personalised with a name and a 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1066808853/personalised-wooden-bookmark-gift-idea)
 
-### [26\. Funny 3D Cartoon Bookmark Animals Reading Bookmarks](https://www.amazon.com/Bookmarks-Wakaka-Bookmark-Students-Stationery/dp/B08M5NS2PR/?th=1?ie=UTF8&tag=avadalove-20)
+### [26\. Funny 3D Cartoon Bookmark Animals Reading Bookmarks](https://www.amazon.com/Bookmarks-Wakaka-Bookmark-Students-Stationery/dp/B08M5NS2PR/?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Bookmarks-Wakaka-Bookmark-Students-Stationery/dp/B08M5NS2PR/?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Bookmarks-Wakaka-Bookmark-Students-Stationery/dp/B08M5NS2PR/?th=1?ie=UTF8&tag=giftable02-20)
 
 These Cute 3D Animated Bookmarks Are A Laugh A Minute Students can benefit greatly from using reading bookmarks. These adorable animal-shaped 3D stereo markers are a great way to decorate books and add some extra excitement to the reading experience.
 
@@ -463,7 +463,7 @@ Cute and humorous creatures like wolves, kittens, and donkeys are all up for gra
 
 ✔️ Multi-functional - bookmarks, ornaments
 
-[Buy from Amazon](https://www.amazon.com/Bookmarks-Wakaka-Bookmark-Students-Stationery/dp/B08M5NS2PR/?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Bookmarks-Wakaka-Bookmark-Students-Stationery/dp/B08M5NS2PR/?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [27\. End of School Bubble Tags](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1216798712/end-of-school-bubble-tags-summer)
 
@@ -497,9 +497,9 @@ You may rest assured that the custom lanyards won't break because they are craft
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/869593123/personalized-beaded-lanyard-for-keys-or)
 
-### [29\. Dinosaur Pencil Case for Boys](https://www.amazon.com/ZIPIT-Dino-Pencil-Case-Blue/dp/B083P1GVTK/?ie=UTF8&tag=avadalove-20)
+### [29\. Dinosaur Pencil Case for Boys](https://www.amazon.com/ZIPIT-Dino-Pencil-Case-Blue/dp/B083P1GVTK/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/ZIPIT-Dino-Pencil-Case-Blue/dp/B083P1GVTK/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/ZIPIT-Dino-Pencil-Case-Blue/dp/B083P1GVTK/?ie=UTF8&tag=giftable02-20)
 
 If your son is a student, he will love the Dino pencil case, whether he uses it for school supplies or for play. The 8. 66"x0.79"x3.94" / 22x2x10cm case has a large diagonal opening, making it easy for pupils to quickly locate the materials they need.
 
@@ -513,7 +513,7 @@ This pencil case offers plenty of space for all of their school supplies, includ
 
 ✔️ Ample capacity
 
-[Buy from Amazon](https://www.amazon.com/ZIPIT-Dino-Pencil-Case-Blue/dp/B083P1GVTK/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/ZIPIT-Dino-Pencil-Case-Blue/dp/B083P1GVTK/?ie=UTF8&tag=giftable02-20)
 
 ### [30\. Personalised Class End of Year Crayons Digital Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1224580978/personalised-class-end-of-year-crayons)
 
@@ -531,9 +531,9 @@ These unique presents are a great way to showcase your pupils' work. You can use
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1224580978/personalised-class-end-of-year-crayons)
 
-### [31\. Student Grouping Pencils](https://www.amazon.com/Learning-Resources-Student-Grouping-Pencils/dp/B000URJCVQ?ie=UTF8&tag=avadalove-20)
+### [31\. Student Grouping Pencils](https://www.amazon.com/Learning-Resources-Student-Grouping-Pencils/dp/B000URJCVQ?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Learning-Resources-Student-Grouping-Pencils/dp/B000URJCVQ?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Learning-Resources-Student-Grouping-Pencils/dp/B000URJCVQ?ie=UTF8&tag=giftable02-20)
 
 These Student Grouping Pencils are perfect if you want to give your student something useful. It's a great tool for teachers to use when they need to divide up their classes into smaller groups.
 
@@ -547,7 +547,7 @@ The plastic pencils are organised according to the colours, shapes, and numbers 
 
 ✔️ Budget-Friendly Option for Teachers
 
-[Buy from Amazon](https://www.amazon.com/Learning-Resources-Student-Grouping-Pencils/dp/B000URJCVQ?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Learning-Resources-Student-Grouping-Pencils/dp/B000URJCVQ?ie=UTF8&tag=giftable02-20)
 
 ### [32\. Wish Bracelet and Personalised Card](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1187542204/set-of-30-goodbye-leaving-friends-are)
 

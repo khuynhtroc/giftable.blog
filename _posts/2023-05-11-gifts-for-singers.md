@@ -319,9 +319,9 @@ The unicorn with its rainbow mane is a popular symbol of creativity. And when yo
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/749305137/singer-mug-for-singer-gifts-for-singer)
 
-### [17\. Sing Pendant Necklace](https://www.amazon.com/NECKLACE-Pendant-Musician-Necklace-Jewelry/dp/B01EYA8IRI?ie=UTF8&tag=avadalove-20)
+### [17\. Sing Pendant Necklace](https://www.amazon.com/NECKLACE-Pendant-Musician-Necklace-Jewelry/dp/B01EYA8IRI?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/NECKLACE-Pendant-Musician-Necklace-Jewelry/dp/B01EYA8IRI?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/NECKLACE-Pendant-Musician-Necklace-Jewelry/dp/B01EYA8IRI?ie=UTF8&tag=giftable02-20)
 
 This gorgeous Pendant is a great gift for singers. This beautiful Pendant will add that special something to your loved one's wardrobe.
 
@@ -335,7 +335,7 @@ It can be attached to the neck and arms of your guitar, **[bass](/gifts-bass-pla
 
 ✔️ Premium materials for lasting beauty
 
-[Buy from Amazon](https://www.amazon.com/NECKLACE-Pendant-Musician-Necklace-Jewelry/dp/B01EYA8IRI?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/NECKLACE-Pendant-Musician-Necklace-Jewelry/dp/B01EYA8IRI?ie=UTF8&tag=giftable02-20)
 
 ### [18\. Custom Vinyl Lyrics Poster](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/878294740/custom-vinyl-lyrics-poster-personalised)
 
@@ -445,9 +445,9 @@ These unique glasses are professionally laser engraved with a unique design of y
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1068969534/music-teacher-gift-personalized-band)
 
-### [24\. Eigso Music Themed Bracelet](https://www.amazon.com/EIGSO-Bracelet-Jewelry-Teacher-BR/dp/B07YDDTGD6?ie=UTF8&tag=avadalove-20)
+### [24\. Eigso Music Themed Bracelet](https://www.amazon.com/EIGSO-Bracelet-Jewelry-Teacher-BR/dp/B07YDDTGD6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/EIGSO-Bracelet-Jewelry-Teacher-BR/dp/B07YDDTGD6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/EIGSO-Bracelet-Jewelry-Teacher-BR/dp/B07YDDTGD6?ie=UTF8&tag=giftable02-20)
 
 This stunning bracelet is an original creation from Eigso. The Music themed bracelet is perfect for those who love singing or listening to music.
 
@@ -461,11 +461,11 @@ The bracelet features a musical theme inspired by Eigso's most popular songs. Ea
 
 ✔️ Crafted from premium materials
 
-[Buy from Amazon](https://www.amazon.com/EIGSO-Bracelet-Jewelry-Teacher-BR/dp/B07YDDTGD6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/EIGSO-Bracelet-Jewelry-Teacher-BR/dp/B07YDDTGD6?ie=UTF8&tag=giftable02-20)
 
-### [25\. Music Inspirational Bracelets](https://www.amazon.com/Inkstone-Inspirational-Bracelets-Quotes-Sayings/dp/B0784Y83SR/?ie=UTF8&tag=avadalove-20)
+### [25\. Music Inspirational Bracelets](https://www.amazon.com/Inkstone-Inspirational-Bracelets-Quotes-Sayings/dp/B0784Y83SR/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inkstone-Inspirational-Bracelets-Quotes-Sayings/dp/B0784Y83SR/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inkstone-Inspirational-Bracelets-Quotes-Sayings/dp/B0784Y83SR/?ie=UTF8&tag=giftable02-20)
 
 If you’re looking for a gift that will bring joy to the heart of someone special, this beautiful bracelet is a perfect choice.
 
@@ -479,11 +479,11 @@ Featuring inspirational quotes and sayings about music, the inkstone bracelet is
 
 ✔️ Elegant and stylish accessory
 
-[Buy from Amazon](https://www.amazon.com/Inkstone-Inspirational-Bracelets-Quotes-Sayings/dp/B0784Y83SR/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inkstone-Inspirational-Bracelets-Quotes-Sayings/dp/B0784Y83SR/?ie=UTF8&tag=giftable02-20)
 
-### [26\. Find Joy Keychain](https://www.amazon.com/Journey-Treble-Microphone-Singer-Keychain/dp/B07CQCPXTJ/?ie=UTF8&tag=avadalove-20)
+### [26\. Find Joy Keychain](https://www.amazon.com/Journey-Treble-Microphone-Singer-Keychain/dp/B07CQCPXTJ/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Journey-Treble-Microphone-Singer-Keychain/dp/B07CQCPXTJ/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Journey-Treble-Microphone-Singer-Keychain/dp/B07CQCPXTJ/?ie=UTF8&tag=giftable02-20)
 
 Your favorite music will always be on hand when you carry the Find Joy in the Journey key chain around with you.
 
@@ -497,11 +497,11 @@ Featuring a small medallion and an inspirational quote, this keychain is a thoug
 
 ✔️ Carries a meaningful message
 
-[Buy from Amazon](https://www.amazon.com/Journey-Treble-Microphone-Singer-Keychain/dp/B07CQCPXTJ/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Journey-Treble-Microphone-Singer-Keychain/dp/B07CQCPXTJ/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Music Keychain](https://www.amazon.com/Keychain-Keyring-Teacher-Musicians-Inspirational/dp/B08HWFQKX5?ie=UTF8&tag=avadalove-20)
+### [27\. Music Keychain](https://www.amazon.com/Keychain-Keyring-Teacher-Musicians-Inspirational/dp/B08HWFQKX5?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Keychain-Keyring-Teacher-Musicians-Inspirational/dp/B08HWFQKX5?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Keychain-Keyring-Teacher-Musicians-Inspirational/dp/B08HWFQKX5?ie=UTF8&tag=giftable02-20)
 
 The Music Keychain is a great gift for singers. Perfect to hang around the neck, it plays songs from your favorite artists.
 
@@ -515,11 +515,11 @@ It also has two lights and a flashing function so that you can easily identify i
 
 ✔️ Inspirational gift for vocalists
 
-[Buy from Amazon](https://www.amazon.com/Keychain-Keyring-Teacher-Musicians-Inspirational/dp/B08HWFQKX5?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Keychain-Keyring-Teacher-Musicians-Inspirational/dp/B08HWFQKX5?ie=UTF8&tag=giftable02-20)
 
-### [28\. Music Bracelet](https://www.amazon.com/Music-Bracelet-Jewelry-Treble-Note/dp/B01M02FM1U?ie=UTF8&tag=avadalove-20)
+### [28\. Music Bracelet](https://www.amazon.com/Music-Bracelet-Jewelry-Treble-Note/dp/B01M02FM1U?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Music-Bracelet-Jewelry-Treble-Note/dp/B01M02FM1U?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Music-Bracelet-Jewelry-Treble-Note/dp/B01M02FM1U?ie=UTF8&tag=giftable02-20)
 
 This beautiful music bracelet is a great gift idea for musicians or music lovers. A heartfelt keepsake gift, this elegant silver band is a perfect way to show off your music passion.
 
@@ -533,11 +533,11 @@ It features a gorgeous sterling silver charm with a black enamel finish and the 
 
 ✔️ Represents love for music
 
-[Buy from Amazon](https://www.amazon.com/Music-Bracelet-Jewelry-Treble-Note/dp/B01M02FM1U?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Music-Bracelet-Jewelry-Treble-Note/dp/B01M02FM1U?ie=UTF8&tag=giftable02-20)
 
-### [29\. Funny Singing Love Mug](https://www.amazon.com/3dRose-184948_4-Superpower-Funny-Singing-Singers/dp/B013OBXV34/?ie=UTF8&tag=avadalove-20)
+### [29\. Funny Singing Love Mug](https://www.amazon.com/3dRose-184948_4-Superpower-Funny-Singing-Singers/dp/B013OBXV34/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/3dRose-184948_4-Superpower-Funny-Singing-Singers/dp/B013OBXV34/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/3dRose-184948_4-Superpower-Funny-Singing-Singers/dp/B013OBXV34/?ie=UTF8&tag=giftable02-20)
 
 Keep your coffee warm while you're enjoying the music with the sleek design of this ceramic coffee mug. Show your love for music, and everyone will want a sip.
 
@@ -551,11 +551,11 @@ The beautiful and classic design lets you take coffee or tea with the quality an
 
 ✔️ Brings smiles with every sip
 
-[Buy from Amazon](https://www.amazon.com/3dRose-184948_4-Superpower-Funny-Singing-Singers/dp/B013OBXV34/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/3dRose-184948_4-Superpower-Funny-Singing-Singers/dp/B013OBXV34/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Just A Girl T-Shirt](https://www.amazon.com/Loves-Singing-Gifts-Singer-T-Shirt/dp/B09LSZ1J5W?ie=UTF8&tag=avadalove-20)
+### [30\. Just A Girl T-Shirt](https://www.amazon.com/Loves-Singing-Gifts-Singer-T-Shirt/dp/B09LSZ1J5W?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Loves-Singing-Gifts-Singer-T-Shirt/dp/B09LSZ1J5W?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Loves-Singing-Gifts-Singer-T-Shirt/dp/B09LSZ1J5W?ie=UTF8&tag=giftable02-20)
 
 Show off your singing voice in this awesome Just a Girl Who Loves Singing T-shirt!
 
@@ -569,7 +569,7 @@ This black shirt features the words "Just A Girl Who Loves Singing". It is a gre
 
 ✔️ Range of sizes and color choices
 
-[Buy from Amazon](https://www.amazon.com/Loves-Singing-Gifts-Singer-T-Shirt/dp/B09LSZ1J5W?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Loves-Singing-Gifts-Singer-T-Shirt/dp/B09LSZ1J5W?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Treble Clef Cross Necklace](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/888869762/treble-clef-cross-necklace-sterling)
 
@@ -643,9 +643,9 @@ This neckpiece will protect your voice against injury, prevents damage to your i
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/244934590/choir-girl-music-jewelry-singing-jewelry)
 
-### [35\. Studio Recording Microphone](https://www.amazon.com/Microphone-ZealSound-Condenser-Recording-Phone-Silver/dp/B07CG6JBJ3?ie=UTF8&tag=avadalove-20)
+### [35\. Studio Recording Microphone](https://www.amazon.com/Microphone-ZealSound-Condenser-Recording-Phone-Silver/dp/B07CG6JBJ3?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Microphone-ZealSound-Condenser-Recording-Phone-Silver/dp/B07CG6JBJ3?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Microphone-ZealSound-Condenser-Recording-Phone-Silver/dp/B07CG6JBJ3?ie=UTF8&tag=giftable02-20)
 
 The Studio Recording Mic is designed to provide the very best vocal performance in your studio recording. It is especially useful for singers.
 
@@ -659,7 +659,7 @@ It has a large cardioid polar pattern, allowing the mic to pick up your voice wi
 
 ✔️ Versatile for studio and stage use
 
-[Buy from Amazon](https://www.amazon.com/Microphone-ZealSound-Condenser-Recording-Phone-Silver/dp/B07CG6JBJ3?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Microphone-ZealSound-Condenser-Recording-Phone-Silver/dp/B07CG6JBJ3?ie=UTF8&tag=giftable02-20)
 
 ### [36\. I’d Rather Be Singing Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1047587153/personalized-singers-gift-id-rather-be)
 

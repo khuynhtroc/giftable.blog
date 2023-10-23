@@ -37,9 +37,9 @@ The watch features a genuine leather strap that is waterproof and more durable b
 
 [Buy from Loveable](https://loveable.ai/products/thank-you-for-being-my-best-friend-personalized-luxury-mens-watch-with-box-and-message-card-best-luxury-gifts-for-him-208ihpthwa036?variant=43774342299880?utm_source=avada&ranking=&utm_source=&utm_campaign=best-thank-you-gifts-for-men-thatll-demonstrate-your-appreciation)
 
-### [2\. White Tumbler](https://www.amazon.com/Thank-You-Being-Awesome-Insulated/dp/B08174PMCW?th=1?ie=UTF8&tag=avadalove-20)
+### [2\. White Tumbler](https://www.amazon.com/Thank-You-Being-Awesome-Insulated/dp/B08174PMCW?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thank-You-Being-Awesome-Insulated/dp/B08174PMCW?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thank-You-Being-Awesome-Insulated/dp/B08174PMCW?th=1?ie=UTF8&tag=giftable02-20)
 
 The unique artwork on this framed print will make it a beautiful gift that you will never outgrow!
 
@@ -53,11 +53,11 @@ A classic design that is beautiful and timeless. A classic and versatile white t
 
 ✔️ The perfect gift for any occasion
 
-[Buy from Amazon](https://www.amazon.com/Thank-You-Being-Awesome-Insulated/dp/B08174PMCW?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thank-You-Being-Awesome-Insulated/dp/B08174PMCW?th=1?ie=UTF8&tag=giftable02-20)
 
-### [3\. Appreciation Keychain](https://www.amazon.com/Employee-Appreciation-Coworkers-Retirement-Gratitude/dp/B09MMVP953/?ie=UTF8&tag=avadalove-20)
+### [3\. Appreciation Keychain](https://www.amazon.com/Employee-Appreciation-Coworkers-Retirement-Gratitude/dp/B09MMVP953/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Employee-Appreciation-Coworkers-Retirement-Gratitude/dp/B09MMVP953/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Employee-Appreciation-Coworkers-Retirement-Gratitude/dp/B09MMVP953/?ie=UTF8&tag=giftable02-20)
 
 This is a very special present for your best female or **[male friend](https://avada.io/loveable/gifts-for-guy-friends/)** in the world.
 
@@ -71,11 +71,11 @@ It can be engraved with many emotional quotes that you want to say to your partn
 
 ✔️ Show him how much you appreciate his efforts
 
-[Buy from Amazon](https://www.amazon.com/Employee-Appreciation-Coworkers-Retirement-Gratitude/dp/B09MMVP953/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Employee-Appreciation-Coworkers-Retirement-Gratitude/dp/B09MMVP953/?ie=UTF8&tag=giftable02-20)
 
-### [4\. Keep That Up Wine Glasses](https://www.amazon.com/Inspirational-Coworkers-Birthday-Christmas-Retirement/dp/B09DVHGQ6Y/?ie=UTF8&tag=avadalove-20)
+### [4\. Keep That Up Wine Glasses](https://www.amazon.com/Inspirational-Coworkers-Birthday-Christmas-Retirement/dp/B09DVHGQ6Y/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Inspirational-Coworkers-Birthday-Christmas-Retirement/dp/B09DVHGQ6Y/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Inspirational-Coworkers-Birthday-Christmas-Retirement/dp/B09DVHGQ6Y/?ie=UTF8&tag=giftable02-20)
 
 Raise a toast to his achievements and efforts with elegant wine glasses that exude sophistication and gratitude.
 
@@ -89,11 +89,11 @@ It’s a perfect present for your family and friends during holidays, birthday p
 
 ✔️ Practical wine glass
 
-[Buy from Amazon](https://www.amazon.com/Inspirational-Coworkers-Birthday-Christmas-Retirement/dp/B09DVHGQ6Y/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Inspirational-Coworkers-Birthday-Christmas-Retirement/dp/B09DVHGQ6Y/?ie=UTF8&tag=giftable02-20)
 
-### [5\. Dad Ratuso Gifts](https://www.amazon.com/Ratuso-Multitool-Personalized-Christmas-Birthday/dp/B09W5Y9Q8M/?ie=UTF8&tag=avadalove-20)
+### [5\. Dad Ratuso Gifts](https://www.amazon.com/Ratuso-Multitool-Personalized-Christmas-Birthday/dp/B09W5Y9Q8M/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ratuso-Multitool-Personalized-Christmas-Birthday/dp/B09W5Y9Q8M/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ratuso-Multitool-Personalized-Christmas-Birthday/dp/B09W5Y9Q8M/?ie=UTF8&tag=giftable02-20)
 
 Are you tired of receiving the same old gifts for Father's day, Birthday, Christmas, and Anniversary? This one is an excellent gift for Dad, husband, boyfriend, or anyone who loves the outdoors. I
 
@@ -107,11 +107,11 @@ t's a super cool hammer gift and will ensure they can get all their jobs done! A
 
 ✔️ High-quality stainless steel
 
-[Buy from Amazon](https://www.amazon.com/Ratuso-Multitool-Personalized-Christmas-Birthday/dp/B09W5Y9Q8M/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ratuso-Multitool-Personalized-Christmas-Birthday/dp/B09W5Y9Q8M/?ie=UTF8&tag=giftable02-20)
 
-### [6\. Thank You Chocolate Gift Box](https://www.amazon.com/Hazel-Creme-Chocolate-Covered-Pretzels/dp/B08BJD9MFF/?ie=UTF8&tag=avadalove-20)
+### [6\. Thank You Chocolate Gift Box](https://www.amazon.com/Hazel-Creme-Chocolate-Covered-Pretzels/dp/B08BJD9MFF/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Hazel-Creme-Chocolate-Covered-Pretzels/dp/B08BJD9MFF/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Hazel-Creme-Chocolate-Covered-Pretzels/dp/B08BJD9MFF/?ie=UTF8&tag=giftable02-20)
 
 Satisfy his sweet tooth with a delectable chocolate gift box, filled with indulgent treats to sweeten his day.
 
@@ -125,11 +125,11 @@ Pretzels are generously dipped in melted chocolate. Then, the top of each pretze
 
 ✔️ A delightful treat for your men
 
-[Buy from Amazon](https://www.amazon.com/Hazel-Creme-Chocolate-Covered-Pretzels/dp/B08BJD9MFF/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Hazel-Creme-Chocolate-Covered-Pretzels/dp/B08BJD9MFF/?ie=UTF8&tag=giftable02-20)
 
-### [7\. Gourmet Cookie Thank You](https://www.amazon.com/Gourmet-Delicious-Vanilla-Hand-Decorated-Delivery/dp/B098D46FJX?ie=UTF8&tag=avadalove-20)
+### [7\. Gourmet Cookie Thank You](https://www.amazon.com/Gourmet-Delicious-Vanilla-Hand-Decorated-Delivery/dp/B098D46FJX?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gourmet-Delicious-Vanilla-Hand-Decorated-Delivery/dp/B098D46FJX?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gourmet-Delicious-Vanilla-Hand-Decorated-Delivery/dp/B098D46FJX?ie=UTF8&tag=giftable02-20)
 
 For the man with a penchant for sweets, a gourmet cookie thank-you gift will surely warm his heart and taste buds.
 
@@ -143,11 +143,11 @@ You can never go wrong with chocolate. Whether you choose a classic truffle or a
 
 ✔️ Stunning and impressive
 
-[Buy from Amazon](https://www.amazon.com/Gourmet-Delicious-Vanilla-Hand-Decorated-Delivery/dp/B098D46FJX?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gourmet-Delicious-Vanilla-Hand-Decorated-Delivery/dp/B098D46FJX?ie=UTF8&tag=giftable02-20)
 
-### [8\. Grateful Wind Chime](https://www.amazon.com/Forever-Grateful-Chime-Engraved-Message/dp/B098KG23M7/?ie=UTF8&tag=avadalove-20)
+### [8\. Grateful Wind Chime](https://www.amazon.com/Forever-Grateful-Chime-Engraved-Message/dp/B098KG23M7/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Forever-Grateful-Chime-Engraved-Message/dp/B098KG23M7/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Forever-Grateful-Chime-Engraved-Message/dp/B098KG23M7/?ie=UTF8&tag=giftable02-20)
 
 Add a melodic touch to his space with a wind chime that expresses your gratitude through soothing sounds.
 
@@ -161,11 +161,11 @@ A special gift to let them know your appreciation and gratefulness for their gen
 
 ✔️ A perfect gift for any occasion
 
-[Buy from Amazon](https://www.amazon.com/Forever-Grateful-Chime-Engraved-Message/dp/B098KG23M7/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Forever-Grateful-Chime-Engraved-Message/dp/B098KG23M7/?ie=UTF8&tag=giftable02-20)
 
-### [9\. Blue Moutain Arts](https://www.amazon.com/Miniature-Easel-Print-Magnet-Blessing/dp/B074DY7TG7?th=1?ie=UTF8&tag=avadalove-20)
+### [9\. Blue Moutain Arts](https://www.amazon.com/Miniature-Easel-Print-Magnet-Blessing/dp/B074DY7TG7?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Miniature-Easel-Print-Magnet-Blessing/dp/B074DY7TG7?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Miniature-Easel-Print-Magnet-Blessing/dp/B074DY7TG7?th=1?ie=UTF8&tag=giftable02-20)
 
 If you want to give a “thank you” to someone whose kindness and loving heart have blessed your life, this mini-easel with a magnet is perfect.
 
@@ -179,11 +179,11 @@ With your own words or the recipient’s, this heartfelt message can be hung on 
 
 ✔️ Display this gift in a variety of ways
 
-[Buy from Amazon](https://www.amazon.com/Miniature-Easel-Print-Magnet-Blessing/dp/B074DY7TG7?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Miniature-Easel-Print-Magnet-Blessing/dp/B074DY7TG7?th=1?ie=UTF8&tag=giftable02-20)
 
-### [10\. Husband Personalized Clock](https://www.amazon.com/Everything-Birthday-Personalized-Husband-Boyfriend/dp/B07C5MPCBC/?ie=UTF8&tag=avadalove-20)
+### [10\. Husband Personalized Clock](https://www.amazon.com/Everything-Birthday-Personalized-Husband-Boyfriend/dp/B07C5MPCBC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Everything-Birthday-Personalized-Husband-Boyfriend/dp/B07C5MPCBC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Everything-Birthday-Personalized-Husband-Boyfriend/dp/B07C5MPCBC/?ie=UTF8&tag=giftable02-20)
 
 Surprise your husband with a personalized clock that speaks directly to the depth of your gratitude and love.
 
@@ -197,11 +197,11 @@ A personalized gift for your husband is the best gift of all. It'll show that yo
 
 ✔️ A nice romantic gift for him
 
-[Buy from Amazon](https://www.amazon.com/Everything-Birthday-Personalized-Husband-Boyfriend/dp/B07C5MPCBC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Everything-Birthday-Personalized-Husband-Boyfriend/dp/B07C5MPCBC/?ie=UTF8&tag=giftable02-20)
 
-### [11\. Thoughtful Engraved Crystal Gratitude](https://www.amazon.com/Thoughtful-Gratitude-Inspirational-Appreciation-Coworkers/dp/B0B7KT4ZF2?ie=UTF8&tag=avadalove-20)
+### [11\. Thoughtful Engraved Crystal Gratitude](https://www.amazon.com/Thoughtful-Gratitude-Inspirational-Appreciation-Coworkers/dp/B0B7KT4ZF2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Thoughtful-Gratitude-Inspirational-Appreciation-Coworkers/dp/B0B7KT4ZF2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Thoughtful-Gratitude-Inspirational-Appreciation-Coworkers/dp/B0B7KT4ZF2?ie=UTF8&tag=giftable02-20)
 
 There is no better than a significant gift that shows how much your beloved means to you.
 
@@ -215,11 +215,11 @@ A crystal keepsake engraved with a heartfelt message will make a lasting impress
 
 ✔️ Eye-catching design
 
-[Buy from Amazon](https://www.amazon.com/Thoughtful-Gratitude-Inspirational-Appreciation-Coworkers/dp/B0B7KT4ZF2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Thoughtful-Gratitude-Inspirational-Appreciation-Coworkers/dp/B0B7KT4ZF2?ie=UTF8&tag=giftable02-20)
 
-### [12\. Heart Plaque Thank You Gift](https://www.amazon.com/Ornament-Keepsake-Appreciation-Sister-Coworkers-Colleague/dp/B09HBZDTC2/?ie=UTF8&tag=avadalove-20)
+### [12\. Heart Plaque Thank You Gift](https://www.amazon.com/Ornament-Keepsake-Appreciation-Sister-Coworkers-Colleague/dp/B09HBZDTC2/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ornament-Keepsake-Appreciation-Sister-Coworkers-Colleague/dp/B09HBZDTC2/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ornament-Keepsake-Appreciation-Sister-Coworkers-Colleague/dp/B09HBZDTC2/?ie=UTF8&tag=giftable02-20)
 
 Are you searching for a significant item that is made of high-quality ceramics, and the pattern on the surface will not fade? The ornamental heart ornament is a wonderful gift for a loved one.
 
@@ -233,7 +233,7 @@ Especially this Ornament comes with a golden loop, so it’s easy to hang on a C
 
 ✔️ Express your love to them
 
-[Buy from Amazon](https://www.amazon.com/Ornament-Keepsake-Appreciation-Sister-Coworkers-Colleague/dp/B09HBZDTC2/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ornament-Keepsake-Appreciation-Sister-Coworkers-Colleague/dp/B09HBZDTC2/?ie=UTF8&tag=giftable02-20)
 
 ### [13\. Thank You Gift Basket](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/800311145/thank-you-gift-basket-professional)
 
@@ -397,9 +397,9 @@ It makes for an awesome keepsake, and it makes for a memorable moment at the rec
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/468969218/officiant-gift-officiant-gift-idea-gift)
 
-### [22\. Premium Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-Thanks-13-75/dp/B08G7G9YP9?ie=UTF8&tag=avadalove-20)
+### [22\. Premium Scented Candle](https://www.amazon.com/Homesick-Scented-Candle-Thanks-13-75/dp/B08G7G9YP9?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Homesick-Scented-Candle-Thanks-13-75/dp/B08G7G9YP9?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Homesick-Scented-Candle-Thanks-13-75/dp/B08G7G9YP9?ie=UTF8&tag=giftable02-20)
 
 A high-quality scented candle will create a soothing ambiance while conveying your appreciation for his presence in your life.
 
@@ -413,11 +413,11 @@ This 13.75oz scented candle is the perfect gift for your home or office because 
 
 ✔️ Perfect for every room
 
-[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-Thanks-13-75/dp/B08G7G9YP9?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Homesick-Scented-Candle-Thanks-13-75/dp/B08G7G9YP9?ie=UTF8&tag=giftable02-20)
 
-### [23\. Chocolate Gift Baskets](https://www.amazon.com/Barnetts-Gift-Cookie-Baskets-Thanksgiving/dp/B07Q8DTKR9/?ie=UTF8&tag=avadalove-20)
+### [23\. Chocolate Gift Baskets](https://www.amazon.com/Barnetts-Gift-Cookie-Baskets-Thanksgiving/dp/B07Q8DTKR9/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Barnetts-Gift-Cookie-Baskets-Thanksgiving/dp/B07Q8DTKR9/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Barnetts-Gift-Cookie-Baskets-Thanksgiving/dp/B07Q8DTKR9/?ie=UTF8&tag=giftable02-20)
 
 If you're looking for a party favor that will wow your guests, this freshly baked food is a perfect choice.
 
@@ -431,11 +431,11 @@ These biscotti bars are easy to pop into the mouth and give you a crunchy textur
 
 ✔️ Keep-fresh packaging
 
-[Buy from Amazon](https://www.amazon.com/Barnetts-Gift-Cookie-Baskets-Thanksgiving/dp/B07Q8DTKR9/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Barnetts-Gift-Cookie-Baskets-Thanksgiving/dp/B07Q8DTKR9/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Notes Bulk Retro](https://www.amazon.com/Retro-Thank-Cards-Stickers-Envelopes/dp/B07H12PDL1/?ie=UTF8&tag=avadalove-20)
+### [24\. Notes Bulk Retro](https://www.amazon.com/Retro-Thank-Cards-Stickers-Envelopes/dp/B07H12PDL1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Retro-Thank-Cards-Stickers-Envelopes/dp/B07H12PDL1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Retro-Thank-Cards-Stickers-Envelopes/dp/B07H12PDL1/?ie=UTF8&tag=giftable02-20)
 
 Whether you have just a few cards to send or a full collection of personalized gift ideas, these bonus stickers are a great way to make your cards even more impressive.
 
@@ -449,11 +449,11 @@ A collection of retro-themed thank-you notes will allow him to express his grati
 
 ✔️ Help seal your envelopes
 
-[Buy from Amazon](https://www.amazon.com/Retro-Thank-Cards-Stickers-Envelopes/dp/B07H12PDL1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Retro-Thank-Cards-Stickers-Envelopes/dp/B07H12PDL1/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Appreciation Bookmark](https://www.amazon.com/Appreciation-Graduation-Christmas-Thanksgiving-Retirement/dp/B0999FWQLG?ie=UTF8&tag=avadalove-20)
+### [25\. Appreciation Bookmark](https://www.amazon.com/Appreciation-Graduation-Christmas-Thanksgiving-Retirement/dp/B0999FWQLG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Appreciation-Graduation-Christmas-Thanksgiving-Retirement/dp/B0999FWQLG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Graduation-Christmas-Thanksgiving-Retirement/dp/B0999FWQLG?ie=UTF8&tag=giftable02-20)
 
 Want to say Thank you to your man with gifts? Don't hesitate to give him one of these items. It's a beautiful bookmark for teachers, a brown tassel for retirement graduations, farewells, and a memorial.
 
@@ -467,11 +467,11 @@ The Appreciation Bookmark often features elegant and inspiring designs, accompan
 
 ✔️ Get your students' attention with this special graduation bookmark
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Graduation-Christmas-Thanksgiving-Retirement/dp/B0999FWQLG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Graduation-Christmas-Thanksgiving-Retirement/dp/B0999FWQLG?ie=UTF8&tag=giftable02-20)
 
-### [26\. Heart-Shaped Night Light](https://www.amazon.com/Appreciation-Coworker-Heart-Shaped-Birthday-Thanksgiving/dp/B0B87KVBSS/?ie=UTF8&tag=avadalove-20)
+### [26\. Heart-Shaped Night Light](https://www.amazon.com/Appreciation-Coworker-Heart-Shaped-Birthday-Thanksgiving/dp/B0B87KVBSS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Appreciation-Coworker-Heart-Shaped-Birthday-Thanksgiving/dp/B0B87KVBSS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Appreciation-Coworker-Heart-Shaped-Birthday-Thanksgiving/dp/B0B87KVBSS/?ie=UTF8&tag=giftable02-20)
 
 Although they may not say it, the men in your life still want to see appreciation for their hard work. This Heart-Shaped Night Light is the perfect thank you gift for the men in your life.
 
@@ -485,11 +485,11 @@ Brighten his nights with a heart-shaped night light that radiates your appreciat
 
 ✔️ has a USB connector which can be connected to a mobile power source
 
-[Buy from Amazon](https://www.amazon.com/Appreciation-Coworker-Heart-Shaped-Birthday-Thanksgiving/dp/B0B87KVBSS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Appreciation-Coworker-Heart-Shaped-Birthday-Thanksgiving/dp/B0B87KVBSS/?ie=UTF8&tag=giftable02-20)
 
-### [27\. Indulgent Coffee Selection Gift Box](https://www.amazon.com/Coffee-Beanery-2591561-Indulgent-Selection/dp/B00GR92ZEW?ie=UTF8&tag=avadalove-20)
+### [27\. Indulgent Coffee Selection Gift Box](https://www.amazon.com/Coffee-Beanery-2591561-Indulgent-Selection/dp/B00GR92ZEW?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Coffee-Beanery-2591561-Indulgent-Selection/dp/B00GR92ZEW?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Coffee-Beanery-2591561-Indulgent-Selection/dp/B00GR92ZEW?ie=UTF8&tag=giftable02-20)
 
 A man is the provider of the house. A moment of relaxation is always appreciated. To show your appreciation for all the work they've done, you can give them this Indulgent Coffee Selection Gift Box as a thank you gift.
 
@@ -503,11 +503,11 @@ Inside this exquisite gift box, your recipient will find a handpicked selection 
 
 ✔️ Hand flavoured post-roasting
 
-[Buy from Amazon](https://www.amazon.com/Coffee-Beanery-2591561-Indulgent-Selection/dp/B00GR92ZEW?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Coffee-Beanery-2591561-Indulgent-Selection/dp/B00GR92ZEW?ie=UTF8&tag=giftable02-20)
 
-### [28\. Dad Gift Keychain](https://www.amazon.com/AnotherKiss-Keychain-Dad-Gift-Helping/dp/B07D738Z7L/r?ie=UTF8&tag=avadalove-20)
+### [28\. Dad Gift Keychain](https://www.amazon.com/AnotherKiss-Keychain-Dad-Gift-Helping/dp/B07D738Z7L/r?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/AnotherKiss-Keychain-Dad-Gift-Helping/dp/B07D738Z7L/r?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/AnotherKiss-Keychain-Dad-Gift-Helping/dp/B07D738Z7L/r?ie=UTF8&tag=giftable02-20)
 
 Being a father is perhaps one of the most difficult thing to do and yet their efforts often goes unappreciated. To show your love to them you can gift them a thank you gift such as this keychain.
 
@@ -521,11 +521,11 @@ The durable design ensures that this keychain will withstand the test of time, j
 
 ✔️ Light-weight and easy to carry around
 
-[Buy from Amazon](https://www.amazon.com/AnotherKiss-Keychain-Dad-Gift-Helping/dp/B07D738Z7L/r?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/AnotherKiss-Keychain-Dad-Gift-Helping/dp/B07D738Z7L/r?ie=UTF8&tag=giftable02-20)
 
-### [29\. Dad Ring Dish](https://www.amazon.com/BAT-TRANG-Raising-always-Mother/dp/B09R8TW6VX/?ie=UTF8&tag=avadalove-20)
+### [29\. Dad Ring Dish](https://www.amazon.com/BAT-TRANG-Raising-always-Mother/dp/B09R8TW6VX/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BAT-TRANG-Raising-always-Mother/dp/B09R8TW6VX/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BAT-TRANG-Raising-always-Mother/dp/B09R8TW6VX/?ie=UTF8&tag=giftable02-20)
 
 Jewelry is often expensive to buy. So instead you can give them this Bat Trang trinket dish for them to store it. This will be a perfect thank you gift for the men in your life.
 
@@ -539,11 +539,11 @@ A unique ring dish is a thoughtful and practical gift for keeping his jewelry sa
 
 ✔️ Utilize high-quality, professional ink
 
-[Buy from Amazon](https://www.amazon.com/BAT-TRANG-Raising-always-Mother/dp/B09R8TW6VX/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BAT-TRANG-Raising-always-Mother/dp/B09R8TW6VX/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Etched World Globe Decanter](https://www.amazon.com/Whiskey-Globe-Decanter-Set-Glasses/dp/B0725H1T85/?ie=UTF8&tag=avadalove-20)
+### [30\. Etched World Globe Decanter](https://www.amazon.com/Whiskey-Globe-Decanter-Set-Glasses/dp/B0725H1T85/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Whiskey-Globe-Decanter-Set-Glasses/dp/B0725H1T85/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Whiskey-Globe-Decanter-Set-Glasses/dp/B0725H1T85/?ie=UTF8&tag=giftable02-20)
 
 You have a male friend or partner who is a wine connoisseur? Do not worry for this stylish decanter will be the perfect thank you gift for your man.
 
@@ -557,7 +557,7 @@ A sophisticated decanter etched with a world globe design will elevate his home 
 
 ✔️ Holds up to 850ml of liquid
 
-[Buy from Amazon](https://www.amazon.com/Whiskey-Globe-Decanter-Set-Glasses/dp/B0725H1T85/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Whiskey-Globe-Decanter-Set-Glasses/dp/B0725H1T85/?ie=UTF8&tag=giftable02-20)
 
 ### [31\. Thank You Rainbow Tree Art Coasters](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1030538614/printed-individual-thank-you-rainbow)
 

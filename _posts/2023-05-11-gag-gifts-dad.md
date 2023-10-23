@@ -377,9 +377,9 @@ The "Yoda Best Dad" Mug adds a personalized touch to the gift-giving experience.
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/583090324/best-dad-mug-yoda-best-dad-gift-best-dad?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=Yoda+Best+Dad+Dishwasher+Magnet&ref=sr_gallery-1-8&organic_search_click=1)
 
-### [21\. Leather Classic Beer Holster Bottle Holders](https://www.amazon.com/dp/B06XRMFD7P?ie=UTF8&tag=avadalove-20)
+### [21\. Leather Classic Beer Holster Bottle Holders](https://www.amazon.com/dp/B06XRMFD7P?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B06XRMFD7P?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B06XRMFD7P?ie=UTF8&tag=giftable02-20)
 
 A great gag gift for dad. He'll be the life of the party with this gag gifts for dad.
 
@@ -393,11 +393,11 @@ He can carry his drink hands free and bring his favourite beer wherever he goes!
 
 ✔️ A convenient and hands-free way to carry and access beer bottles
 
-[Buy from Amazon](https://www.amazon.com/dp/B06XRMFD7P?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B06XRMFD7P?ie=UTF8&tag=giftable02-20)
 
-### [22\. Funny Sexy Apron Novelty Muscle Masculine Man Chef](https://www.amazon.com/dp/B01MSYW175?ie=UTF8&tag=avadalove-20)
+### [22\. Funny Sexy Apron Novelty Muscle Masculine Man Chef](https://www.amazon.com/dp/B01MSYW175?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B01MSYW175?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B01MSYW175?ie=UTF8&tag=giftable02-20)
 
 This apron is a great gift for anyone who loves to cook or just can’t get enough attention in the kitchen.
 
@@ -411,7 +411,7 @@ It is a super comfy and hugely funny novelty apron with a humorous saying that w
 
 ✔️ Create a jovial atmosphere among friends
 
-[Buy from Amazon](https://www.amazon.com/dp/B01MSYW175?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B01MSYW175?ie=UTF8&tag=giftable02-20)
 
 ### [23\. Funny Ankle Socks](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/608645035/funny-socks-resting-my-eyes-socks-ankle)
 
@@ -431,9 +431,9 @@ It’s hard work, taking care of everyone else – you can give him a well-deser
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/608645035/funny-socks-resting-my-eyes-socks-ankle)
 
-### [24\. Beard Hair Clippings Catcher](https://www.amazon.com/Beard-Apron-Bib-Clippings-Adjustable/dp/B07DYGT4N5?th=1?ie=UTF8&tag=avadalove-20)
+### [24\. Beard Hair Clippings Catcher](https://www.amazon.com/Beard-Apron-Bib-Clippings-Adjustable/dp/B07DYGT4N5?th=1?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Beard-Apron-Bib-Clippings-Adjustable/dp/B07DYGT4N5?th=1?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Beard-Apron-Bib-Clippings-Adjustable/dp/B07DYGT4N5?th=1?ie=UTF8&tag=giftable02-20)
 
 This beard hair clippings catcher is a handy tool for you to keep your bathroom clean and tidy. It is highly recommended for fathers, husbands and all the men with beard.
 
@@ -447,7 +447,7 @@ The two-sided waterproof design prevents water from getting in when washing your
 
 ✔️ Prevent from falling onto surfaces
 
-[Buy from Amazon](https://www.amazon.com/Beard-Apron-Bib-Clippings-Adjustable/dp/B07DYGT4N5?th=1?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Beard-Apron-Bib-Clippings-Adjustable/dp/B07DYGT4N5?th=1?ie=UTF8&tag=giftable02-20)
 
 ### [25\. Bad Dog Wisdom Tumblers](https://www.uncommongoods.com/product/bad-dog-wisdom-tumblers)
 
@@ -467,9 +467,9 @@ Each one features an old-school sentiment based on timeless wisdom from great th
 
 [Buy from Uncommon Goods](https://www.uncommongoods.com/product/bad-dog-wisdom-tumblers)
 
-### [26\. Doodle Face Game](https://www.amazon.com/dp/B07YN7WW2N?ie=UTF8&tag=avadalove-20)
+### [26\. Doodle Face Game](https://www.amazon.com/dp/B07YN7WW2N?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/dp/B07YN7WW2N?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/dp/B07YN7WW2N?ie=UTF8&tag=giftable02-20)
 
 It's easy-to-play and it's super fun, especially when played with friends and family. Place one card face down on the table.
 
@@ -483,11 +483,11 @@ Players then alternate turns drawing a card or peeling a sticker from their body
 
 ✔️ Encourage creativity and imagination
 
-[Buy from Amazon](https://www.amazon.com/dp/B07YN7WW2N?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/dp/B07YN7WW2N?ie=UTF8&tag=giftable02-20)
 
-### [27\. Art Batter Bottles and Templates Pancake Griddle](https://www.amazon.com/Presto-07080-PanGogh-Bottles-templates/dp/B07JJLRR3V?ie=UTF8&tag=avadalove-20)
+### [27\. Art Batter Bottles and Templates Pancake Griddle](https://www.amazon.com/Presto-07080-PanGogh-Bottles-templates/dp/B07JJLRR3V?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Presto-07080-PanGogh-Bottles-templates/dp/B07JJLRR3V?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Presto-07080-PanGogh-Bottles-templates/dp/B07JJLRR3V?ie=UTF8&tag=giftable02-20)
 
 This cool, fun, and totally unique gag gift for dad is perfect for Father's Day, birthdays, or any special occasion.
 
@@ -501,7 +501,7 @@ The pancake griddle is made of heavy duty aluminum and it comes with four differ
 
 ✔️ Create intricate and artistic designs
 
-[Buy from Amazon](https://www.amazon.com/Presto-07080-PanGogh-Bottles-templates/dp/B07JJLRR3V?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Presto-07080-PanGogh-Bottles-templates/dp/B07JJLRR3V?ie=UTF8&tag=giftable02-20)
 
 ### [28\. Fun Coffee Mug For Dog Dad](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/796768386/grandpa-thanks-for-picking-up-my-poop)
 

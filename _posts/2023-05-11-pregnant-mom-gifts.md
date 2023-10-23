@@ -19,8 +19,6 @@ And, buying one of our product suggestions, you don't have to ball out to get he
 
 So if you're looking to treat a friend or family member, check out our list of the best gift ideas for pregnant women. There's something for everyone, from the newly expectant mom to the one who's days away from meeting her baby.
 
-**_Related:_** Best **[Valentine Gift Ideas For Pregnant Wife](/valentine-gifts-for-pregnant-wife/)**
-
 ### [1\. Mamacado New Mom Ttshirt](https://loveable.ai/products/mamacado-new-mom-mom-to-be-gift-t-shirt-unisex-tee-mothers-day-gift-birthday-gift-for-mom-present-for-pregnant-mom-302icnnpts261?variant=44323227468008?utm_source=avada&ranking=&utm_source=&utm_campaign=the-30-truly-thoughtful-gifts-that-pregnant-mom-will-love)
 
 [](https://loveable.ai/products/mamacado-new-mom-mom-to-be-gift-t-shirt-unisex-tee-mothers-day-gift-birthday-gift-for-mom-present-for-pregnant-mom-302icnnpts261?variant=44323227468008?utm_source=avada&ranking=&utm_source=&utm_campaign=the-30-truly-thoughtful-gifts-that-pregnant-mom-will-love)
@@ -417,9 +415,9 @@ The necklace is made of high-quality sterling silver, ensuring durability and lo
 
 [Buy from Loveable](https://loveable.ai/products/to-my-mommy-mom-to-be-baby-feet-sterling-silver-heart-pendant-necklace-baby-shower-gift-expecting-mother-pregnancy-gift-set-301ihpnpje029?variant=44268736938216?utm_source=avada&ranking=&utm_source=&utm_campaign=the-30-truly-thoughtful-gifts-that-pregnant-mom-will-love)
 
-### [23\. BabyBjörn Baby Bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/?ie=UTF8&tag=avadalove-20)
+### [23\. BabyBjörn Baby Bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/?ie=UTF8&tag=giftable02-20)
 
 The BabyBjörn bouncer is an excellent present for a new mom, providing proper head and back support for her baby.
 
@@ -433,11 +431,11 @@ This bouncer is suitable from birth up to the age of 3-4 months. The BabyBjörn 
 
 ✔️ Cherish precious moments with giggles and cuddles
 
-[Buy from Amazon](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/?ie=UTF8&tag=giftable02-20)
 
-### [24\. Pregnancy Skin Care Kit](https://www.amazon.com/Palmers-Butter-Formula-Complete-Stretch/dp/B071RCMQNG/?ie=UTF8&tag=avadalove-20)
+### [24\. Pregnancy Skin Care Kit](https://www.amazon.com/Palmers-Butter-Formula-Complete-Stretch/dp/B071RCMQNG/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Palmers-Butter-Formula-Complete-Stretch/dp/B071RCMQNG/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Palmers-Butter-Formula-Complete-Stretch/dp/B071RCMQNG/?ie=UTF8&tag=giftable02-20)
 
 For a pregnant woman, a mark or scar on her belly during pregnancy is one of the most concerning matters that they want to improve.
 
@@ -451,11 +449,11 @@ Palmer's Cocoa Butter Formula Massage Lotion is specially formulated with Vitami
 
 ✔️ Pamper yourself, cherishing the miraculous new life
 
-[Buy from Amazon](https://www.amazon.com/Palmers-Butter-Formula-Complete-Stretch/dp/B071RCMQNG/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Palmers-Butter-Formula-Complete-Stretch/dp/B071RCMQNG/?ie=UTF8&tag=giftable02-20)
 
-### [25\. Bluetooth Baby Headphone](https://www.amazon.com/Womb-Music-Deluxe-Pack-Controller/dp/B07ZWLDF98?ie=UTF8&tag=avadalove-20)
+### [25\. Bluetooth Baby Headphone](https://www.amazon.com/Womb-Music-Deluxe-Pack-Controller/dp/B07ZWLDF98?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Womb-Music-Deluxe-Pack-Controller/dp/B07ZWLDF98?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Womb-Music-Deluxe-Pack-Controller/dp/B07ZWLDF98?ie=UTF8&tag=giftable02-20)
 
 The Bluetooth baby speaker from the Wusic brand is a great gift for any mom who is expecting a baby. You should give this wonderful gift to your new-mom friend now!
 
@@ -469,11 +467,11 @@ With an adjustable volume and padded ear cups and headbands, it ensures that the
 
 ✔️ Joyful whispers of love, comforting little ears tenderly
 
-[Buy from Amazon](https://www.amazon.com/Womb-Music-Deluxe-Pack-Controller/dp/B07ZWLDF98?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Womb-Music-Deluxe-Pack-Controller/dp/B07ZWLDF98?ie=UTF8&tag=giftable02-20)
 
-### [26\. Pink Stork Morning Sickness Sweets](https://www.amazon.com/Pink-Stork-Morning-Sickness-Sweets/dp/B078ZJWW64?ie=UTF8&tag=avadalove-20)
+### [26\. Pink Stork Morning Sickness Sweets](https://www.amazon.com/Pink-Stork-Morning-Sickness-Sweets/dp/B078ZJWW64?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pink-Stork-Morning-Sickness-Sweets/dp/B078ZJWW64?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pink-Stork-Morning-Sickness-Sweets/dp/B078ZJWW64?ie=UTF8&tag=giftable02-20)
 
 Pink Stork Morning Sickness Sweets are the perfect gift for a new mom who is battling morning sickness.
 
@@ -487,11 +485,11 @@ Made with natural ginger and raspberry flavors, they are safe for pregnant women
 
 ✔️ Tender care, soothing mama's journey with love
 
-[Buy from Amazon](https://www.amazon.com/Pink-Stork-Morning-Sickness-Sweets/dp/B078ZJWW64?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pink-Stork-Morning-Sickness-Sweets/dp/B078ZJWW64?ie=UTF8&tag=giftable02-20)
 
-### [27\. I’ve Waited 9 Months for This Wine Glass](https://www.amazon.com/Ive-Waited-Months-This-Personalized/dp/B07QQD41W6/?ie=UTF8&tag=avadalove-20)
+### [27\. I’ve Waited 9 Months for This Wine Glass](https://www.amazon.com/Ive-Waited-Months-This-Personalized/dp/B07QQD41W6/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Ive-Waited-Months-This-Personalized/dp/B07QQD41W6/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Ive-Waited-Months-This-Personalized/dp/B07QQD41W6/?ie=UTF8&tag=giftable02-20)
 
 Before a new mom dives into tasting your first glass of wine after giving birth, make sure she toasts to the newborn with this elegant glass!
 
@@ -505,11 +503,11 @@ The Expecting Mom Pregnant Wine Glass is embossed with the words “I've Waited 
 
 ✔️ A well-deserved indulgence, savoring the sweetest victory
 
-[Buy from Amazon](https://www.amazon.com/Ive-Waited-Months-This-Personalized/dp/B07QQD41W6/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Ive-Waited-Months-This-Personalized/dp/B07QQD41W6/?ie=UTF8&tag=giftable02-20)
 
-### [28\. Pregnancy Stretch Mark Cream](https://www.amazon.com/Green-All-Natural-Skin-Belly-Ounce/dp/B007UHUN0S?ie=UTF8&tag=avadalove-20)
+### [28\. Pregnancy Stretch Mark Cream](https://www.amazon.com/Green-All-Natural-Skin-Belly-Ounce/dp/B007UHUN0S?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Green-All-Natural-Skin-Belly-Ounce/dp/B007UHUN0S?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Green-All-Natural-Skin-Belly-Ounce/dp/B007UHUN0S?ie=UTF8&tag=giftable02-20)
 
 We are proud to introduce you to our new Stretch Mark Cream. This is a perfect gift for any new mom.
 
@@ -523,11 +521,11 @@ Made with natural ingredients, it will help prevent and remove stretch marks dur
 
 ✔️ Radiate confidence, cherishing the journey with pride
 
-[Buy from Amazon](https://www.amazon.com/Green-All-Natural-Skin-Belly-Ounce/dp/B007UHUN0S?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Green-All-Natural-Skin-Belly-Ounce/dp/B007UHUN0S?ie=UTF8&tag=giftable02-20)
 
-### [29\. Baby BodySuits](https://www.amazon.com/Gerber-Organic-Short-Sleeve-Onesies-Bodysuit/dp/B07GDS6C9Q/?ie=UTF8&tag=avadalove-20)
+### [29\. Baby BodySuits](https://www.amazon.com/Gerber-Organic-Short-Sleeve-Onesies-Bodysuit/dp/B07GDS6C9Q/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Gerber-Organic-Short-Sleeve-Onesies-Bodysuit/dp/B07GDS6C9Q/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Gerber-Organic-Short-Sleeve-Onesies-Bodysuit/dp/B07GDS6C9Q/?ie=UTF8&tag=giftable02-20)
 
 A gift for a new mom? Baby BodySuits with Multi Size Organic Short Sleeve Onesies are a great option to give them to celebrate a special occasion of welcoming a new baby.
 
@@ -541,11 +539,11 @@ Their bodysuits are made with 100% Certified Organic Cotton, so they are very so
 
 ✔️ Cute and cozy, joyfully dressing up tiny miracles
 
-[Buy from Amazon](https://www.amazon.com/Gerber-Organic-Short-Sleeve-Onesies-Bodysuit/dp/B07GDS6C9Q/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Gerber-Organic-Short-Sleeve-Onesies-Bodysuit/dp/B07GDS6C9Q/?ie=UTF8&tag=giftable02-20)
 
-### [30\. Boppy Original Nursing Pillow and Positioner](https://www.amazon.com/Boppy-Original-Nursing-Positioner-Dinosaurs/dp/B083MP611D/?ie=UTF8&tag=avadalove-20)
+### [30\. Boppy Original Nursing Pillow and Positioner](https://www.amazon.com/Boppy-Original-Nursing-Positioner-Dinosaurs/dp/B083MP611D/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Boppy-Original-Nursing-Positioner-Dinosaurs/dp/B083MP611D/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Boppy-Original-Nursing-Positioner-Dinosaurs/dp/B083MP611D/?ie=UTF8&tag=giftable02-20)
 
 This Boppy Nursing Pillow and Positioner is a gift for a new mom from Amazon that you should put this item into your gift’s list.
 
@@ -553,11 +551,11 @@ It supports the mom's arms, back, and tummy during breastfeeding which eases fee
 
 Needless to say, you should go for it now!
 
-[Buy from Amazon](https://www.amazon.com/Boppy-Original-Nursing-Positioner-Dinosaurs/dp/B083MP611D/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Boppy-Original-Nursing-Positioner-Dinosaurs/dp/B083MP611D/?ie=UTF8&tag=giftable02-20)
 
-### [31\. Weleda Pregnancy Body Oil](https://www.amazon.com/Weleda-Pregnancy-Stretch-Marks-Ounce/dp/B000VYFD52/?ie=UTF8&tag=avadalove-20)
+### [31\. Weleda Pregnancy Body Oil](https://www.amazon.com/Weleda-Pregnancy-Stretch-Marks-Ounce/dp/B000VYFD52/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Weleda-Pregnancy-Stretch-Marks-Ounce/dp/B000VYFD52/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Weleda-Pregnancy-Stretch-Marks-Ounce/dp/B000VYFD52/?ie=UTF8&tag=giftable02-20)
 
 Weleda Pregnancy Body Oil is the first moisturizing massage oil for pregnant women and new moms. This gift is surely a great choice for them.
 
@@ -571,11 +569,11 @@ It is designed to diminish the visible appearance of stretch marks, visibly incr
 
 ✔️ A touch of magic, celebrating motherhood's radiance
 
-[Buy from Amazon](https://www.amazon.com/Weleda-Pregnancy-Stretch-Marks-Ounce/dp/B000VYFD52/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Weleda-Pregnancy-Stretch-Marks-Ounce/dp/B000VYFD52/?ie=UTF8&tag=giftable02-20)
 
-### [32\. Nipple Cream](https://www.amazon.com/bamboobies-Organic-Lanolin-Free-Nursing-Breastfeeding/dp/B007TIM8A6?ie=UTF8&tag=avadalove-20)
+### [32\. Nipple Cream](https://www.amazon.com/bamboobies-Organic-Lanolin-Free-Nursing-Breastfeeding/dp/B007TIM8A6?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/bamboobies-Organic-Lanolin-Free-Nursing-Breastfeeding/dp/B007TIM8A6?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/bamboobies-Organic-Lanolin-Free-Nursing-Breastfeeding/dp/B007TIM8A6?ie=UTF8&tag=giftable02-20)
 
 Give this Bamboobies nipple cream to your friends when they have babies. It's a friendly and essential gift for any new mom.
 
@@ -591,11 +589,11 @@ It soothes chapped nipples when you're breastfeeding, protecting your nursing re
 
 Just get one for her now! She will appreciate it so much!
 
-[Buy from Amazon](https://www.amazon.com/bamboobies-Organic-Lanolin-Free-Nursing-Breastfeeding/dp/B007TIM8A6?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/bamboobies-Organic-Lanolin-Free-Nursing-Breastfeeding/dp/B007TIM8A6?ie=UTF8&tag=giftable02-20)
 
-### [33\. Birds & Bees Teas – Pregnancy Tea Organic Sampler Set](https://www.amazon.com/Birds-Bees-Teas-Pregnancy-Announcement/dp/B073W13VFD?ie=UTF8&tag=avadalove-20)
+### [33\. Birds & Bees Teas – Pregnancy Tea Organic Sampler Set](https://www.amazon.com/Birds-Bees-Teas-Pregnancy-Announcement/dp/B073W13VFD?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Birds-Bees-Teas-Pregnancy-Announcement/dp/B073W13VFD?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Birds-Bees-Teas-Pregnancy-Announcement/dp/B073W13VFD?ie=UTF8&tag=giftable02-20)
 
 Pregnancy isn't always easy. But it doesn't have to be difficult, either. With the Birds & Bees Pregnancy Tea Organic Sampler Set, a mom-to-be can enjoy a cup of perfectly balanced tea that's not only delicious but also packed with vitamins and minerals that are good for her and her baby.
 
@@ -609,11 +607,11 @@ This sampler set includes 4 different types of teas that are meant to be enjoyed
 
 ✔️ Motherhood's embrace, finding comfort in every herbal blend
 
-[Buy from Amazon](https://www.amazon.com/Birds-Bees-Teas-Pregnancy-Announcement/dp/B073W13VFD?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Birds-Bees-Teas-Pregnancy-Announcement/dp/B073W13VFD?ie=UTF8&tag=giftable02-20)
 
-### [34\. Promoted to Mom Tumbler](https://www.amazon.com/Promoted-Mom-Est-2021-Tumbler/dp/B08LKGY77V/?ie=UTF8&tag=avadalove-20)
+### [34\. Promoted to Mom Tumbler](https://www.amazon.com/Promoted-Mom-Est-2021-Tumbler/dp/B08LKGY77V/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Promoted-Mom-Est-2021-Tumbler/dp/B08LKGY77V/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Promoted-Mom-Est-2021-Tumbler/dp/B08LKGY77V/?ie=UTF8&tag=giftable02-20)
 
 This Est tumbler is perfect for new moms to celebrate their special milestone! This tumbler makes a great gift for first-time moms, birthdays, baby showers, and more.
 
@@ -627,11 +625,11 @@ The Promoted to Mom tumbler features a custom design that reads "New Mom", makin
 
 ✔️ Empowering title, embracing the journey with love and gratitude
 
-[Buy from Amazon](https://www.amazon.com/Promoted-Mom-Est-2021-Tumbler/dp/B08LKGY77V/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Promoted-Mom-Est-2021-Tumbler/dp/B08LKGY77V/?ie=UTF8&tag=giftable02-20)
 
-### [35\. Expecting Mom Pregnancy Keepsake](https://www.amazon.com/Pearhead-Belly-Casting-Kit-White/dp/B002T6792K?ie=UTF8&tag=avadalove-20)
+### [35\. Expecting Mom Pregnancy Keepsake](https://www.amazon.com/Pearhead-Belly-Casting-Kit-White/dp/B002T6792K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pearhead-Belly-Casting-Kit-White/dp/B002T6792K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pearhead-Belly-Casting-Kit-White/dp/B002T6792K?ie=UTF8&tag=giftable02-20)
 
 With this Expecting Mom Pregnancy Keepsake, you can take a mold of your belly to cherish your special pregnancy time.
 
@@ -645,11 +643,11 @@ The kit includes all the necessary items to make a plaster cast of your belly. T
 
 ✔️ A glimpse of love, forever preserving this precious journey
 
-[Buy from Amazon](https://www.amazon.com/Pearhead-Belly-Casting-Kit-White/dp/B002T6792K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pearhead-Belly-Casting-Kit-White/dp/B002T6792K?ie=UTF8&tag=giftable02-20)
 
-### [36\. Fisher-Price Animal Wonders Jumperoo, White](https://www.amazon.com/Fisher-Price-FWY41-Animal-Wonders-Jumperoo/dp/B07H618PK4?ie=UTF8&tag=avadalove-20)
+### [36\. Fisher-Price Animal Wonders Jumperoo, White](https://www.amazon.com/Fisher-Price-FWY41-Animal-Wonders-Jumperoo/dp/B07H618PK4?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Fisher-Price-FWY41-Animal-Wonders-Jumperoo/dp/B07H618PK4?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Fisher-Price-FWY41-Animal-Wonders-Jumperoo/dp/B07H618PK4?ie=UTF8&tag=giftable02-20)
 
 Most of us have fond memories of playing in a jumper as an infant. The Fisher-Price Animal Wonders Jumperoo brings those memories back with a modern twist.
 
@@ -663,11 +661,11 @@ Colorful toys are decorated such as a light-up chameleon, bat-at panda & elephan
 
 ✔️ Boundless happiness, a little one's safe haven of delight
 
-[Buy from Amazon](https://www.amazon.com/Fisher-Price-FWY41-Animal-Wonders-Jumperoo/dp/B07H618PK4?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Fisher-Price-FWY41-Animal-Wonders-Jumperoo/dp/B07H618PK4?ie=UTF8&tag=giftable02-20)
 
-### [37\. Willow Tree Home Hand-Painted Figure](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B004PYQQ1E?ie=UTF8&tag=avadalove-20)
+### [37\. Willow Tree Home Hand-Painted Figure](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B004PYQQ1E?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B004PYQQ1E?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B004PYQQ1E?ie=UTF8&tag=giftable02-20)
 
 This Willow Tree Home, Sculpted Hand-Painted Figure is the perfect gift to celebrate life’s new beginnings and a new baby. The new dad is holding his wife’s belly with a look of love and tenderness on his face.
 
@@ -681,11 +679,11 @@ This would make a wonderful addition to any home. Along with the sculpture, a se
 
 ✔️ Hand-painted emotions, evoking warmth and nostalgia
 
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B004PYQQ1E?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B004PYQQ1E?ie=UTF8&tag=giftable02-20)
 
-### [38\. Love at First Sight Sonogram Picture Frame](https://www.amazon.com/Pearhead-First-Sight-Sonogram-Keepsake/dp/B00WTX68PC/?ie=UTF8&tag=avadalove-20)
+### [38\. Love at First Sight Sonogram Picture Frame](https://www.amazon.com/Pearhead-First-Sight-Sonogram-Keepsake/dp/B00WTX68PC/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pearhead-First-Sight-Sonogram-Keepsake/dp/B00WTX68PC/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pearhead-First-Sight-Sonogram-Keepsake/dp/B00WTX68PC/?ie=UTF8&tag=giftable02-20)
 
 A new mom will love this sentimental sonogram picture frame, which celebrates the first glimpse of her baby in 3D.
 
@@ -699,11 +697,11 @@ The frame is engraved with the word "love at first sight," sonogram picture fram
 
 ✔️ Eager anticipation, a frame filled with dreams and hope
 
-[Buy from Amazon](https://www.amazon.com/Pearhead-First-Sight-Sonogram-Keepsake/dp/B00WTX68PC/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pearhead-First-Sight-Sonogram-Keepsake/dp/B00WTX68PC/?ie=UTF8&tag=giftable02-20)
 
-### [39\. Pregnancy Sleepwears](https://www.amazon.com/Wildtrest-Nightgown-Delivery-Dresses-Medium/dp/B07J5HFB1X?ie=UTF8&tag=avadalove-20)
+### [39\. Pregnancy Sleepwears](https://www.amazon.com/Wildtrest-Nightgown-Delivery-Dresses-Medium/dp/B07J5HFB1X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Wildtrest-Nightgown-Delivery-Dresses-Medium/dp/B07J5HFB1X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Wildtrest-Nightgown-Delivery-Dresses-Medium/dp/B07J5HFB1X?ie=UTF8&tag=giftable02-20)
 
 Can't get comfortable at night? These Ekouaer Women's Labor and Breastfeeding sleepwear are the perfect gifts for expecting moms.
 
@@ -717,11 +715,11 @@ Each piece can also be worn post-pregnancy, thanks to its stretchy fabric. Suppo
 
 ✔️ Dreaming for two, treasuring the beauty of pregnancy nights
 
-[Buy from Amazon](https://www.amazon.com/Wildtrest-Nightgown-Delivery-Dresses-Medium/dp/B07J5HFB1X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Wildtrest-Nightgown-Delivery-Dresses-Medium/dp/B07J5HFB1X?ie=UTF8&tag=giftable02-20)
 
-### [40\. Shower Steamer](https://www.amazon.com/Essential-Oil-Shower-Steamer-Set/dp/B089VN6FMS/?ie=UTF8&tag=avadalove-20)
+### [40\. Shower Steamer](https://www.amazon.com/Essential-Oil-Shower-Steamer-Set/dp/B089VN6FMS/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Essential-Oil-Shower-Steamer-Set/dp/B089VN6FMS/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Essential-Oil-Shower-Steamer-Set/dp/B089VN6FMS/?ie=UTF8&tag=giftable02-20)
 
 These Shower Steamer melts are perfect for a new-mom gift to treat herself after taking care of her newborn or just to relax during the pregnancy!
 
@@ -735,11 +733,11 @@ With the scents of rosemary mint and lavender vanilla, these melts will make you
 
 ✔️ Uplifting moments, steaming away stress with blissful scents
 
-[Buy from Amazon](https://www.amazon.com/Essential-Oil-Shower-Steamer-Set/dp/B089VN6FMS/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Essential-Oil-Shower-Steamer-Set/dp/B089VN6FMS/?ie=UTF8&tag=giftable02-20)
 
-### [41\. Funny Pregnancy T Shirt](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B0716YF21K?ie=UTF8&tag=avadalove-20)
+### [41\. Funny Pregnancy T Shirt](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B0716YF21K?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B0716YF21K?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B0716YF21K?ie=UTF8&tag=giftable02-20)
 
 If you’re pregnant, you’re about to get a lot of weird looks and random comments. With this shirt, you can let the world know that it’s not just your belly that’s growing — it’s your sense of humor.
 
@@ -753,11 +751,11 @@ Laugh your way to the end of your pregnancy with this funny shirt! The design on
 
 ✔️ A t-shirt that speaks, embracing the whimsical side of motherhood
 
-[Buy from Amazon](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B0716YF21K?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Maternity-Pregnancy-Announce-Novelty-Heather/dp/B0716YF21K?ie=UTF8&tag=giftable02-20)
 
-### [42\. Burt’s Bees Body Oil](https://www.amazon.com/Burts-Bees-100-Natural-Nourishing/dp/B0029PT4KG?ie=UTF8&tag=avadalove-20)
+### [42\. Burt’s Bees Body Oil](https://www.amazon.com/Burts-Bees-100-Natural-Nourishing/dp/B0029PT4KG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-100-Natural-Nourishing/dp/B0029PT4KG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-100-Natural-Nourishing/dp/B0029PT4KG?ie=UTF8&tag=giftable02-20)
 
 Nourish your skin back to life with a natural glow before a new mom was not pregnant with the Burt’s Bee body oil.
 
@@ -771,11 +769,11 @@ This moisturizing oil is a natural way to bring back that healthy glow to her sk
 
 ✔️ Burt's Bees love, a soothing balm for body and soul
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-100-Natural-Nourishing/dp/B0029PT4KG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-100-Natural-Nourishing/dp/B0029PT4KG?ie=UTF8&tag=giftable02-20)
 
-### [43\. Baby Bump Headphones Speaker](https://www.amazon.com/Mosalogic-Pregnancy-Headphones-Speaker-Perfect/dp/B08T8ZT1PN?ie=UTF8&tag=avadalove-20)
+### [43\. Baby Bump Headphones Speaker](https://www.amazon.com/Mosalogic-Pregnancy-Headphones-Speaker-Perfect/dp/B08T8ZT1PN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Mosalogic-Pregnancy-Headphones-Speaker-Perfect/dp/B08T8ZT1PN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Mosalogic-Pregnancy-Headphones-Speaker-Perfect/dp/B08T8ZT1PN?ie=UTF8&tag=giftable02-20)
 
 Imagine being able to play lullabies directly to your baby while it's still inside you. The Baby Bump Headphones Speaker allows you to do just that!
 
@@ -789,11 +787,11 @@ This revolutionary new product makes it possible for the first time for new moms
 
 ✔️ Tiny kicks, dancing to the rhythm of life's music
 
-[Buy from Amazon](https://www.amazon.com/Mosalogic-Pregnancy-Headphones-Speaker-Perfect/dp/B08T8ZT1PN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Mosalogic-Pregnancy-Headphones-Speaker-Perfect/dp/B08T8ZT1PN?ie=UTF8&tag=giftable02-20)
 
-### [44\. Burt’s Bees Mama Belly Butter](https://www.amazon.com/Burts-Bees-Butter-Butter-Vitamin/dp/B00DM14TYC?ie=UTF8&tag=avadalove-20)
+### [44\. Burt’s Bees Mama Belly Butter](https://www.amazon.com/Burts-Bees-Butter-Butter-Vitamin/dp/B00DM14TYC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Butter-Butter-Vitamin/dp/B00DM14TYC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-Butter-Butter-Vitamin/dp/B00DM14TYC?ie=UTF8&tag=giftable02-20)
 
 A personal care kit like Burt’s Bee mama cream is a perfect gift for mamas-to-be or new moms.
 
@@ -807,11 +805,11 @@ Burt's Bees Mama Belly Butter nourishes your belly before and after pregnancy. T
 
 ✔️ Burt's Bees magic, a belly butter that cradles dreams
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Butter-Butter-Vitamin/dp/B00DM14TYC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Butter-Butter-Vitamin/dp/B00DM14TYC?ie=UTF8&tag=giftable02-20)
 
-### [45\. Letters To My Baby](https://www.amazon.com/Letters-My-Baby-Treasure-Forever/dp/145213295X?ie=UTF8&tag=avadalove-20)
+### [45\. Letters To My Baby](https://www.amazon.com/Letters-My-Baby-Treasure-Forever/dp/145213295X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Letters-My-Baby-Treasure-Forever/dp/145213295X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Letters-My-Baby-Treasure-Forever/dp/145213295X?ie=UTF8&tag=giftable02-20)
 
 Letters to My Baby is a unique new product which combines the idea of writing letters and gifts in one. Letters To My Baby is an innovative way to share your affection with your baby through the form of letters.
 
@@ -825,11 +823,11 @@ The letters are easy to carry, making it easier for you to share your thoughts, 
 
 ✔️ A treasure trove, a lifetime gift of cherished words
 
-[Buy from Amazon](https://www.amazon.com/Letters-My-Baby-Treasure-Forever/dp/145213295X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Letters-My-Baby-Treasure-Forever/dp/145213295X?ie=UTF8&tag=giftable02-20)
 
-### [46\. Pink Stork Pregnancy Flakes](https://www.amazon.com/Pink-Stork-Flakes-Pregnancy-Magnesium/dp/B00SP89RMG?ie=UTF8&tag=avadalove-20)
+### [46\. Pink Stork Pregnancy Flakes](https://www.amazon.com/Pink-Stork-Flakes-Pregnancy-Magnesium/dp/B00SP89RMG?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pink-Stork-Flakes-Pregnancy-Magnesium/dp/B00SP89RMG?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pink-Stork-Flakes-Pregnancy-Magnesium/dp/B00SP89RMG?ie=UTF8&tag=giftable02-20)
 
 Looking for a unique, thoughtful gift for the expecting mom in your life? Try a box of Pink Stork Pregnancy Flakes!.
 
@@ -843,11 +841,11 @@ As the only pregnancy flake that actually contains pregnancy hormones, Pink Stor
 
 ✔️ Pink Stork magic, soothing pregnancy with love and care
 
-[Buy from Amazon](https://www.amazon.com/Pink-Stork-Flakes-Pregnancy-Magnesium/dp/B00SP89RMG?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pink-Stork-Flakes-Pregnancy-Magnesium/dp/B00SP89RMG?ie=UTF8&tag=giftable02-20)
 
-### [47\. Momcozy Pregnancy Pillow](https://www.amazon.com/Momcozy-Pregnancy-Maternity-Removable-Sleeping/dp/B08YYVRXLM?ie=UTF8&tag=avadalove-20)
+### [47\. Momcozy Pregnancy Pillow](https://www.amazon.com/Momcozy-Pregnancy-Maternity-Removable-Sleeping/dp/B08YYVRXLM?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Momcozy-Pregnancy-Maternity-Removable-Sleeping/dp/B08YYVRXLM?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Momcozy-Pregnancy-Maternity-Removable-Sleeping/dp/B08YYVRXLM?ie=UTF8&tag=giftable02-20)
 
 No matter how comfortable mom’s bedding is, it can still be hard to get a good night's rest when she is pregnant. A Momcozy pillow was designed to help this problem.
 
@@ -861,11 +859,11 @@ Its U-shape cradles your body from head to toe, and its memory foam filling offe
 
 ✔️ Mom's sanctuary, cherishing restful moments with grace
 
-[Buy from Amazon](https://www.amazon.com/Momcozy-Pregnancy-Maternity-Removable-Sleeping/dp/B08YYVRXLM?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Momcozy-Pregnancy-Maternity-Removable-Sleeping/dp/B08YYVRXLM?ie=UTF8&tag=giftable02-20)
 
-### [48\. Pregnancy Pillow Wedge](https://www.amazon.com/hiccapop-Pregnancy-Maternity-Pillows-Support/dp/B01KG84CLI/?ie=UTF8&tag=avadalove-20)
+### [48\. Pregnancy Pillow Wedge](https://www.amazon.com/hiccapop-Pregnancy-Maternity-Pillows-Support/dp/B01KG84CLI/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/hiccapop-Pregnancy-Maternity-Pillows-Support/dp/B01KG84CLI/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/hiccapop-Pregnancy-Maternity-Pillows-Support/dp/B01KG84CLI/?ie=UTF8&tag=giftable02-20)
 
 Body Pillow Wedge is uniquely designed to support a pregnant woman's body during sleep. So it will be a great idea that you give a pregnant mom this unique pillow.
 
@@ -879,11 +877,11 @@ It provides support for a woman’s back, belly and head when she sleeps, rests 
 
 ✔️ A pillow of joy, embracing the journey of motherhood
 
-[Buy from Amazon](https://www.amazon.com/hiccapop-Pregnancy-Maternity-Pillows-Support/dp/B01KG84CLI/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/hiccapop-Pregnancy-Maternity-Pillows-Support/dp/B01KG84CLI/?ie=UTF8&tag=giftable02-20)
 
-### [49\. Mama-to-Be Gift Set](https://www.amazon.com/Earth-Mama-Something-Organic-Pregnancy/dp/B004Y9D90Q?ie=UTF8&tag=avadalove-20)
+### [49\. Mama-to-Be Gift Set](https://www.amazon.com/Earth-Mama-Something-Organic-Pregnancy/dp/B004Y9D90Q?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Earth-Mama-Something-Organic-Pregnancy/dp/B004Y9D90Q?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Earth-Mama-Something-Organic-Pregnancy/dp/B004Y9D90Q?ie=UTF8&tag=giftable02-20)
 
 Earth Mama is a perfect gift for any expecting mother. Mother Nature provides all that's needed to promote healthy pregnancy and a happy, healthy baby. This special gift set includes travel sizaed Ginger Fresh Deodorant, Morning Wellness Body Wash, Belly Butter, Belly Oil & Orange Ginger Lip Balm.
 
@@ -897,11 +895,11 @@ Eco-packaging is made from recycled cardboard, with no bleach, dyes, or glue. Mo
 
 ✔️ A bundle of warmth, nurturing her soul and anticipation.
 
-[Buy from Amazon](https://www.amazon.com/Earth-Mama-Something-Organic-Pregnancy/dp/B004Y9D90Q?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Earth-Mama-Something-Organic-Pregnancy/dp/B004Y9D90Q?ie=UTF8&tag=giftable02-20)
 
-### [50\. Burt’s Bees Mama Bee Gift Set](https://www.amazon.com/Burts-Bees-Mama-Pregnancy-Products/dp/B071RDTNCC?ie=UTF8&tag=avadalove-20)
+### [50\. Burt’s Bees Mama Bee Gift Set](https://www.amazon.com/Burts-Bees-Mama-Pregnancy-Products/dp/B071RDTNCC?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Burts-Bees-Mama-Pregnancy-Products/dp/B071RDTNCC?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Burts-Bees-Mama-Pregnancy-Products/dp/B071RDTNCC?ie=UTF8&tag=giftable02-20)
 
 Burt's Bees Mama Bee Gift Set is a great way to pamper a pregnant mother from head to toe. The gift set includes Leg & Foot Cream, Belly Butter, and Original Beeswax Lip Balm.
 
@@ -915,11 +913,11 @@ This Mama Bee Collection of soothing leg and foot cream - gives her legs and fee
 
 ✔️ A gift of nurture, cherishing the mama bee-to-be
 
-[Buy from Amazon](https://www.amazon.com/Burts-Bees-Mama-Pregnancy-Products/dp/B071RDTNCC?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Burts-Bees-Mama-Pregnancy-Products/dp/B071RDTNCC?ie=UTF8&tag=giftable02-20)
 
-### [51\. Baby Gift Set Socks](https://www.amazon.com/Baby-Socks-Gift-Set-Newborn/dp/B079J6LWLN?ie=UTF8&tag=avadalove-20)
+### [51\. Baby Gift Set Socks](https://www.amazon.com/Baby-Socks-Gift-Set-Newborn/dp/B079J6LWLN?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Baby-Socks-Gift-Set-Newborn/dp/B079J6LWLN?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Baby-Socks-Gift-Set-Newborn/dp/B079J6LWLN?ie=UTF8&tag=giftable02-20)
 
 This is the perfect baby gift set to give a pregnant mom - getting ready to welcome a new angel to the world! This gift set comes with two pairs of soft socks ideal for newborns.
 
@@ -933,7 +931,7 @@ These socks are made from soft and durable cotton to keep your baby’s feet war
 
 ✔️ A gift of coziness, wrapping baby in tender affection
 
-[Buy from Amazon](https://www.amazon.com/Baby-Socks-Gift-Set-Newborn/dp/B079J6LWLN?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Baby-Socks-Gift-Set-Newborn/dp/B079J6LWLN?ie=UTF8&tag=giftable02-20)
 
 ### [52\. Custom Timeline White Mug](https://loveable.ai/products/girlfriendboyfriend-fianceefiance-wifehusband-momdad-personalized-white-mug-custom-timeline-best-gift-for-himher-for-couples-on-anniversary-305ihpnpmu542?variant=44493127024872?utm_source=avada&ranking=&utm_source=&utm_campaign=the-30-truly-thoughtful-gifts-that-pregnant-mom-will-love)
 
