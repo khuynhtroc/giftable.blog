@@ -7,7 +7,7 @@ permalink: "/toddler-christmas-gifts/"
 categories: Occasions Christmas
 tags: toddler little-baby
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Toddler Christmas gifts (1).jpg"
     alt: "Best Toddler Christmas Gifts for Your Little Baby"                                 
 ---   
 

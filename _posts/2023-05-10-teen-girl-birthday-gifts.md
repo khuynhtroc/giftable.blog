@@ -7,7 +7,7 @@ permalink: "/teen-girl-birthday-gifts/"
 categories: Occasions Birthday
 tags: teen-girl receive
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_teen girl birthday gifts (1).jpg"
     alt: "Best Teen Girl Birthday Gifts That They Would Love To Receive"                                
 ---    
 

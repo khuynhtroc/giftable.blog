@@ -5,9 +5,9 @@ date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/birthday-gifts-for-mom/"
 categories: Occasions Birthday
-tags: Birthday Mom
+tags: birthday mom
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_birthday gifts for mom (1).jpg"
     alt: "Best Thoughtful Birthday Gift Ideas For Mom"                                 
 ---    
 

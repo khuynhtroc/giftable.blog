@@ -7,7 +7,7 @@ permalink: "/gifts-boss/"
 categories: Recipients Anyone
 tags: boss appreciation
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_gifts for boss (1).jpg"
     alt: "Best Thank You Gift For Boss To Express Your Appreciation"                                
 ---  
 

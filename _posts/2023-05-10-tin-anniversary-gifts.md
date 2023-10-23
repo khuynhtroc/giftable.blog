@@ -5,9 +5,9 @@ date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/tin-anniversary-gifts/"
 categories: Occasions Anniversary
-tags: Tin Married
+tags: tin married
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_tin anniversary gifts (2).png"
     alt: "37 Best Tin Anniversary Gifts For Any Married Couples"                                 
 ---    
 

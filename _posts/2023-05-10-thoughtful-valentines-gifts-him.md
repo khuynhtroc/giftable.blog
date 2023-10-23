@@ -7,7 +7,7 @@ permalink: "/thoughtful-valentines-gifts-him/"
 categories: Occasions Valentine
 tags: gifts care
 image:
-    path:
+    path: 
     alt: "Best Thoughtful Valentine’s Gifts For Him To Show Your Care"                                
 ---    
 
