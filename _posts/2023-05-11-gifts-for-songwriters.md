@@ -503,9 +503,9 @@ The notebook includes a ribbon marker and is made from 96 pages of lined paper. 
 
 [Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/794209344/personalised-guitar-a5-cloth-bound)
 
-### [28\. Steps To Songwriting Success Book](https://www.amazon.com/Steps-Songwriting-Success-Revised-Comprehensive/dp/0823084779/?ie=UTF8&tag=avadalove-20)
+### [28\. Steps To Songwriting Success Book](https://www.amazon.com/Steps-Songwriting-Success-Revised-Comprehensive/dp/0823084779/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Steps-Songwriting-Success-Revised-Comprehensive/dp/0823084779/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Steps-Songwriting-Success-Revised-Comprehensive/dp/0823084779/?ie=UTF8&tag=giftable02-20)
 
 If you are a songwriter and are struggling with writing a successful song. This book is an absolute must-read for anyone who wants to improve their songwriting.
 
@@ -519,11 +519,11 @@ It presents a surefire step-by-step approach to mastering the elements consisten
 
 ✔️ Empowers aspiring songwriters
 
-[Buy from Amazon](https://www.amazon.com/Steps-Songwriting-Success-Revised-Comprehensive/dp/0823084779/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Steps-Songwriting-Success-Revised-Comprehensive/dp/0823084779/?ie=UTF8&tag=giftable02-20)
 
-### [29\. Songwriter’s Market Book](https://www.amazon.com/Songwriters-Market-40th-Where-Songs/dp/1440347794?ie=UTF8&tag=avadalove-20)
+### [29\. Songwriter’s Market Book](https://www.amazon.com/Songwriters-Market-40th-Where-Songs/dp/1440347794?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Songwriters-Market-40th-Where-Songs/dp/1440347794?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Songwriters-Market-40th-Where-Songs/dp/1440347794?ie=UTF8&tag=giftable02-20)
 
 It's not enough to have an amazing voice—you need to find the right people who will be able to help you breakthrough and make your career happen.
 
@@ -537,11 +537,11 @@ This item is the go-to source for musicians, songwriters, and recording artists 
 
 ✔️ Helps connect with music publishers
 
-[Buy from Amazon](https://www.amazon.com/Songwriters-Market-40th-Where-Songs/dp/1440347794?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Songwriters-Market-40th-Where-Songs/dp/1440347794?ie=UTF8&tag=giftable02-20)
 
-### [30\. Pacon Music Staff Paper](https://www.amazon.com/Pacon-Music-Staff-Spiral-Sheets/dp/B00ECE008M?ie=UTF8&tag=avadalove-20)
+### [30\. Pacon Music Staff Paper](https://www.amazon.com/Pacon-Music-Staff-Spiral-Sheets/dp/B00ECE008M?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Pacon-Music-Staff-Spiral-Sheets/dp/B00ECE008M?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Pacon-Music-Staff-Spiral-Sheets/dp/B00ECE008M?ie=UTF8&tag=giftable02-20)
 
 In a world where every other piece of music is just a variation on the same tired, trite formula, it’s refreshing to find a book that brings back the artistry of writing lyrics for the song like this Pacon Music Staff Paper.
 
@@ -555,11 +555,11 @@ This product is excellent for teaching and composing music, each page has 12 pre
 
 ✔️ Ample space for musical compositions
 
-[Buy from Amazon](https://www.amazon.com/Pacon-Music-Staff-Spiral-Sheets/dp/B00ECE008M?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Pacon-Music-Staff-Spiral-Sheets/dp/B00ECE008M?ie=UTF8&tag=giftable02-20)
 
-### [31\. Book Of Rhymes](https://www.amazon.com/Book-Rhymes-Laxative-Creative-Constipation/dp/0991273516?ie=UTF8&tag=avadalove-20)
+### [31\. Book Of Rhymes](https://www.amazon.com/Book-Rhymes-Laxative-Creative-Constipation/dp/0991273516?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Book-Rhymes-Laxative-Creative-Constipation/dp/0991273516?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Book-Rhymes-Laxative-Creative-Constipation/dp/0991273516?ie=UTF8&tag=giftable02-20)
 
 If you write songs, poems, or ads, this rhyming dictionary will make your life much easier! It's a book full of words that rhyme, and it has all the answers.
 
@@ -573,11 +573,11 @@ This essential rhyming reference contains over 50,000 rhyming entries and will h
 
 ✔️ Verses flow effortlessly
 
-[Buy from Amazon](https://www.amazon.com/Book-Rhymes-Laxative-Creative-Constipation/dp/0991273516?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Book-Rhymes-Laxative-Creative-Constipation/dp/0991273516?ie=UTF8&tag=giftable02-20)
 
-### [32\. Songwriting Without Boundaries Book](https://www.amazon.com/Songwriting-Without-Boundaries-Writing-Exercises/dp/1599632977?ie=UTF8&tag=avadalove-20)
+### [32\. Songwriting Without Boundaries Book](https://www.amazon.com/Songwriting-Without-Boundaries-Writing-Exercises/dp/1599632977?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Songwriting-Without-Boundaries-Writing-Exercises/dp/1599632977?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Songwriting-Without-Boundaries-Writing-Exercises/dp/1599632977?ie=UTF8&tag=giftable02-20)
 
 If you are a songwriter but unfortunately great songs don't just come to you. They're built over time, through disciplined practice. Songwriting Without Boundaries will help you build the muscle memory needed for great lyric composition.
 
@@ -591,11 +591,11 @@ This product offers you a framework for tackling the most difficult aspect of so
 
 ✔️ Explores diverse writing styles
 
-[Buy from Amazon](https://www.amazon.com/Songwriting-Without-Boundaries-Writing-Exercises/dp/1599632977?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Songwriting-Without-Boundaries-Writing-Exercises/dp/1599632977?ie=UTF8&tag=giftable02-20)
 
-### [33\. How To Write One Song Audiobook](https://www.amazon.com/How-Write-One-Song-Loving/dp/B08DL33RQ1/?ie=UTF8&tag=avadalove-20)
+### [33\. How To Write One Song Audiobook](https://www.amazon.com/How-Write-One-Song-Loving/dp/B08DL33RQ1/?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/How-Write-One-Song-Loving/dp/B08DL33RQ1/?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/How-Write-One-Song-Loving/dp/B08DL33RQ1/?ie=UTF8&tag=giftable02-20)
 
 What if the goals we've set aren't so mystical and are achievable for anyone who wants to experience more magic and creativity in their life? How to Write Songs shows aspiring songwriters how to get started and get going in the world of songwriting.
 
@@ -609,11 +609,11 @@ The book gives you a feel for the process, from thinking about what kind of song
 
 ✔️ Insider tips and techniques shared
 
-[Buy from Amazon](https://www.amazon.com/How-Write-One-Song-Loving/dp/B08DL33RQ1/?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/How-Write-One-Song-Loving/dp/B08DL33RQ1/?ie=UTF8&tag=giftable02-20)
 
-### [34\. The Songwriter’s Handbook](https://www.amazon.com/Songwriters-Handbook-Tom-T-Hall/dp/1558538607?ie=UTF8&tag=avadalove-20)
+### [34\. The Songwriter’s Handbook](https://www.amazon.com/Songwriters-Handbook-Tom-T-Hall/dp/1558538607?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Songwriters-Handbook-Tom-T-Hall/dp/1558538607?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Songwriters-Handbook-Tom-T-Hall/dp/1558538607?ie=UTF8&tag=giftable02-20)
 
 As well as being a muse, the dictionary is also a quick reference tool for the contemporary songwriter. Its clear format means you'll be able to find exactly what you're looking for quickly and easily.
 
@@ -627,11 +627,11 @@ It is a concise collection of the most often used words in popular music. It's a
 
 ✔️ Overcome creative blocks and doubts
 
-[Buy from Amazon](https://www.amazon.com/Songwriters-Handbook-Tom-T-Hall/dp/1558538607?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Songwriters-Handbook-Tom-T-Hall/dp/1558538607?ie=UTF8&tag=giftable02-20)
 
-### [35\. Songwriter’s Rhyming Dictionary](https://www.amazon.com/Essential-Songwriters-Rhyming-Dictionary-Pocket/dp/0882847295?ie=UTF8&tag=avadalove-20)
+### [35\. Songwriter’s Rhyming Dictionary](https://www.amazon.com/Essential-Songwriters-Rhyming-Dictionary-Pocket/dp/0882847295?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Essential-Songwriters-Rhyming-Dictionary-Pocket/dp/0882847295?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Essential-Songwriters-Rhyming-Dictionary-Pocket/dp/0882847295?ie=UTF8&tag=giftable02-20)
 
 This small, pocket-sized dictionary will be helpful for anyone involved in contemporary songwriting. It's an easy-to-use tool designed specifically for contemporary songwriters.
 
@@ -645,11 +645,11 @@ This product is an excellent dictionary of the most commonly used words in pop m
 
 ✔️ Vast collection of rhymes
 
-[Buy from Amazon](https://www.amazon.com/Essential-Songwriters-Rhyming-Dictionary-Pocket/dp/0882847295?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Essential-Songwriters-Rhyming-Dictionary-Pocket/dp/0882847295?ie=UTF8&tag=giftable02-20)
 
-### [36\. Songwriter’s Journal](https://www.amazon.com/Songwriters-Journal-Diary-Notebook-Elizabeth/dp/144131413X?ie=UTF8&tag=avadalove-20)
+### [36\. Songwriter’s Journal](https://www.amazon.com/Songwriters-Journal-Diary-Notebook-Elizabeth/dp/144131413X?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Songwriters-Journal-Diary-Notebook-Elizabeth/dp/144131413X?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Songwriters-Journal-Diary-Notebook-Elizabeth/dp/144131413X?ie=UTF8&tag=giftable02-20)
 
 This free-spirited journal will help you create, retain, and organize your songs. It has blank lined pages for lyrics, staff lines for composing melodies and a fret diagram for guitar fingerings.
 
@@ -663,11 +663,11 @@ This journal also includes writing tips, prompts, and words of wisdom from songw
 
 ✔️ Encourages musical exploration
 
-[Buy from Amazon](https://www.amazon.com/Songwriters-Journal-Diary-Notebook-Elizabeth/dp/144131413X?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Songwriters-Journal-Diary-Notebook-Elizabeth/dp/144131413X?ie=UTF8&tag=giftable02-20)
 
-### [37\. Songwriting Book](https://www.amazon.com/Lyrics-Head-Songwriting-Book-Songwriters/dp/B084DGMLD2?ie=UTF8&tag=avadalove-20)
+### [37\. Songwriting Book](https://www.amazon.com/Lyrics-Head-Songwriting-Book-Songwriters/dp/B084DGMLD2?ie=UTF8&tag=giftable02-20)
 
-[](https://www.amazon.com/Lyrics-Head-Songwriting-Book-Songwriters/dp/B084DGMLD2?ie=UTF8&tag=avadalove-20)
+[](https://www.amazon.com/Lyrics-Head-Songwriting-Book-Songwriters/dp/B084DGMLD2?ie=UTF8&tag=giftable02-20)
 
 This cute journal is a great way to keep track of your favorite songs. You can even use it to write down your music. This is a beautiful notebook that will keep your entire idea in mind.
 
@@ -681,7 +681,7 @@ It has enough space to write down all your notes and ideas. Moreover, with this 
 
 ✔️ Exercises to overcome writer's block
 
-[Buy from Amazon](https://www.amazon.com/Lyrics-Head-Songwriting-Book-Songwriters/dp/B084DGMLD2?ie=UTF8&tag=avadalove-20)
+[Buy from Amazon](https://www.amazon.com/Lyrics-Head-Songwriting-Book-Songwriters/dp/B084DGMLD2?ie=UTF8&tag=giftable02-20)
 
 ## Bottom line
 
