@@ -7,7 +7,7 @@ permalink: "/valentine-gifts-coworkers/"
 categories: Occasions Valentine
 tags: coworkers appreciation
 image: 
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_valentine gifts for coworkers (1).jpg"
     alt: "Valentine’s Day Gifts for Coworkers to Show Your Appreciation"                                
 ---    
 

@@ -7,7 +7,7 @@ permalink: "/valentines-day-jewelry/"
 categories: Occasions Valentine
 tags: jewelry worth
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Valentines day jewelry (1).jpg"
     alt: "Valentine’s Day Jewelry Gifts That Are Worth To Buy"                                
 ---   
 

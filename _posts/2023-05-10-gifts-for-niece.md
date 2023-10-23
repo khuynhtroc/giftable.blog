@@ -7,7 +7,7 @@ permalink: "/gifts-for-niece/"
 categories: Recipients Women
 tags: niece aunt
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_gifts-for-niece (1).png"
     alt: "Useful Gifts for Niece From Her Favourite Aunt"                                
 ---    
 

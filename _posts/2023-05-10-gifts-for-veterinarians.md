@@ -7,7 +7,7 @@ permalink: "/gifts-for-veterinarians/"
 categories: Recipients Anyone
 tags: useful veterinarians
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_gifts-for-veterinarians (1).png"
     alt: "Useful Gifts for Veterinarians In Your Life"                                 
 ---    
 

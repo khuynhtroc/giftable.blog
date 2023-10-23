@@ -7,7 +7,7 @@ permalink: "/gifts-beach-lovers/"
 categories: [Interests, Outdoors & Sports]
 tags: beach adore
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_gifts-for-beach-lovers (1).png"
     alt: "Best Gifts for Beach Lovers That They’ll Adore"                                
 --- 
 

@@ -7,7 +7,7 @@ permalink: "/valentines-gifts-family/"
 categories: Occasions Valentine
 tags: family warm-heart
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Valentines Gifts for Family (1).jpg"
     alt: "Valentine’s Gifts For Family To Show Your Warm Heart"                                 
 ---   
 

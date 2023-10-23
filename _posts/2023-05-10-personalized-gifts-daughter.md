@@ -7,7 +7,7 @@ permalink: "/personalized-gifts-daughter/"
 categories: [Recipients, Kids & Teens]
 tags: personalized daughter
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_personalized gifts for daughter (1).png"
     alt: "Unique Personalized Gifts for Daughter That She’ll Love"                                
 ---  
 

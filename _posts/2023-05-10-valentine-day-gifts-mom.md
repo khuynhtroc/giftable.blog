@@ -7,7 +7,7 @@ permalink: "/valentine-day-gifts-mom/"
 categories: Occasions Valentine
 tags: mom thoughtfullness
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Valentine's day gifts for mom (1).jpg"
     alt: "Valentine’s Day Gifts For Mom To Show Your Thoughtfullness"                                 
 ---    
 

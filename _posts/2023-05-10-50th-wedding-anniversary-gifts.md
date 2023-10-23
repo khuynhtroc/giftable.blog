@@ -7,7 +7,7 @@ permalink: "/50th-wedding-anniversary-gifts/"
 categories: Occasions Anniversary Wedding
 tags: wedding golden
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_50th-anniversary-gifts-for-friends (1).png"
     alt: "Best 50th Wedding Anniversary Gifts To Celebrate Golden Anniversary"                                 
 ---  
 

@@ -7,7 +7,7 @@ permalink: "/gifts-boaters/"
 categories: [Interests, Outdoors & Sports]
 tags: boaters love
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_gifts for boaters (1).png"
     alt: "Useful Gift Ideas for Boaters That They Will Love"                                
 ---  
 
