@@ -7,8 +7,8 @@ permalink: "/gifts-for-nerdy-dads/"
 categories: Recipients Dad
 tags: nerdy-dads true-geek
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/medium_gifts for nerdy dad (1).png"
+    alt: "Best Gifts For Nerdy Dads On Father’s Day For The True Geek"                                
 ---    
 
 If your dad is a nerdy person, what kind of gift will you give to him on **[special occasions](/occasions/)** like father’s day or his birthday? Those kinds of gifts seem so hard to you to get the best “nerdy" present for him, right? Then you have come to the right place, which is our site. Now, just have a look at our gift list and our recommended ideal gifts will not let you down!

@@ -7,8 +7,8 @@ permalink: "/gifts-movie-lovers/"
 categories: Interests Popular
 tags: movie film-enthusiast
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/medium_gifts for movie lovers (2).jpg"
+    alt: "Best Gifts For Movie Lovers Who Are The Most Dedicated Film Enthusiast"                                 
 ---    
 
 Are you on a mission to find the perfect gift for the movie enthusiast in your life? Do you often find yourself in a quandary, trying to choose something that will cater to their cinematic passion and at the same time, reflect your thoughtful gesture? We know how that feels and we're here to help!

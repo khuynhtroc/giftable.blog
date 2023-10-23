@@ -7,8 +7,8 @@ permalink: "/gifts-neighbor/"
 categories: Interests Popular
 tags: neighbor heartfelt meaningful
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/medium_Gifts For Neighbor (1).png"
+    alt: "Best Gifts For Neighbor That Are Heartfelt And Meaningful"                                
 ---    
 
 Do you have a neighbor who is also your **[best friend](/sentimental-gifts-best-friends/)** and confidant? Want to make a conversation with the neighbor you pass in your apartment hallway but never speak with? A small, thoughtful gift is a simple and effective way to accomplish this. Giving appropriate gifts to neighbors is always a good idea, regardless of your intentions. With a token of appreciation, you can show them how much you appreciate them!

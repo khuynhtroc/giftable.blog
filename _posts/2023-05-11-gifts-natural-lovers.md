@@ -7,8 +7,8 @@ permalink: "/gifts-natural-lovers/"
 categories: Recipients Anyone
 tags: nature adventure
 image:
-    path:
-    alt:                                 
+    path: "/assets/img/post/2023/09/copied/medium_Gifts for nature lovers (1).jpg"
+    alt: "Best Gifts For Nature Lovers That’ll Make Their Next Adventure One To Remember"                                 
 ---    
 
 Nature enthusiasts are always looking for new ways to get outside and enjoy the sun, trees, and **[flowers](/flower-girl-gifts/)**. Finding gifts for nature lovers is so challenging since things that are both ecologically friendly and highly relevant must be considered.
