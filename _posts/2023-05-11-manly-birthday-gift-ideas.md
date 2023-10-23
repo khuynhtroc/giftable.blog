@@ -7,7 +7,7 @@ permalink: "/manly-birthday-gift-ideas/"
 categories: Occasions Birthday
 tags: birthday surprise
 image:
-    path:
+    path: 
     alt: "Best Manly Birthday Gift Ideas That Will Surprise Him"                                
 ---    
 
