@@ -7,7 +7,7 @@ permalink: "/valentine-gifts-teenage-daughters/"
 categories: Occasions Valentine
 tags: teenage-daughters girl
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Valentine gifts for teenage daughters (1).jpg"
     alt: "Best Valentine’s Gifts For Teenage Daughters Girl She Will Love"                                
 ---    
 

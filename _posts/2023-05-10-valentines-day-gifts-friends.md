@@ -7,7 +7,7 @@ permalink: "/valentines-day-gifts-friends/"
 categories: Occasions Valentine Friends
 tags: friends unique
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Teacher valentine gifts (2).jpg"
     alt: "Best Valentines Gifts for Friends That Are Unique And Lovely"                                
 ---    
 

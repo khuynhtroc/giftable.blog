@@ -5,9 +5,9 @@ date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/teacher-valentine-gifts/"
 categories: Occasions Valentine
-tags: Teachers Adore
+tags: teachers adore
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_Teacher valentine gifts (1).jpg"
     alt: "Best Valentine’s Gifts for Teachers that They’ll Adore"                                 
 --- 
 
