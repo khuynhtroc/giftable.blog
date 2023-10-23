@@ -4,7 +4,7 @@ description: "Giving fishing gifts for your boyfriend is one of the greatest thi
 date: 2023-05-10 00:00:00 +0000
 last-modify-at: 
 permalink: "/fishing-gifts-boyfriend/"
-categories: [Interests, outdoors & sports, Men]
+categories: [Interests, Outdoors & Sports, Men]
 tags: fishing boyfriend
 image:
     path: "/assets/img/post/2023/09/copied/medium_fishing-gifts-for-boyfriend.png"
