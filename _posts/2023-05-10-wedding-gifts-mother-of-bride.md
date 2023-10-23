@@ -7,7 +7,7 @@ permalink: "/wedding-gifts-mother-of-bride/"
 categories: Occasions Wedding
 tags: mother bride
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_wedding-gifts-for-mother-of-the-bride (1).jpg"
     alt: "Wedding Gifts For Mother Of the Bride to Show Your Love"                                  
 ---   
 
