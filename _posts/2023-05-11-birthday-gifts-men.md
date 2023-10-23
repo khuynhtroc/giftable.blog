@@ -7,7 +7,7 @@ permalink: "/birthday-gifts-men/"
 categories: Occasions Birthday
 tags: birthday men
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_job_flat_design_5-05 (1).jpg"
     alt: "Best Birthday Gifts For Men Who Have Everything"                                
 ---    
 

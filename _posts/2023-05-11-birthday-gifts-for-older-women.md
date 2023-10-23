@@ -7,7 +7,7 @@ permalink: "/birthday-gifts-for-older-women/"
 categories: Occasions Birthday
 tags: birthday older-women
 image:
-    path:
+    path: "/assets/img/post/2023/09/copied/medium_birthday-gifts-for-older-women (1).png"
     alt: "Best Birthday Gifts For Older Women That Will Make She Happy"                                 
 ---    
 
