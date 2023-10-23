@@ -5,7 +5,7 @@ date: 2023-05-11 00:00:00 +0000
 last-modify-at: 
 permalink: "/eco-friendly-gifts/"
 categories: Interests Popular
-tags: Friendly Planet
+tags: friendly planet
 image:
     path: "/assets/img/post/2023/09/copied/medium_job_flat_design_7-02.jpg"
     alt: "Best Eco Friendly Gifts That Both Your Recipients And The Planet Will Love"                                
