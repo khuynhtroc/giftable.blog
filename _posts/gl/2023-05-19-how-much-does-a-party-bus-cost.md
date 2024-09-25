@@ -3,7 +3,7 @@ title: "Party On Wheels: How Much Does A Party Bus Cost?"
 description: "Let's dive into the world of party buses and uncover the costs behind these mobile venues for unforgettable fun."
 date: 2023-05-19 15:29:07 +0000
 last_modify_at: 
-categories: [Occasions, Party]
+categories: Occasions, Party
 tags: 
 permalink: "/how-much-does-a-party-bus-cost/"
 image:

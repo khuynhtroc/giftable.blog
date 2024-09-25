@@ -4,7 +4,7 @@ description: "From personalized jewelry to tech gadgets and meaningful books, we
 date: 2023-03-08 00:00:00 +0000
 last-modify-at: 
 permalink: "/8th-grade-graduation-gifts/"
-categories: [Occasions Graduation, Kids & Teens]
+categories: Occasions Graduation, Kids & Teens
 tags: grade teenager
 image:
     path: "/assets/img/post/2023/09/copied/undefined-Imgur-1.jpg"
