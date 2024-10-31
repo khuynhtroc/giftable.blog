@@ -26,8 +26,8 @@ layout: null
 		<title>{{ post.title }}</title>
 		<link>{{ site.url }}{{ post.url }}</link>
 		<pubDate>{{ post.date | date_to_xmlschema }}</pubDate>
-		<dc:creator><![CDATA[sam]]></dc:creator>
-		<category><![CDATA[magento 2]]></category>
+		<dc:creator><![CDATA[huynhnt]]></dc:creator>
+		<category>{{ site.category }}</category>
 		<guid isPermaLink="false">{{ site.url }}{{ post.id }}</guid>
 		<description><![CDATA[{{ post.excerpt | xml_escape }}]]></description>
 		<content><![CDATA[{{ post.content | xml_escape }}]]></content>
