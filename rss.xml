@@ -12,25 +12,23 @@ layout: null
 	>
 
 <channel>
-	<title>Giftable</title>
+    <title>{{ site.name | xml_escape }}</title>
+    <description>{{ site.description | xml_escape }}</description>
 	<atom:link href="{{ site.url }}/rss" rel="self" type="application/rss+xml" />
+    <atom:link href="{{ site.url }}/feed.xml" rel="self" type="application/rss+xml" />
+
 	<link>{{ site.url }}</link>
-	<description>by Giftable</description>
-	<lastBuildDate>Sat, 02 Sep 2023 05:15:00 +0000</lastBuildDate>
 	<language>en-US</language>
-	<sy:updatePeriod>hourly</sy:updatePeriod>
-	<sy:updateFrequency>1</sy:updateFrequency>
-	<generator>{{ site.url }}</generator>
-	{% for post in site.posts limit:30 %}
+	{% for post in site.posts %}
 	<item>
 		<title>{{ post.title }}</title>
+        <description>{{ post.content | xml_escape }}</description>
+        <pubDate>{{ post.date | date: "%a, %d %b %Y %H:%M:%S %z" }}</pubDate>
 		<link>{{ site.url }}{{ post.url }}</link>
-		<pubDate>{{ post.date | date_to_xmlschema }}</pubDate>
-		<dc:creator><![CDATA[huynhnt]]></dc:creator>
-		<category>{{ site.category }}</category>
 		<guid isPermaLink="false">{{ site.url }}{{ post.id }}</guid>
-		<description><![CDATA[{{ post.excerpt | xml_escape }}]]></description>
-		<content><![CDATA[{{ post.content | xml_escape }}]]></content>
+		<dc:creator>{{ post.author }}></dc:creator>
+		<category>{{ site.category }}</category>
+		<content>{{ post.content }}></content>
 	</item>
 	{% endfor %}
 
